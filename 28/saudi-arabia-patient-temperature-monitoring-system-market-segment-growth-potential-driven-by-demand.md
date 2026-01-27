@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-patient-temperature-monitoring-system-market-kknwf/

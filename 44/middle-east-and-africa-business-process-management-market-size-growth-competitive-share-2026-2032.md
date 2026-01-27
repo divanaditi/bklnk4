@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-business-process-management-market-j4ojf/

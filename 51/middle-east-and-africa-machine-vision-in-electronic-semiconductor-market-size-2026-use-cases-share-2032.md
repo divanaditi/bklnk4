@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-machine-vision-electronic-semiconductor-zn2bc/

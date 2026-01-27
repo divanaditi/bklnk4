@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-polyamide-imide-resin-market-demand-drivers-o7k2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-consumer-internet-things-ciot-market-djhuf/

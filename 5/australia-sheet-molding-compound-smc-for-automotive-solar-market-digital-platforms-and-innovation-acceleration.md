@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-sheet-molding-compound-smc-automotive-4swfc/

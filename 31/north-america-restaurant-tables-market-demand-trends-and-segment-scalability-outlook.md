@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-restaurant-tables-market-demand-trends-1wepf/

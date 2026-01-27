@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ruler-market-demand-dynamics-segment-investment-f0lwf/

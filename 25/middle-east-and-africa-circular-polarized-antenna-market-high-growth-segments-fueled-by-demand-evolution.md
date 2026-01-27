@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-circular-polarized-antenna-market-hpe8f/

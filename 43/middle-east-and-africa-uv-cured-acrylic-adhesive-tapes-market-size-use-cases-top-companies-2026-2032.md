@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uv-cured-acrylic-adhesive-tapes-pvc6f/

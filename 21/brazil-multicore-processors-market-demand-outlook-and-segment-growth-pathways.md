@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multicore-processors-market-demand-outlook-segment-lvbrf/

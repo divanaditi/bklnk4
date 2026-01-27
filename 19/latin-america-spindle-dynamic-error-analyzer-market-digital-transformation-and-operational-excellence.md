@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spindle-dynamic-error-analyzer-market-ztfce/

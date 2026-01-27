@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wheeled-contemporary-shelf-market-technology-x8bef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-computer-intermediate-frequency-86tlf/

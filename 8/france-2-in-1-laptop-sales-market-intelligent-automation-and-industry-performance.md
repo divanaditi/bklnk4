@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-2-in-1-laptop-sales-market-intelligent-ihp8f/

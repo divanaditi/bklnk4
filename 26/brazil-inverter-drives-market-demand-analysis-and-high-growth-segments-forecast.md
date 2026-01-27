@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-inverter-drives-market-demand-analysis-3mhvc/

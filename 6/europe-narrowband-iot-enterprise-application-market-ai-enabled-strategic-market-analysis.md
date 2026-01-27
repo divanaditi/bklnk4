@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-narrowband-iot-enterprise-application-9owuf/

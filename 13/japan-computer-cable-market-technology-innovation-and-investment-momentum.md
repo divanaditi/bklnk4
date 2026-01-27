@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-computer-cable-market-technology-innovation-investment-tzmaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-collagen-based-natural-sealant-market-yabxf/

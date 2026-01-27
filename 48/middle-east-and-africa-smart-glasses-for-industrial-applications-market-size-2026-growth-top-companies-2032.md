@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-glasses-industrial-applications-ahr7f/

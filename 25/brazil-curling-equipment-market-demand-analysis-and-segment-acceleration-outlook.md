@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-curling-equipment-market-demand-analysis-segment-m9odf/

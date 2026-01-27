@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-carbide-tools-professional-market-role-ai-guk1f/

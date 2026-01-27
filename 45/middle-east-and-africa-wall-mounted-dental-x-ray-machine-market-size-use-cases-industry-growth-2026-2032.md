@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wall-mounted-dental-x-ray-machine-qposc/

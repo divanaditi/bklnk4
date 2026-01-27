@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wide-format-printer-market-86lif/

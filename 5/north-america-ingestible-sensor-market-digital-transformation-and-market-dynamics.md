@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ingestible-sensor-market-digital-transformation-x0ejf/

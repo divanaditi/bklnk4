@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-x-ray-drilling-machine-market-demand-evolution-a6ayf/

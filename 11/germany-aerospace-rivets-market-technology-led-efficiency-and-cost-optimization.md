@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-aerospace-rivets-market-technology-led-u1hnc/

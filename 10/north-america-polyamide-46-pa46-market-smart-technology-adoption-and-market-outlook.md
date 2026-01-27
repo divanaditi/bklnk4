@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-polyamide-46-pa46-market-smart-technology-iretf/

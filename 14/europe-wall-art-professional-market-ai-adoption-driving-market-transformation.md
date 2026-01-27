@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wall-art-professional-market-ai-adoption-driving-c0rzc/

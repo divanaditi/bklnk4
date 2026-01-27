@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-vibration-level-switches-kp5df/

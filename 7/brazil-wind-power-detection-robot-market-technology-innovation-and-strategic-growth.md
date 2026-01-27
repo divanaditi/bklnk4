@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-power-detection-robot-market-technology-mibmf/

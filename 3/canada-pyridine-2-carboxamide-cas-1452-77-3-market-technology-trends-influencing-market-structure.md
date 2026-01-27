@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pyridine-2-carboxamide-cas-1452-77-3-k9mzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wifi-chipset-market-demand-momentum-segment-tovaf/

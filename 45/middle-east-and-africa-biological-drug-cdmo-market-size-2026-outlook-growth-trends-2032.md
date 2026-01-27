@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-biological-drug-cdmo-market-jyy8c/

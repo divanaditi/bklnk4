@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-travel-bag-market-demand-outlook-segment-xjmdf/

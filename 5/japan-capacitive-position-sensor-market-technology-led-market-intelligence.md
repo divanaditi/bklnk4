@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-capacitive-position-sensor-market-technology-led-intelligence-84upf/

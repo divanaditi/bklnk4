@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-4-methoxyphenol-cas-17332-12-6-market-fbwzf/

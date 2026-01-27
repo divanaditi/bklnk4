@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-disposable-single-patient-blood-pressure-2qfkf/

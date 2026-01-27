@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-23-difluoroacetophenone-cas-18355-80-1-fahaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-enterprise-portals-market-technology-driven-tyb3f/

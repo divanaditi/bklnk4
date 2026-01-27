@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heel-pad-market-technology-adoption-0vsyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-covid-19-exhaust-fan-market-ai-data-driven-owd0f/

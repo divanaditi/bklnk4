@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wallets-market-demand-analysis-high-growth-23iwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-carbon-nanotube-ptc-heating-film-market-mxihf/

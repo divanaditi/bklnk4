@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-healthcare-telemonitoring-system-b1cuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-decontamination-equipment-market-g8a7e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-industrial-plugs-sockets-9ravf/

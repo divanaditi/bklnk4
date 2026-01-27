@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-smoking-shoes-market-growth-drivers-p1wkf/

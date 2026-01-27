@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pharmacovigilance-software-market-xkk1f/

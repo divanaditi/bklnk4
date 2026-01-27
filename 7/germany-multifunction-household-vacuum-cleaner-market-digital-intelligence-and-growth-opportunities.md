@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-multifunction-household-vacuum-cleaner-cg9ff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-user-provisioning-market-demand-momentum-segment-ekj7f/

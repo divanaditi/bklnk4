@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tak935-market-technology-led-industry-3b2cf/

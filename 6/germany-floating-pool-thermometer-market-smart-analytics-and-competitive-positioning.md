@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-floating-pool-thermometer-market-smart-tkibf/

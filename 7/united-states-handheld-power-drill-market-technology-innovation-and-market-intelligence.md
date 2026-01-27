@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-handheld-power-drill-market-technology-hkosf/

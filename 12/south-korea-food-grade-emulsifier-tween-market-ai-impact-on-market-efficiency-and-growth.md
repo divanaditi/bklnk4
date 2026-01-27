@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-grade-emulsifier-tween-market-ai-impact-hq5ff/

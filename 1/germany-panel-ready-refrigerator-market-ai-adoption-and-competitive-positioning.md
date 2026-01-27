@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-panel-ready-refrigerator-market-ai-adoption-competitive-ertif/

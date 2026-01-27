@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-usb-car-charger-market-size-ecosystem-0qndc/

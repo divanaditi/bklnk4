@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-filled-cotton-market-ai-adoption-ifi4f/

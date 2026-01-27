@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-third-party-risk-management-j6ypc/

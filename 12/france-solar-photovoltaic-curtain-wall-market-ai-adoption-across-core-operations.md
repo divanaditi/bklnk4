@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-solar-photovoltaic-curtain-wall-market-ai-adoption-njr2c/

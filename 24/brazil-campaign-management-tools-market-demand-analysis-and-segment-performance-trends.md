@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-campaign-management-tools-market-demand-analysis-9c9zf/

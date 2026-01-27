@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sclerotherapy-needle-market-demand-patterns-rummf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-evoh-ethylene-vinyl-alcohol-yta5c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-skill-games-market-ai-impact-efficiency-ooycf/

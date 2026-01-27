@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-cockpit-electronics-professional-eyf8c/

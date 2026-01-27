@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-theranostics-market-technology-f06hc/

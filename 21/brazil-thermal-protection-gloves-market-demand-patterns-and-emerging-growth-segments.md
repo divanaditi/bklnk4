@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermal-protection-gloves-market-demand-patterns-pryaf/

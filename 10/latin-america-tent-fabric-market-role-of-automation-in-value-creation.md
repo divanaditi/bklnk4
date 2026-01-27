@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tent-fabric-market-role-automation-value-epzvf/

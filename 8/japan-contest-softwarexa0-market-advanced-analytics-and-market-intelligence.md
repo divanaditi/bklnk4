@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-contest-softwarexa0-market-advanced-analytics-glw0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-high-heel-market-smart-technologies-industry-ryydf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ocean-marker-equipment-market-demand-trends-ssigf/

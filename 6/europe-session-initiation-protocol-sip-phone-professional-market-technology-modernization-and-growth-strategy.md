@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-session-initiation-protocol-sip-d9h9f/

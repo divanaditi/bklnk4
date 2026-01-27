@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-trunk-opener-market-demand-dynamics-tuw1f/

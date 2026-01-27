@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-isopropyl-linoleate-market-segment-9wggc/

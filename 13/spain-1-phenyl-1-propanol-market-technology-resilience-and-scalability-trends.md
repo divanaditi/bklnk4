@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-1-phenyl-1-propanol-market-technology-resilience-jtmnf/

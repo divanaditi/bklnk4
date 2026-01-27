@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-new-energy-loader-market-technology-trends-shaping-ijfpf/

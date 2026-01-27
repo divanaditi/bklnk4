@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-real-estate-investment-management-market-digital-r83qc/

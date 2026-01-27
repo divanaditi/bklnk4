@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-compact-inverter-technology-market-xs4ac/

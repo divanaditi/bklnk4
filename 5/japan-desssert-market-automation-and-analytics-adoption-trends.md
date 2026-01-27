@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-desssert-market-automation-analytics-adoption-dr5wf/

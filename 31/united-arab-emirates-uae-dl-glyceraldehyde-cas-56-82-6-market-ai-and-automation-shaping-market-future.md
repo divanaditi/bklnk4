@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-dl-glyceraldehyde-cas-56-82-6-y8exf/

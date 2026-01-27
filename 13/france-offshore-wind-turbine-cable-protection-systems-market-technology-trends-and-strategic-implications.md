@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-offshore-wind-turbine-cable-protection-systems-oyiof/

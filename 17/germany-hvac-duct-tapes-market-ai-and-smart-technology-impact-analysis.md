@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-hvac-duct-tapes-market-ai-smart-technology-bituf/

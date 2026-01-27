@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-absorbent-pads-food-packaging-s6rnf/

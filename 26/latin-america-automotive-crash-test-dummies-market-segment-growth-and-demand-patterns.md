@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-crash-test-dummies-l6pac/

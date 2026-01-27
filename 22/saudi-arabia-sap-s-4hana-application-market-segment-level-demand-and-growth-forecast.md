@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-sap-s-4hana-application-market-segment-level-qs6nf/

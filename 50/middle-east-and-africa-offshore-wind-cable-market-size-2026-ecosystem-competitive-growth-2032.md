@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-offshore-wind-cable-market-vxiqf/

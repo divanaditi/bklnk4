@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-biosaccharide-gum-1-market-size-ww4pf/

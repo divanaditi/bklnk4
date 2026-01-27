@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-surgical-lights-market-demand-drivers-15qvf/

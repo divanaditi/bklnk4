@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bridge-engineering-market-role-ai-product-toe7f/

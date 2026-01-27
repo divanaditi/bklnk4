@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yacht-battery-market-demand-side-insights-aya7e/

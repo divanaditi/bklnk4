@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-total-lab-automation-market-demand-3fgdc/

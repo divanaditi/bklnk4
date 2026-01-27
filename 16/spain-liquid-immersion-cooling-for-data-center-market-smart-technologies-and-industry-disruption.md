@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-liquid-immersion-cooling-data-center-market-qugcf/

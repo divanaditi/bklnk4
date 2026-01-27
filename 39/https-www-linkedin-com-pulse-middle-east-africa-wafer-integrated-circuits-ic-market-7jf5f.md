@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wafer-integrated-circuits-ic-market-7jf5f/

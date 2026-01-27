@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-insight-service-market-technology-zpchf/

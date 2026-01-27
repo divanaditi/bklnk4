@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thermal-adhesive-tape-market-segment-vbk2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-aminoantipyrine-hydrochloride-cas-22198-72-7-market-hempc/

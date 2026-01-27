@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-tire-tread-sensors-professional-m7bkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rfidantennas-market-size-2026-geomf/

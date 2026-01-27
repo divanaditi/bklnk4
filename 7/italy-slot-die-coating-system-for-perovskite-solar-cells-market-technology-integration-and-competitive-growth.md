@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-slot-die-coating-system-perovskite-solar-7o73f/

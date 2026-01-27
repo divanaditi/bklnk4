@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-quaternary-ammonium-cleaner-market-demand-nepmf/

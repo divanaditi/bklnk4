@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-quantum-dots-market-demand-indicators-v3rac/

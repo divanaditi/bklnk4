@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-non-leather-footwear-market-digital-transformation-yy88f/

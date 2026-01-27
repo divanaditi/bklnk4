@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-kvms-market-demand-forces-segment-ihbbc/

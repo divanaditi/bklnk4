@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-metal-film-resistors-market-growth-8o7gf/

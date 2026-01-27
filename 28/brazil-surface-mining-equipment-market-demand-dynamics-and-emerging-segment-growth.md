@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-surface-mining-equipment-market-demand-lzmac/

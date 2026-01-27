@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-power-system-remote-monitoring-0lk8f/

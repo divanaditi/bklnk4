@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-laser-communication-market-evz5f/

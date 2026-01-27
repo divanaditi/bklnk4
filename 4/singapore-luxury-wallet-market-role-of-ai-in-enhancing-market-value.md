@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-luxury-wallet-market-role-ai-enhancing-uywtc/

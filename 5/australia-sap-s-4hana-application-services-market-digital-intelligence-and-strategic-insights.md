@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-sap-s-4hana-application-services-wqibc/

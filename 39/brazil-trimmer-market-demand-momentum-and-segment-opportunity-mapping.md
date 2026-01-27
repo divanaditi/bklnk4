@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-trimmer-market-demand-momentum-segment-opportunity-dy3mf/

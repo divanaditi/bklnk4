@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-transformer-ratio-group-tester-market-automation-technology-xr70f/

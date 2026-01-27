@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-equipment-cases-market-technology-l4r9c/

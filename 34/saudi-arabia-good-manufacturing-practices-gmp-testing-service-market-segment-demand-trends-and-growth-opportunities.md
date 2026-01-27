@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-good-manufacturing-practices-gmp-testing-zkcyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-public-affairs-advocacy-software-professional-jmqmf/

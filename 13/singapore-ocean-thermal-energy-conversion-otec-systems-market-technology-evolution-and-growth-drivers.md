@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-ocean-thermal-energy-conversionotec-iv1jf/

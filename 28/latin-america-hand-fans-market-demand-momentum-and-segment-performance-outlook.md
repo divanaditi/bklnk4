@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hand-fans-market-demand-gidmc/

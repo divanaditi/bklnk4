@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-above-waist-ppe-market-technology-trends-strategic-6eitf/

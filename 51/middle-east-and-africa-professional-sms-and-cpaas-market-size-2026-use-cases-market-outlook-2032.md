@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-professional-sms-cpaas-market-size-xkwec/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-handheld-tube-cutter-market-demand-74ghe/

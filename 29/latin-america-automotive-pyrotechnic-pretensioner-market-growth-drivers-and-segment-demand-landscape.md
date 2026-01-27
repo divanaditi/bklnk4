@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-pyrotechnic-pretensioner-9ig4c/

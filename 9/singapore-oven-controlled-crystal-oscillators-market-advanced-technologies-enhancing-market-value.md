@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oven-controlled-crystal-oscillators-hfd0f/

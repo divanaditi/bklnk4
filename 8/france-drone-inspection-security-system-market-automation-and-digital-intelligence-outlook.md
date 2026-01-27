@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-drone-inspection-security-system-market-automation-csuff/

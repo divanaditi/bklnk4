@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-metal-clad-wire-wound-resistors-market-zybbf/

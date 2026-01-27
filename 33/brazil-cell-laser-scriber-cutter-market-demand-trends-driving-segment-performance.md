@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cell-laser-scribercutter-market-demand-trends-grx3e/

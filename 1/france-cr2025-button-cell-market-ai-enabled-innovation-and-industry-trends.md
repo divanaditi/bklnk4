@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cr2025-button-cell-market-ai-enabled-eadrf/

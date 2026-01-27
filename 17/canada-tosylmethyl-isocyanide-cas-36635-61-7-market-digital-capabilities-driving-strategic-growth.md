@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-tosylmethyl-isocyanide-cas-36635-61-7-rv5mc/

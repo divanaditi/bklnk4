@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dental-unit-market-high-growth-segments-fueled-ub8jf/

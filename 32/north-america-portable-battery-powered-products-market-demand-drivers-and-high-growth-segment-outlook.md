@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-portable-battery-powered-products-market-demand-cu9uf/

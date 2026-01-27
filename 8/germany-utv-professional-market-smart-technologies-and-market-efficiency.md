@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-utv-professional-market-smart-technologies-jzylf/

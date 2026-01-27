@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-usb-wall-charger-professional-market-technology-s1bdc/

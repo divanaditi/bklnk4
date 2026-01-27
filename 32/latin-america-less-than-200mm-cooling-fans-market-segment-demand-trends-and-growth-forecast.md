@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-less-than-200mm-cooling-fans-market-segment-9pdfe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerospace-open-die-forgings-lad4f/

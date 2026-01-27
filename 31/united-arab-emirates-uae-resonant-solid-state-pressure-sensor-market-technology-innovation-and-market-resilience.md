@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-resonant-solid-state-pressure-tiz6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixed-tv-wall-mount-market-demand-drivers-kuguc/

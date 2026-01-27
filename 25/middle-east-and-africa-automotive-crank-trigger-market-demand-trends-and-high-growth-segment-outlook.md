@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-crank-trigger-market-demand-crvof/

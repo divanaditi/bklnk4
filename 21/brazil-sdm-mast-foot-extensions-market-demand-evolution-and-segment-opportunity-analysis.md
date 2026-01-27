@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sdm-mast-foot-extensions-market-demand-evolution-o5z5f/

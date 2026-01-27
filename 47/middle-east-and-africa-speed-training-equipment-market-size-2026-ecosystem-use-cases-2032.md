@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-speed-training-equipment-market-m9t0f/

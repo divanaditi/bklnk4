@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-garry-wine-market-technology-adoption-xei8f/

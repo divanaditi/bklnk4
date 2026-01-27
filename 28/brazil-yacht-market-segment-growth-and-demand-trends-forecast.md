@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yacht-market-segment-growth-demand-trends-3xfrc/

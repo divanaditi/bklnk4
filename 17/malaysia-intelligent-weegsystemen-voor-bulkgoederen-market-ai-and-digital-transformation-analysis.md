@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-intelligent-weegsystemen-voor-7ouef/

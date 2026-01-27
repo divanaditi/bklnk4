@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-scrap-handling-grapple-bucket-market-ai-emerging-tjmef/

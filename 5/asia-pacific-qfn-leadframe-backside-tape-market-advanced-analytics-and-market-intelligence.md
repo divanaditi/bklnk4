@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-qfn-leadframe-backside-tape-market-k7gxf/

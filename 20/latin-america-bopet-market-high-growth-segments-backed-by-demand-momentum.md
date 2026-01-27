@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bopet-market-high-growth-segments-backed-sqb4f/

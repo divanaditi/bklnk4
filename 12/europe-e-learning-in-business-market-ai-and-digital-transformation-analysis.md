@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-e-learning-business-market-ai-digital-transformation-fyrkc/

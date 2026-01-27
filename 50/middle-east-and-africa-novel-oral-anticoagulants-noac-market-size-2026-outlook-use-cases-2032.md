@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-novel-oral-anticoagulants-noac-market-ybgzf/

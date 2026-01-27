@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-foam-tableware-market-ai-adoption-enhancing-hrs5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-laboratory-scales-market-demand-sz6mf/

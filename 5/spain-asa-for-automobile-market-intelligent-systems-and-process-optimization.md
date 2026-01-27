@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-asa-automobile-market-intelligent-systems-cbytf/

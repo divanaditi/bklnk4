@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-iodo-45-dimethoxybenzaldehyde-cas-32024-15-0-h6dwc/

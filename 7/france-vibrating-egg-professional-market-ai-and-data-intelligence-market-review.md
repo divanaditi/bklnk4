@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vibrating-egg-professional-market-ai-data-f1n2f/

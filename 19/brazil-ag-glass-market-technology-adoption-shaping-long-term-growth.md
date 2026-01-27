@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ag-glass-market-technology-adoption-shaping-xafbe/

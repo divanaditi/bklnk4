@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-party-event-rental-market-digital-intelligence-whzxc/

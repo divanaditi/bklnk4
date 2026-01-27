@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telescopic-boom-offshore-2v5of/

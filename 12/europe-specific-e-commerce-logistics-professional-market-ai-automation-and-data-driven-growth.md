@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-specific-e-commerce-logistics-professional-market-kwjqc/

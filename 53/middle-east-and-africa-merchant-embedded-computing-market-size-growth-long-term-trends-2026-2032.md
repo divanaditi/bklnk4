@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-merchant-embedded-computing-nam2f/

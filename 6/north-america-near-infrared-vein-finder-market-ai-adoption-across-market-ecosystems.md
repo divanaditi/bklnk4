@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-near-infrared-vein-finder-market-j76pf/

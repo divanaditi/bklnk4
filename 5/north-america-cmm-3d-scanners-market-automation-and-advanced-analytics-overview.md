@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-cmm-3d-scanners-market-automation-advanced-feigf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ecosystem-size-growth-2026-2032-stratiqp-group-n4rbf/

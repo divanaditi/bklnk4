@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-business-analytics-bpo-services-professional-arjaf/

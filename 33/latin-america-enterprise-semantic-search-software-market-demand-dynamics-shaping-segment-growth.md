@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-enterprise-semantic-search-software-ndhze/

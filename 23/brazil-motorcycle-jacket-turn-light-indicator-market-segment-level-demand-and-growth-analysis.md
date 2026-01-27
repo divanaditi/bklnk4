@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-motorcycle-jacket-turn-light-indicator-market-gxvlf/

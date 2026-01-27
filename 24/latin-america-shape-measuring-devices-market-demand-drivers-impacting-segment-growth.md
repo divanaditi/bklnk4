@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shape-measuring-devices-market-demand-c7bac/

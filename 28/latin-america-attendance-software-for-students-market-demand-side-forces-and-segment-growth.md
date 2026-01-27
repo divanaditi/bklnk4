@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-attendance-software-students-et7ec/

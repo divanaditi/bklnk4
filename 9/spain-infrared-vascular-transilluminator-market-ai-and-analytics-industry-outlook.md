@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-infrared-vascular-transilluminator-market-ai-analytics-leswf/

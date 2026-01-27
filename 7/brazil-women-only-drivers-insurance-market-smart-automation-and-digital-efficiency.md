@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-only-drivers-insurance-market-smart-omkkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-customer-data-platforms-market-technology-e5gsf/

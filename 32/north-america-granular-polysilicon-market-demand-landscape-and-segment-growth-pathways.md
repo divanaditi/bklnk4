@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-granular-polysilicon-market-demand-k8jmf/

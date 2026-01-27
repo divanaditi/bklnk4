@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-game-animation-outsourcing-professional-market-yebzf/

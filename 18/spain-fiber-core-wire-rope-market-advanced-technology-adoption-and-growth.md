@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-fiber-core-wire-rope-market-advanced-ers3f/

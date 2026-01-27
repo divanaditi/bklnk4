@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-mens-hunting-apparel-market-technology-convergence-53b0c/

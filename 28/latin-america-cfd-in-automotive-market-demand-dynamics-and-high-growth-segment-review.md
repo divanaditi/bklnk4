@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cfd-automotive-market-demand-kkp0c/

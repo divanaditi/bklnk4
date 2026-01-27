@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-diesel-generator-telecom-market-size-u2y7f/

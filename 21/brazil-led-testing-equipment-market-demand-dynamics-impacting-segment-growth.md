@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-led-testing-equipment-market-demand-dynamics-g7v2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-triglycidyl-isocyanurate-tgic-cas-2451-62-9-9xllc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-women-slimming-pants-market-demand-z69cf/

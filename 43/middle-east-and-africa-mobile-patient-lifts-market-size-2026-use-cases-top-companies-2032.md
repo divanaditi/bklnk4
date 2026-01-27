@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mobile-patient-lifts-market-0ujsc/

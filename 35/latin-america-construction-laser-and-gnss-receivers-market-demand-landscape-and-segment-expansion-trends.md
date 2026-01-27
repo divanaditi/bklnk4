@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-construction-laser-gnss-receivers-yo4yf/

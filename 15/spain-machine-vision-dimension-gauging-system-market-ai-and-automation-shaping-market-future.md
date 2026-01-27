@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-machine-vision-dimension-gauging-system-market-pld3f/

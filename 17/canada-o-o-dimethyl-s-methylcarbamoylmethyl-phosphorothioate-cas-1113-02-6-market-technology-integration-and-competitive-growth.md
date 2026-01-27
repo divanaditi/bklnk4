@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-oo-dimethyl-s-methylcarbamoylmethyl-phosphorothioate-b3mzc/

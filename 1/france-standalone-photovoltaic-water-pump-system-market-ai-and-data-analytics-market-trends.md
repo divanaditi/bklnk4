@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-standalone-photovoltaic-water-pump-system-market-jpvpf/

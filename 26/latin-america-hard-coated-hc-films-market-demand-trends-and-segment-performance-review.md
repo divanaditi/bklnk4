@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hard-coated-hc-films-market-demand-trends-eqx4c/

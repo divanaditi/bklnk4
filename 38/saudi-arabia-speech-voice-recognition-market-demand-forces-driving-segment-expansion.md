@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-speech-voice-recognition-market-demand-hcshf/

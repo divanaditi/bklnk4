@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-permanent-makeup-cartridges-market-il7xf/

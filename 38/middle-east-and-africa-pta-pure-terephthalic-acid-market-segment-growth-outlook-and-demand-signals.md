@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pta-pure-terephthalic-acid-market-j0fuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mobile-payment-data-protection-jnx7c/

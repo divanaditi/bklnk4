@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electric-riding-zero-turn-lawn-mower-market-xpzef/

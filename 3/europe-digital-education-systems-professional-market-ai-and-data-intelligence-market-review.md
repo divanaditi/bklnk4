@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-education-systems-professional-v9qrf/

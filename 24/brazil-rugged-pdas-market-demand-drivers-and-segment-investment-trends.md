@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rugged-pdas-market-demand-drivers-segment-investment-kzkhf/

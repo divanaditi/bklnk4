@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-silent-chain-market-segment-growth-demand-m8vef/

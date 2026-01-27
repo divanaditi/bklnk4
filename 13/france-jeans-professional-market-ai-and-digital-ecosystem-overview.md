@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-jeans-professional-market-ai-digital-ecosystem-ezwof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-logistics-tracking-market-technology-jdrsf/

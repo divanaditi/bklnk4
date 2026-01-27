@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-household-appliances-manufacturing-market-gtwwf/

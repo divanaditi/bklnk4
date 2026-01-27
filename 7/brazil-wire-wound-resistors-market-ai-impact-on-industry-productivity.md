@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-wound-resistors-market-ai-impact-pqruf/

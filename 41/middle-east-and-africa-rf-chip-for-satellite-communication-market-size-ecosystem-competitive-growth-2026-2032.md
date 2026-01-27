@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rf-chip-satellite-communication-market-xztxf/

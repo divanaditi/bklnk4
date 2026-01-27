@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fire-pump-trailer-market-segment-vx7he/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-outdoor-backpack-market-size-top-llzdf/

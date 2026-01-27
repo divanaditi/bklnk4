@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cordless-driver-drill-market-advanced-technologies-wey7c/

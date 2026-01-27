@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-fresh-juice-vending-machine-market-y1thf/

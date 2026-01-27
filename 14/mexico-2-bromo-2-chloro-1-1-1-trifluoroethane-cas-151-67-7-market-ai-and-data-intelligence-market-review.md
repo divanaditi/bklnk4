@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-bromo-2-chloro-111-trifluoroethane-cas-vbkbc/

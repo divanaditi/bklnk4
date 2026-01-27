@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-elevator-market-technology-led-f6e3f/

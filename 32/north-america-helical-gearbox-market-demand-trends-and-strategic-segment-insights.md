@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-helical-gearbox-market-demand-trends-bca1f/

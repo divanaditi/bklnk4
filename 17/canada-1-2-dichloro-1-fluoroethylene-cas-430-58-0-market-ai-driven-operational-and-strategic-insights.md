@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-12-dichloro-1-fluoroethylene-cas-430-58-0-market-o8hlc/

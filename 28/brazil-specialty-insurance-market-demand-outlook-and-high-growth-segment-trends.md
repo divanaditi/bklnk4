@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-specialty-insurance-market-demand-outlook-high-growth-k2bvc/

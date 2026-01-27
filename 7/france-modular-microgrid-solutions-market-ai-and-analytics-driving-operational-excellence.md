@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-modular-microgrid-solutions-market-ai-analytics-nw72f/

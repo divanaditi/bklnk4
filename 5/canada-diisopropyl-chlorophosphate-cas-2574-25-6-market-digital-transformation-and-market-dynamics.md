@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diisopropyl-chlorophosphate-cas-2574-25-6-mnwkf/

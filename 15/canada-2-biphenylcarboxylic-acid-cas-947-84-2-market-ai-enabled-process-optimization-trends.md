@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-biphenylcarboxylic-acid-cas-947-84-2-nejxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-handheld-dna-readers-market-demand-trends-sq9of/

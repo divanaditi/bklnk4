@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-nitro-4-trifluoromethylbenzenesulfonyl-chloride-ma8pf/

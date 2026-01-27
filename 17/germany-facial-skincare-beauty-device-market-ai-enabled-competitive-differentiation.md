@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-facial-skincare-beauty-device-market-ai-enabled-7a1ef/

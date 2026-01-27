@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cranes-rental-market-outlook-size-g7oxf/

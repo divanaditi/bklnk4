@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wound-cleanser-products-professional-market-9dtrc/

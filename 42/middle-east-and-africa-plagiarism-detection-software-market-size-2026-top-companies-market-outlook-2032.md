@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-plagiarism-detection-software-z3sbf/

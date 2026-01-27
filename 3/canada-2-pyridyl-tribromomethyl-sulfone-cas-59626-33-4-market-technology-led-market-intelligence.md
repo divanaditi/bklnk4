@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-pyridyl-tribromomethyl-sulfone-cas-59626-33-4-sx8hf/

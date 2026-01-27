@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-246-trimethylpyrylium-tetrafluoroborate-cas-vm8lf/

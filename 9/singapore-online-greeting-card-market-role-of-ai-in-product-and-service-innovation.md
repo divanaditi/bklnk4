@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-online-greeting-card-market-role-ai-gyuuf/

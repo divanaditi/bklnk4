@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-through-beam-photoelectric-sensors-market-8mscf/

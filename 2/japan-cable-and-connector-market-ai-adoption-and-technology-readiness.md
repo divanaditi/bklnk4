@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cable-connector-market-ai-adoption-technology-33sic/

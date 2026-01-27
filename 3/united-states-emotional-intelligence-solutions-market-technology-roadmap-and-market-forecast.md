@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-emotional-intelligence-solutions-market-technology-m5mbf/

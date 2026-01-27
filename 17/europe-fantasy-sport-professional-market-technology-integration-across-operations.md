@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-fantasy-sport-professional-market-technology-yqjbf/

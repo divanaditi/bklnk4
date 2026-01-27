@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-homeschooling-professional-market-ai-impact-structure-ib9kf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-small-business-accounting-platform-market-ln1rf/

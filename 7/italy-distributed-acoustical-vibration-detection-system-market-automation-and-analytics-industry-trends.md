@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-distributed-acoustical-vibration-detection-qthof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hr-payroll-software-market-demand-trends-copze/

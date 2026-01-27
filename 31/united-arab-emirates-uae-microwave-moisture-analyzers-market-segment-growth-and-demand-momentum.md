@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-microwave-moisture-analyzers-9mhsf/

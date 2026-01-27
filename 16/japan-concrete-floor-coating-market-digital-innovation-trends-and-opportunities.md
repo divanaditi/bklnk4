@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concrete-floor-coating-market-digital-innovation-gylff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-touchfree-intuitive-gesture-control-professional-tgr7f/

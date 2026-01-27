@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gas-forklift-market-ai-adoption-49vwf/

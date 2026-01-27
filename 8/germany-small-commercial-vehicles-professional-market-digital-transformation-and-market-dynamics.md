@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-small-commercial-vehicles-professional-market-hbwjf/

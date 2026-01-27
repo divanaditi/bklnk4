@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-paper-towel-market-size-2026-outlook-d1jjf/

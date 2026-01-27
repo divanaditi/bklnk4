@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-overcenter-spring-detent-market-advanced-lnlpf/

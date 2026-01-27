@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-vacation-rental-solution-market-digital-intelligence-frxdf/

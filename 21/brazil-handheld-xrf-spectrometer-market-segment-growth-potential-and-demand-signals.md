@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-handheld-xrf-spectrometer-market-segment-cszaf/

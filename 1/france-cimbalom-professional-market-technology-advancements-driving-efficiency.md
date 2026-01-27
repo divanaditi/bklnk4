@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cimbalom-professional-market-technology-advancements-8utqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-2-chloro-6-fluorobenzyloxy-3-methoxybenzaldehyde-6uvxc/

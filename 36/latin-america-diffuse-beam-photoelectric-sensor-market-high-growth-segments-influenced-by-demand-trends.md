@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-diffuse-beam-photoelectric-sensor-oap4f/

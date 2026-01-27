@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-shipborne-radars-professional-market-technology-qcwuc/

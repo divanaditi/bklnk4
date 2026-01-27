@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-high-performance-grain-oriented-electrical-kzref/

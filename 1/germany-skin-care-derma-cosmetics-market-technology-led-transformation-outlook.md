@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-skin-care-derma-cosmetics-market-technology-led-zzfnf/

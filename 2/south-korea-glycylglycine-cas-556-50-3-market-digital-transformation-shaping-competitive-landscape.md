@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-glycylglycine-cas-556-50-3-market-digital-ls90c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-structural-health-monitoring-market-high-growth-5la4f/

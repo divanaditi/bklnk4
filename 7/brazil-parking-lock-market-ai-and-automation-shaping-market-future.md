@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-parking-lock-market-ai-automation-shaping-twttf/

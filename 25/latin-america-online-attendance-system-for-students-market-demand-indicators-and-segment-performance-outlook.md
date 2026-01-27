@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-online-attendance-system-students-market-demand-zks8c/

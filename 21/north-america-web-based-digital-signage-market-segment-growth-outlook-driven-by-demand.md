@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-web-based-digital-signage-market-segment-sl5jf/

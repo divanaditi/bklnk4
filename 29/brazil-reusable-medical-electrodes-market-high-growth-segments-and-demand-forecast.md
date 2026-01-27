@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-reusable-medical-electrodes-market-high-growth-mqh1c/

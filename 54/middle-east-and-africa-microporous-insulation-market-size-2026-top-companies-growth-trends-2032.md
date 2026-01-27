@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-microporous-insulation-market-size-2026-cbz4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-solar-grade-wafer-ingot-market-role-y8cbc/

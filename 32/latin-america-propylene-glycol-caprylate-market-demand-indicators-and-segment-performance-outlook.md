@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-propylene-glycol-caprylate-market-demand-c4iye/

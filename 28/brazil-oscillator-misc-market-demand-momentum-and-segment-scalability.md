@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-oscillator-misc-market-demand-momentum-69ccc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-soft-bonnet-hair-dryer-market-demand-outlook-arwyf/

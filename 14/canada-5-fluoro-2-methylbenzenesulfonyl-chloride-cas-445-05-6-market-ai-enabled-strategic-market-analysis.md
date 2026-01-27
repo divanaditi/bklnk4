@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-fluoro-2-methylbenzenesulfonyl-chloride-cas-445-05-6-7dtlc/

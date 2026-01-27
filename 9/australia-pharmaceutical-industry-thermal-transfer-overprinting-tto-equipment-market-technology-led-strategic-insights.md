@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pharmaceutical-industry-thermal-transfer-vp8cf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fertilizer-applicator-market-segment-growth-3g9vf/

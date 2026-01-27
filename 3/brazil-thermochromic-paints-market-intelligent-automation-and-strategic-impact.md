@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermochromic-paints-market-intelligent-automation-m99jf/

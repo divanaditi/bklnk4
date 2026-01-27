@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-location-intelligence-professional-market-xfp8f/

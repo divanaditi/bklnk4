@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-2-fluorobenzotrifluoride-cas-142808-15-9-mnmvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-kelp-product-professional-market-digital-transformation-zchmc/

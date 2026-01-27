@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-foam-glass-granulate-market-demand-outlook-high-growth-qqykf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-off-road-vehicles-power-unit-market-7lfyf/

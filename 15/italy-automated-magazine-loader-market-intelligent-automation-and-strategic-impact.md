@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-automated-magazine-loader-market-intelligent-automation-cwmbf/

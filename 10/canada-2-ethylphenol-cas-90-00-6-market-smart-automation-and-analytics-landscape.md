@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-ethylphenol-cas-90-00-6-market-smart-a6xnf/

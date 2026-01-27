@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-concentrating-solar-power-0h0sf/

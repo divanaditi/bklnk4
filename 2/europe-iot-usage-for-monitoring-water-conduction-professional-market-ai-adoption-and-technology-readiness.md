@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-iot-usage-monitoring-water-conduction-r8kaf/

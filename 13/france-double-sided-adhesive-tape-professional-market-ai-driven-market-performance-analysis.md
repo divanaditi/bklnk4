@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-double-sided-adhesive-tape-professional-market-ai-driven-vlytf/

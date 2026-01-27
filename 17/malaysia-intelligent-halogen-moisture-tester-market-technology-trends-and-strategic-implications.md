@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-intelligent-halogen-moisture-tester-okdzf/

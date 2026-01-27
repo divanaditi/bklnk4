@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-diacetyl-l-tartaric-anhydride-cas-6283-74-5-3xjjc/

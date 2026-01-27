@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-digital-retail-market-demand-trends-rrdtf/

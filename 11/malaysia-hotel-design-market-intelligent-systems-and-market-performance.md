@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hotel-design-market-intelligent-systems-1dotf/

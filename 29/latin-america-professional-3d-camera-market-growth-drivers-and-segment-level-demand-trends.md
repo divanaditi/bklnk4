@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-professional-3d-camera-market-growth-zorsc/

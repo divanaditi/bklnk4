@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-context-location-based-services-market-technology-led-u7mpf/

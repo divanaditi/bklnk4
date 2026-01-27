@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-methyl-2-benzothiazolinone-hydrazone-hydrochloride-ahrsf/

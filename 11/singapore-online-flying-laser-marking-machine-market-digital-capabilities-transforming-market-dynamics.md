@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-online-flying-laser-marking-machine-market-tdzhc/

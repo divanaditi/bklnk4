@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-intelligent-image-scene-recognition-market-smart-mpbhf/

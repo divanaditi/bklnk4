@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-encrypted-usb-flash-drives-market-gomqf/

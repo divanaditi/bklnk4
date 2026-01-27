@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-automotive-financing-market-technology-061zc/

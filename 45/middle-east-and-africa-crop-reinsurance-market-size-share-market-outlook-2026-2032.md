@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-crop-reinsurance-market-size-share-bsl5f/

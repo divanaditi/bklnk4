@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transfer-switches-sales-market-segment-ms2cf/

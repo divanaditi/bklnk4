@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bedding-bath-market-ai-data-analytics-trends-zrt5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-photovoltaic-insurance-market-si3uc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-music-recording-professional-market-technology-led-6utqf/

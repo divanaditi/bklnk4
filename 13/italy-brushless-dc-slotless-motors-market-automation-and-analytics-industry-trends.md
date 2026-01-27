@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-brushless-dc-slotless-motors-market-automation-mhsaf/

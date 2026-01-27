@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-household-hair-brush-straightener-market-digital-f9fff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-articulate-dump-truck-adt-market-growth-drivers-d4zff/

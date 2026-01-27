@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-urology-ultrasound-imaging-systems-fe4ge/

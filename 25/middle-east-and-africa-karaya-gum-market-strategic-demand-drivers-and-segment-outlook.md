@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-karaya-gum-market-fr6ef/

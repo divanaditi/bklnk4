@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-business-dect-handsets-market-digital-unzrf/

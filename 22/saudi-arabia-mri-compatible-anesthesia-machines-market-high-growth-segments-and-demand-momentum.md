@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mri-compatible-anesthesia-machines-ko96f/

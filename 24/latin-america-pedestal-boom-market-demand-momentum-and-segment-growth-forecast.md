@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pedestal-boom-market-demand-momentum-cfiac/

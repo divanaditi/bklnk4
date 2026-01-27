@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-fixed-router-market-ai-driven-lf0qc/

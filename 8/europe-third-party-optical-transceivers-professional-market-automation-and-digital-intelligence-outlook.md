@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-third-party-optical-transceivers-professional-market-t9y7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-supply-chain-suites-software-7bqsf/

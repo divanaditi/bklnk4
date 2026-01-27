@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sorbitan-monostearate-cas-1338-41-6-market-demand-3mrdf/

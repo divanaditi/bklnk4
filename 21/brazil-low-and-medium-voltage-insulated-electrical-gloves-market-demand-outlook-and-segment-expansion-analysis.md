@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-low-medium-voltage-insulated-electrical-cz55f/

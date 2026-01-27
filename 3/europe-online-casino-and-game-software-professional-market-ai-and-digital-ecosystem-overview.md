@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-online-casino-game-software-professional-srcif/

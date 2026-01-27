@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-corded-circular-saw-market-growth-drivers-z32ic/

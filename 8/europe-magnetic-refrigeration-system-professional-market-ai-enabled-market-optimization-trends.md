@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-magnetic-refrigeration-system-professional-dl6uf/

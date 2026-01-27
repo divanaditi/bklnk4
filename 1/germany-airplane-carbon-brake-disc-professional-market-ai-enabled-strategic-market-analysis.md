@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-airplane-carbon-brake-disc-professional-sgauf/

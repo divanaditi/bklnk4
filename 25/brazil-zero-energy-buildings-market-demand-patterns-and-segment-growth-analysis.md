@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zero-energy-buildings-market-demand-patterns-oe38f/

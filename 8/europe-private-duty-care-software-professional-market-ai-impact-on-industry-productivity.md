@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-private-duty-care-software-professional-market-4csqf/

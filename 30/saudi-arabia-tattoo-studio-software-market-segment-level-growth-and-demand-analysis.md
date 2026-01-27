@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-tattoo-studio-software-market-cpxof/

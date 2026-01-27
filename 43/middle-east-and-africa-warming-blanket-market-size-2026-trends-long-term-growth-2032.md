@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-warming-blanket-market-size-2026-trends-zwi3c/

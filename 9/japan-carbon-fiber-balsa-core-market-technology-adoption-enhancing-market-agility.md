@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-fiber-balsa-core-market-technology-adoption-b1hyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-binder-clips-market-growth-drivers-segment-expansion-kelzc/

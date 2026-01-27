@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-foot-type-walking-aids-market-technology-led-yjmtf/

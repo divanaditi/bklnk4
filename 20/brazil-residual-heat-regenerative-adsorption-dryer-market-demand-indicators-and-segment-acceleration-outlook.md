@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-residual-heat-regenerative-adsorption-idm5f/

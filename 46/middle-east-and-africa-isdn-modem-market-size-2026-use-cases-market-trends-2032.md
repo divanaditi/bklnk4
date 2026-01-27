@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-isdn-modem-market-size-2026-use-ggv6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacuum-insulated-glass-market-demand-landscape-mjvef/

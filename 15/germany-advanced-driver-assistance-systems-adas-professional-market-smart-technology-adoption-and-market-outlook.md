@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-advanced-driver-assistance-systems-adas-professional-sloef/

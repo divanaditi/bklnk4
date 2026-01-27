@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-propshafts-market-segment-ld2vf/

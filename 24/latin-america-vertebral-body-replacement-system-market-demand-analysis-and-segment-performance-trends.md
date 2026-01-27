@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vertebral-body-replacement-system-6ckvc/

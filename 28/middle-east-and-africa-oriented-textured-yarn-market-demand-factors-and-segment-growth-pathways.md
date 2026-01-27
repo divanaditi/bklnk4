@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-oriented-textured-yarn-market-demand-5gxlf/

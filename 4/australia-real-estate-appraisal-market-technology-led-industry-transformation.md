@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-real-estate-appraisal-market-technology-led-jl5jc/

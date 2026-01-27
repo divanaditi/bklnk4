@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crosslinked-hot-nbr-market-automation-ey2gf/

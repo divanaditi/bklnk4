@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-single-phase-generator-market-demand-kcugc/

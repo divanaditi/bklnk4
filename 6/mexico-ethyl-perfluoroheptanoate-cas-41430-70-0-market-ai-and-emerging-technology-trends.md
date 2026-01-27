@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-ethyl-perfluoroheptanoate-cas-41430-70-0-sw3lf/

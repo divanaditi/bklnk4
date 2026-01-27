@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-miniature-photoacoustic-sensors-market-vh35f/

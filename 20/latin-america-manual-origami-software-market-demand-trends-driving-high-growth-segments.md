@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-manual-origami-software-market-demand-sb6hf/

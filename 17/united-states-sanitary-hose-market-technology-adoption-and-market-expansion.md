@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-sanitary-hose-market-technology-adoption-l5fxc/

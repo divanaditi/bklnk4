@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ecommerce-shopping-cart-software-market-n3pxf/

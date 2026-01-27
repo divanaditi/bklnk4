@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-memory-management-unit-mmu-market-technology-led-1habf/

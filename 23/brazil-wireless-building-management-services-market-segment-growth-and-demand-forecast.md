@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-building-management-services-market-hdhbf/

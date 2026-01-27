@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-pva-coated-high-barrier-film-4uyrf/

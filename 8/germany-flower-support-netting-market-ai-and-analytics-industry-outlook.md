@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-flower-support-netting-market-ai-analytics-db4lf/

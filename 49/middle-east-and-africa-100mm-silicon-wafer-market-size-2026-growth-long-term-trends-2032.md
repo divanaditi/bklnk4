@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-100mm-silicon-wafer-market-size-1brhf/

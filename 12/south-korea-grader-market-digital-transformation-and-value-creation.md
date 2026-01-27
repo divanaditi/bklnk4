@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-grader-market-digital-transformation-9b9wf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-amphibious-vehicle-market-segment-growth-2okyc/

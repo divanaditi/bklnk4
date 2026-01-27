@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solid-state-protective-relay-market-0pnuf/

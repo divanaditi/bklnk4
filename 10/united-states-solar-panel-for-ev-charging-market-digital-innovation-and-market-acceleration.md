@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-solar-panel-ev-charging-market-digital-innovation-wyuxf/

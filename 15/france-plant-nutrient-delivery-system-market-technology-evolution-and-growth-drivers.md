@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-plant-nutrient-delivery-system-market-technology-evolution-rl7ef/

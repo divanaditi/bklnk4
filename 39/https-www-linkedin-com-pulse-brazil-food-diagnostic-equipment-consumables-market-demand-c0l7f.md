@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-food-diagnostic-equipment-consumables-market-demand-c0l7f/

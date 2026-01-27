@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-american-football-all-purpose-shoulderpads-market-4a9uf/

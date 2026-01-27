@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ethyl-lactate-semiconductors-market-0laif/

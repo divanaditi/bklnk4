@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-bands-market-technology-innovation-mtnpf/

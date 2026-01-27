@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-eto-manufacturing-software-market-segment-liccf/

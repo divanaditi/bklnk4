@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-dip-switches-professional-market-ycmcf/

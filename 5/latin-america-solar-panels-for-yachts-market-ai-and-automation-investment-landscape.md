@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-panels-yachts-market-ai-automation-e5vuc/

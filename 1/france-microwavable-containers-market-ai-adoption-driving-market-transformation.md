@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-microwavable-containers-market-ai-adoption-driving-hoztf/

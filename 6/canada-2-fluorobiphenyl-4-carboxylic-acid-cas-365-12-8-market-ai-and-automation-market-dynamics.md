@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-fluorobiphenyl-4-carboxylic-acid-1zbtf/

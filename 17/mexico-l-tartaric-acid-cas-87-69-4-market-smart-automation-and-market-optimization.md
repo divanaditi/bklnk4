@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-l-tartaric-acid-cas-87-69-4-market-smart-4xmec/

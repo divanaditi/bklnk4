@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gynecological-anatomical-market-technology-led-jiqic/

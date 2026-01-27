@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-american-football-youth-shoulder-pads-x1fdf/

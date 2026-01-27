@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fishfinders-market-demand-outlook-segment-growth-bglhf/

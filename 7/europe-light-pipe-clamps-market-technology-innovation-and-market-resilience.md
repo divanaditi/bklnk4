@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-light-pipe-clamps-market-technology-innovation-n5mkf/

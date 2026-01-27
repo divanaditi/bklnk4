@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-electronic-textiles-market-ai-driven-forecast-zdtve/

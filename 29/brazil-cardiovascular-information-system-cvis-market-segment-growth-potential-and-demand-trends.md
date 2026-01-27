@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cardiovascular-information-system-cvis-43uhc/

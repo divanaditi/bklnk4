@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-biometric-digital-door-lock-systems-he6wc/

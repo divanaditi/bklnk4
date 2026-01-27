@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pathogen-testing-market-growth-drivers-ztbtf/

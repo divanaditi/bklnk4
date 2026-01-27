@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ice-structuring-protein-isp-market-m4qhf/

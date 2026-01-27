@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-capacitor-tantalum-solid-axial-market-technology-1o7ff/

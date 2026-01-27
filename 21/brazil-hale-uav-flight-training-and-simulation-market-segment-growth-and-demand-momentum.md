@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hale-uav-flight-training-simulation-market-segment-vhymf/

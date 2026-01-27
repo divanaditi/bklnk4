@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shoelace-market-demand-supported-segment-7az5f/

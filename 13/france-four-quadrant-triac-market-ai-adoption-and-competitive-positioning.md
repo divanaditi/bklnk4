@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-four-quadrant-triac-market-ai-adoption-competitive-4ixhf/

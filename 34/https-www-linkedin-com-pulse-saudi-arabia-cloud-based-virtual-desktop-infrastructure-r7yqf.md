@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cloud-based-virtual-desktop-infrastructure-r7yqf/

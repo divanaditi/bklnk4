@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-phone-tracking-market-high-growth-segments-sdeaf/

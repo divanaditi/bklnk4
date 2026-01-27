@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-genetic-analyzer-market-demand-drivers-segment-mi6kc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-emergency-mass-notification-software-20irc/

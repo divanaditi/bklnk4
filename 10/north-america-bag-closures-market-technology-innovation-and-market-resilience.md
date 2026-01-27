@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-bag-closures-market-technology-e8hef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-n-246-trichlorophenylmaleimide-cas-13167-25-4-pmhkf/

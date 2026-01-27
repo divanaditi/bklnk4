@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-full-service-carrier-professional-market-intelligent-qso8f/

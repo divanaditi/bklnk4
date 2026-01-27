@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-building-automation-control-systems-bacs-4tlff/

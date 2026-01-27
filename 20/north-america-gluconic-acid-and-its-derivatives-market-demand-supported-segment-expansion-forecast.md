@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gluconic-acid-its-derivatives-market-zsttf/

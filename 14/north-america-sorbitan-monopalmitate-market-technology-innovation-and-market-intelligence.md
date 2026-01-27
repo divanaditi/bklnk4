@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-sorbitan-monopalmitate-market-technology-pnmgf/

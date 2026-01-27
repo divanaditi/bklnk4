@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-semiconductor-memory-professional-market-hadsc/

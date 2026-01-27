@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dental-phosphor-screen-scanners-market-high-growth-mckpf/

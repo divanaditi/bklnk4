@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gondola-market-demand-dynamics-7heqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-assistive-technologies-visually-0s3ef/

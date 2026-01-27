@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-china-data-center-physical-il33f/

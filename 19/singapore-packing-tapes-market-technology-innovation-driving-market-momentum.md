@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-packing-tapes-market-technology-innovation-driving-b7rne/

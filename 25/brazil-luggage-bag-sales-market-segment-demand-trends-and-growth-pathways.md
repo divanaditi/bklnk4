@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-luggage-bag-sales-market-segment-demand-trends-sdsaf/

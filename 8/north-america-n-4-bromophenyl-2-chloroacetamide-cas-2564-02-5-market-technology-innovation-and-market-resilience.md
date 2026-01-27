@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-n-4-bromophenyl-2-chloroacetamide-cas-5eadf/

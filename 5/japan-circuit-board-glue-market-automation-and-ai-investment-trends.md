@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-circuit-board-glue-market-automation-h3w4f/

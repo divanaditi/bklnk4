@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-golf-clothes-market-technology-resilience-ejmoc/

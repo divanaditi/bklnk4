@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-chloro-2-iodotetrafluoroethane-cas-421-78-3-zngsf/

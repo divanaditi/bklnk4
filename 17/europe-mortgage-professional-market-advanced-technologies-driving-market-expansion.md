@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mortgage-professional-market-advanced-qln5f/

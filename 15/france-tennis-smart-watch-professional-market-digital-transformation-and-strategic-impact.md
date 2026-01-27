@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-tennis-smart-watch-professional-market-digital-gj7uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-eco-friendly-vape-market-ai-adoption-competitive-sc4if/

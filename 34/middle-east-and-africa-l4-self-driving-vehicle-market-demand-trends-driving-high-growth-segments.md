@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-l4-self-driving-vehicle-market-fbu5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pipracil-cas-61477-96-1-market-smart-technologies-8jfef/

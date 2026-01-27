@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-garden-hoe-market-automation-digital-capabilities-znmtf/

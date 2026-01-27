@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-fluoro-3-trifluoromethylbenzophenone-cas-dtihc/

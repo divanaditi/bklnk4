@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-wi-fi-market-segment-growth-demand-dynamics-tcnof/

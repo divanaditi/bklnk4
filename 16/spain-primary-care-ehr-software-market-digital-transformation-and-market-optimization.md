@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-primary-care-ehr-software-market-digital-transformation-dcrmf/

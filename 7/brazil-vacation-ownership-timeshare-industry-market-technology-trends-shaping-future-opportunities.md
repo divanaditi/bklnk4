@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacation-ownership-timeshare-industry-market-p0xrf/

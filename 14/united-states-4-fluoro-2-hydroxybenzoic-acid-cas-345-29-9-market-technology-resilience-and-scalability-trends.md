@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-4-fluoro-2-hydroxybenzoic-acid-cas-345-29-9-u7xmc/

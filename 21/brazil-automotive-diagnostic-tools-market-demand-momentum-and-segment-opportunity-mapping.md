@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-diagnostic-tools-market-demand-momentum-wpzmf/

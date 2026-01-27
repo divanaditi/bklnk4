@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-inherent-life-jackets-market-demand-momentum-dii5e/

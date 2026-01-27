@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smartwatch-touch-screen-market-q86rf/

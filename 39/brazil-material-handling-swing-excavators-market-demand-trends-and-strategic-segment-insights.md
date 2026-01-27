@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-material-handling-swing-excavators-market-jqaof/

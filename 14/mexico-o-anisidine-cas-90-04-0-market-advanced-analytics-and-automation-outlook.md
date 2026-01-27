@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-o-anisidine-cas-90-04-0-market-advanced-analytics-a76qc/

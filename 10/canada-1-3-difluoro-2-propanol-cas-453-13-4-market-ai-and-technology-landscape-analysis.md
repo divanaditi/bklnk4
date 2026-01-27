@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-13-difluoro-2-propanol-cas-453-13-4-r3fqf/

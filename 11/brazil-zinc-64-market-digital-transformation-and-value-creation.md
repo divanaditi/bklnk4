@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zinc-64-market-digital-transformation-awpjc/

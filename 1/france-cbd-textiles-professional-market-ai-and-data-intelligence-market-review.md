@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cbd-textiles-professional-market-ai-data-intelligence-uwyuf/

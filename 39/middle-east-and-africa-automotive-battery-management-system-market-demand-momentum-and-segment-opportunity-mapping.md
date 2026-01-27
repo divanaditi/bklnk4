@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-battery-management-system-o3ksf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-non-silicon-thin-film-solar-cells-market-ai-data-andif/

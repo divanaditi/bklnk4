@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-infrared-scanners-market-smart-automation-8odvf/

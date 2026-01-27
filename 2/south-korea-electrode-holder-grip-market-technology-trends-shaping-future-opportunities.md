@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electrode-holder-grip-market-technology-qmvnc/

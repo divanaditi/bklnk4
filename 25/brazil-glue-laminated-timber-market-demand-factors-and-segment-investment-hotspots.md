@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-glue-laminated-timber-market-demand-factors-16mxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solid-state-output-switching-device-market-2vu8f/

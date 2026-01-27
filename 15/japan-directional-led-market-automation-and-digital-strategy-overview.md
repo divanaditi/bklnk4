@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-directional-led-market-automation-digital-pdz2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transformer-manufacturing-market-demand-patterns-95y7f/

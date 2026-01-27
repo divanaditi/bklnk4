@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-venue-operation-service-market-smart-technology-iawff/

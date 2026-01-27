@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tarpaulin-market-demand-evolution-segment-rmiif/

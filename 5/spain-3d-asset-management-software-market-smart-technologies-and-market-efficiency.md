@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-3d-asset-management-software-market-smart-technologies-he9mf/

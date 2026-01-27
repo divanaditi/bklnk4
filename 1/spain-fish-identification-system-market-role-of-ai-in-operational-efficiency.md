@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-fish-identification-system-market-role-ai-operational-ncedf/

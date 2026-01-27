@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-space-solution-market-demand-outlook-ixudf/

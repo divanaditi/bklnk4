@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-medium-heavy-plate-market-segment-demand-yswuf/

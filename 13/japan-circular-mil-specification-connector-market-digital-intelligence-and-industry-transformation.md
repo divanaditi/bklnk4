@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-circular-mil-specification-connector-market-digital-t3vef/

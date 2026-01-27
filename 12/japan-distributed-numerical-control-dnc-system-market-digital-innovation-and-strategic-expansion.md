@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-distributed-numerical-control-dnc-system-ip07f/

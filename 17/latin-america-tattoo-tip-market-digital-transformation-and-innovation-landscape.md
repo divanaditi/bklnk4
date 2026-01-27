@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tattoo-tip-market-digital-transformation-innovation-3h4kf/

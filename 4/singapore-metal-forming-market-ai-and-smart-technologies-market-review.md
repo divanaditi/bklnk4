@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metal-forming-market-ai-smart-technologies-804vc/

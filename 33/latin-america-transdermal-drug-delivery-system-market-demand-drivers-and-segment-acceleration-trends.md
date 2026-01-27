@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-transdermal-drug-delivery-system-market-ztbxe/

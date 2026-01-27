@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stun-gun-market-size-2026-bh24f/

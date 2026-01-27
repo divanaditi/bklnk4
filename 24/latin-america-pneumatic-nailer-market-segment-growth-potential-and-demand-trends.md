@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pneumatic-nailer-market-segment-growth-zne7c/

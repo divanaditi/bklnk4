@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vessel-sealing-market-demand-analysis-segment-owlxc/

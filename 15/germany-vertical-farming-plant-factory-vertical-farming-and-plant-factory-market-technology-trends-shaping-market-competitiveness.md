@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-vertical-farming-plant-factory-market-technology-pu8tf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-taekwondo-equipment-market-segment-level-6tqpf/

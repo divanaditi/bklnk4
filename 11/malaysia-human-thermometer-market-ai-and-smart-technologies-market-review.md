@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-human-thermometer-market-ai-smart-technologies-emp5f/

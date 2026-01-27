@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-specialty-tapes-market-demand-side-forces-segment-zokoe/

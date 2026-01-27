@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-truck-eps-market-automation-ai-impact-fhluf/

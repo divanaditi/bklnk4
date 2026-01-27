@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-floor-covering-market-ai-smart-technology-saqgf/

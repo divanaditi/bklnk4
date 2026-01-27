@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-vehicle-network-development-testing-o19qf/

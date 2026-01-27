@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bench-top-automated-biochemical-analyzers-mkfye/

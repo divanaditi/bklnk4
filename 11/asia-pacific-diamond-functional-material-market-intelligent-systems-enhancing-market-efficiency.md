@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-diamond-functional-material-market-intelligent-irs1f/

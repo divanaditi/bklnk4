@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-car-flooded-battery-market-demand-drivers-qed6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-needle-free-injection-device-market-ycz3e/

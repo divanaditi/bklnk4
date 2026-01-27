@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-top-companies-size-growth-2026-2032-qzmof/

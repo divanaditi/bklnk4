@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-telecommunications-tele-medicine-ptt-m-health-consumption-coe7f/

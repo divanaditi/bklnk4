@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-5-trifluoromethylbenzyl-alcohol-ldiic/

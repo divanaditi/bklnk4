@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ping-pong-robot-market-smart-automation-digital-3nidf/

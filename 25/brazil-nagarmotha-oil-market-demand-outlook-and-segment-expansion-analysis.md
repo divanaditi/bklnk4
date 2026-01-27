@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nagarmotha-oil-market-demand-outlook-43jff/

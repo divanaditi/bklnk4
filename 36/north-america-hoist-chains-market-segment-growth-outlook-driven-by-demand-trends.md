@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hoist-chains-market-segment-growth-outlook-aw72f/

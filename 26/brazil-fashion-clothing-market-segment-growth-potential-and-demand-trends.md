@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fashion-clothing-market-segment-growth-potential-iovhc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emea-yeast-extract-market-6n8bf/

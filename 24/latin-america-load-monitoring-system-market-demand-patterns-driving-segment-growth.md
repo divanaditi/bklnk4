@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-load-monitoring-system-market-demand-patterns-pc5qc/

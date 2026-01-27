@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-voice-employee-voe-software-professional-market-wsqyf/

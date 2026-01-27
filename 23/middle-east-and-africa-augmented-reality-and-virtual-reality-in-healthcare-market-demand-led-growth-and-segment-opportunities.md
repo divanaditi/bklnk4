@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-augmented-reality-virtual-healthcare-odrqf/

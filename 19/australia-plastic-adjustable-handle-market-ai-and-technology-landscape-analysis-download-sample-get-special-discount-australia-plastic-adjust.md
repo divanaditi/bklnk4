@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-plastic-adjustable-handle-market-ai-technology-uexbe/

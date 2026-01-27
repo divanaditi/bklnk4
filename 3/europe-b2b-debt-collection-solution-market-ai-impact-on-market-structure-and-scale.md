@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-b2b-debt-collection-solution-market-ai-impact-jcazf/

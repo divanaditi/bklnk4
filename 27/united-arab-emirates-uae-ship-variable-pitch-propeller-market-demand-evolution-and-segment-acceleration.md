@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-ship-variable-pitch-propeller-market-8urff/

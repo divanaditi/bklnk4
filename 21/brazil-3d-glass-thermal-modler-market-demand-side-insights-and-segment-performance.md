@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-3d-glass-thermal-modler-market-huz7f/

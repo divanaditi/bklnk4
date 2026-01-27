@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-optical-disc-drive-odd-market-ai-automation-bti9c/

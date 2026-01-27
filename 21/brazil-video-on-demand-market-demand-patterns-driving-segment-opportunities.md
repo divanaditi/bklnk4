@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-video-demand-market-patterns-driving-segment-5gvtf/

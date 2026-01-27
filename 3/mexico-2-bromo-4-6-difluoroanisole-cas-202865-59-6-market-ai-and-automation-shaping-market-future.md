@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-bromo-46-difluoroanisole-cas-202865-59-6-market-upo2f/

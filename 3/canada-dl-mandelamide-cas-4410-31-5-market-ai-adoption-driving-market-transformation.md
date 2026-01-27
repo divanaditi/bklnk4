@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dl-mandelamide-cas-4410-31-5-market-ai-adoption-lqahf/

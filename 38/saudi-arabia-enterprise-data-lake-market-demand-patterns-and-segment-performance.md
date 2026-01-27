@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-enterprise-data-lake-market-demand-patterns-ra4qc/

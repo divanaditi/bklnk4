@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-prefabricated-construction-market-demand-pkwef/

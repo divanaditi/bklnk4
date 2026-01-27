@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cruising-racing-sailboats-market-segment-7yxyc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-tele-dermatology-market-segment-growth-demand-ot9lf/

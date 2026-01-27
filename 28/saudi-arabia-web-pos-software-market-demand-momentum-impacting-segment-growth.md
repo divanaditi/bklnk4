@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-web-pos-software-market-demand-momentum-o5hxf/

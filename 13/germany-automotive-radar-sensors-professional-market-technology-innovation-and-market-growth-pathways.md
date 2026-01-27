@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-radar-sensors-professional-4lvhf/

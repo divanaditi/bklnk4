@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electric-trace-heating-market-demand-wv91f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearables-workforce-automation-market-demand-ihvgf/

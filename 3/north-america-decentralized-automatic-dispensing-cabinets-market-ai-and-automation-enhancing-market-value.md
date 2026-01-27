@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-decentralized-automatic-dispensing-cabinets-b6mcf/

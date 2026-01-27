@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-intelligent-solution-medical-field-0kjdf/

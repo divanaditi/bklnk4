@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-construction-textile-market-segment-growth-sgl0e/

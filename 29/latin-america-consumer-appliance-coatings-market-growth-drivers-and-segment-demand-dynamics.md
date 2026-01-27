@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-consumer-appliance-coatings-kdnkc/

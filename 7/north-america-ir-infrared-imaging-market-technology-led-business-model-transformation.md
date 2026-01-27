@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ir-infrared-imaging-market-technology-led-ns1of/

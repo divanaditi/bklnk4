@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-internet-things-iot-device-service-professional-edbff/

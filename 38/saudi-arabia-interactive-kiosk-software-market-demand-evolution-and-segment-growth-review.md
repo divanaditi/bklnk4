@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-interactive-kiosk-software-market-demand-u9hvc/

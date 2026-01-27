@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermostat-market-growth-drivers-segment-zpwnf/

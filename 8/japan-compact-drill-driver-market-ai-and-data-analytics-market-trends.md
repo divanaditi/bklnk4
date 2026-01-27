@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compact-drill-driver-market-ai-data-analytics-trends-4mgjf/

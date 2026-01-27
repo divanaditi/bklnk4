@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-hernia-lamp-market-digital-transformation-vdhof/

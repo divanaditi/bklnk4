@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-isothermal-bags-containers-market-segment-growth-wralf/

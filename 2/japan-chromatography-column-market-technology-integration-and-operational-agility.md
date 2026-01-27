@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chromatography-column-market-technology-rwfhc/

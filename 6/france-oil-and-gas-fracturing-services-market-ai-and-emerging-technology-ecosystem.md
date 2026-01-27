@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-oil-gas-fracturing-services-market-ai-emerging-tikkf/

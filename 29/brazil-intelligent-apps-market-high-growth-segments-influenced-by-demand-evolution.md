@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-intelligent-apps-market-high-growth-segments-influenced-64krf/

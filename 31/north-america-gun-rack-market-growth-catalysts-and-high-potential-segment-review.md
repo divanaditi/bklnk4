@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gun-rack-market-growth-catalysts-high-potential-fkp6f/

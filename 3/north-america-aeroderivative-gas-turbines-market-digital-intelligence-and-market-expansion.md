@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-aeroderivative-gas-turbines-market-digital-36qyf/

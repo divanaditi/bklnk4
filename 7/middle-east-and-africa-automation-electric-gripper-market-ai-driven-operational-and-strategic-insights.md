@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automation-electric-gripper-jbw4f/

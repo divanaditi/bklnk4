@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-information-kiosk-market-size-2026-rs8cc/

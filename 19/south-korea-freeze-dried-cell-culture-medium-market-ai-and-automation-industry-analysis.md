@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-freeze-dried-cell-culture-medium-market-ai-automation-jqpbf/

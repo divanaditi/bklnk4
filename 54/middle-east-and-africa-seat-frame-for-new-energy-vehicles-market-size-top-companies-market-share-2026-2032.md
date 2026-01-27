@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-seat-frame-new-energy-vehicles-wbaaf/

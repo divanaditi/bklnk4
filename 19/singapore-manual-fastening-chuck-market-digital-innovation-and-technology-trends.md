@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-manual-fastening-chuck-market-digital-innovation-hkj6e/

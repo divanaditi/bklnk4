@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-18650-rechargeable-lithium-battery-market-automation-ywg9f/

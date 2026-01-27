@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hazardous-area-sensors-market-demand-supported-7v89e/

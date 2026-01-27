@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-invoice-management-software-professional-market-gtzpc/

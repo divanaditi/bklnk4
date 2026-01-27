@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ba-bpo-market-demand-analysis-segment-kvqzf/

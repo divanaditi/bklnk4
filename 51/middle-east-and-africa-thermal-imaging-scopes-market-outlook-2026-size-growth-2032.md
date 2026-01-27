@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thermal-imaging-scopes-tb9lc/

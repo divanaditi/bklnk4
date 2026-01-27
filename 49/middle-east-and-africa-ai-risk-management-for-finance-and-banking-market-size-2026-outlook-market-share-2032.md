@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ai-risk-management-mn1if/

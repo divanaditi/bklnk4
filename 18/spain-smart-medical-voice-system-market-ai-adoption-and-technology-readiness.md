@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-medical-voice-system-market-ai-adoption-gjvrf/

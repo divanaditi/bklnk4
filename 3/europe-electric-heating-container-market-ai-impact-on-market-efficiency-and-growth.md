@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electric-heating-container-market-ai-impact-dvvdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-retractable-awnings-market-size-q1hdc/

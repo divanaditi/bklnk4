@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-water-quality-sensor-agriculture-market-pmo3e/

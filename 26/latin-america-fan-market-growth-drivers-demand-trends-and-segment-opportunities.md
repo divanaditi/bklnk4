@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fan-market-growth-drivers-demand-trends-mfnyc/

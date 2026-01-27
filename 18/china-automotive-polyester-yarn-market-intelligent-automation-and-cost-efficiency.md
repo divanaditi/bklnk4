@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automotive-polyester-yarn-market-intelligent-automation-aricf/

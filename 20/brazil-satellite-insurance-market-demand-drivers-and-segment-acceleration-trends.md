@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-satellite-insurance-market-demand-drivers-krtkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-positive-temperature-coefficient-ptc-market-z9evf/

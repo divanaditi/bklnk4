@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pan-tilt-zoom-cameras-market-demand-dynamics-2mgxf/

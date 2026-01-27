@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-emergency-external-defibrillators-market-kkzdc/

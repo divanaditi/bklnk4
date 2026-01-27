@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-inspection-machines-market-segment-demand-trends-c0tpf/

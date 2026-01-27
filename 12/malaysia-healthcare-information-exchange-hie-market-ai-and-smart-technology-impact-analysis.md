@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-healthcare-information-exchange-hie-market-ai-smart-fcwzf/

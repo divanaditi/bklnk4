@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-visitor-management-software-market-d76uc/

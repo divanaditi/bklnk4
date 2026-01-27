@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-long-range-electric-vehicle-market-1inrc/

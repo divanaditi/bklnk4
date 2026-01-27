@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-credit-rating-module-software-market-technology-kfnpf/

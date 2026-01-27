@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-glue-applied-labels-market-technology-zn46f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bar-chairs-market-segment-growth-potential-emklf/

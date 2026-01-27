@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-business-outcome-driven-enterprise-4rhcc/

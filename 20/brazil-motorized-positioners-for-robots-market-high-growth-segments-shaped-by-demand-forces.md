@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-motorized-positioners-robots-market-jwt6f/

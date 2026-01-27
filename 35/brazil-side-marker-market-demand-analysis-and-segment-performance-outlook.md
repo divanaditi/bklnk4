@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-side-marker-market-demand-analysis-segment-iwmjf/

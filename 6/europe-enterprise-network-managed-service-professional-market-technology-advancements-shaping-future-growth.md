@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-enterprise-network-managed-service-ob1ff/

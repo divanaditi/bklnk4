@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dental-tools-equipment-market-demand-smwrf/

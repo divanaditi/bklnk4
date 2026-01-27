@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-tattoo-removal-machines-market-growth-drivers-d3s9f/

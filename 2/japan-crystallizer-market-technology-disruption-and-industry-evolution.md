@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crystallizer-market-technology-disruption-by13c/

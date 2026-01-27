@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-portable-fan-market-demand-drivers-high-growth-okokf/

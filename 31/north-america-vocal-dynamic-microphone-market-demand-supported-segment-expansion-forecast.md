@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-vocal-dynamic-microphone-market-demand-supported-rntmf/

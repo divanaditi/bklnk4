@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-variable-frequency-speed-drives-market-ai-vxj3c/

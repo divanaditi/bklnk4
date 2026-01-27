@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-glass-facade-systems-market-intelligent-automation-szzpf/

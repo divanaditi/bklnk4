@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-functional-safety-market-demand-trends-5y2bf/

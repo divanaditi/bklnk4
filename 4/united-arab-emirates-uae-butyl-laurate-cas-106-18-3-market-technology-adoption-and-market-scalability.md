@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-butyl-laurate-cas-106-18-3-market-pgwif/

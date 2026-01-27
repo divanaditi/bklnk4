@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-galectin-3-market-size-share-industry-rqccf/

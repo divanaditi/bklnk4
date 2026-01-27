@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-supply-chain-risk-management-market-aufof/

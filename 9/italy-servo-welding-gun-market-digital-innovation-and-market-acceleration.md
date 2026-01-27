@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-servo-welding-gun-market-digital-innovation-rdqzf/

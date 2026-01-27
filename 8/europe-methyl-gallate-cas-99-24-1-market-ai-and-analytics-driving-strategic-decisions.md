@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-methyl-gallate-cas-99-24-1-market-ai-analytics-nxo1f/

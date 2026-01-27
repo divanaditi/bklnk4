@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-price-comparison-website-pcw-professional-market-ai-tkqcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-suv-pickup-power-window-motor-market-z0yrf/

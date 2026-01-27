@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-diethyl-35-di-tert-butyl-4-hydroxybenzyl-aj86f/

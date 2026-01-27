@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-emg-equipment-market-demand-outlook-high-growth-ugxec/

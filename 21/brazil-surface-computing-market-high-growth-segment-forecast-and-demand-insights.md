@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-surface-computing-market-high-growth-segment-edlxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-outdoor-automatic-stairlift-market-3vrnf/

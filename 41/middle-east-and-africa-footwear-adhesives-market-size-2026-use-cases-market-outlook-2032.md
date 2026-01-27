@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-footwear-adhesives-market-size-dt8wf/

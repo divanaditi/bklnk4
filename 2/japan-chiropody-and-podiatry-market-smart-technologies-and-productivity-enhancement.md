@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chiropody-podiatry-market-smart-technologies-p7trc/

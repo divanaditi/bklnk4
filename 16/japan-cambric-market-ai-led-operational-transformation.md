@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cambric-market-ai-led-operational-transformation-8wxef/

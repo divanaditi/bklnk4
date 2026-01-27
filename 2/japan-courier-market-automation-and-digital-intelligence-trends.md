@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-courier-market-automation-digital-intelligence-z7a9c/

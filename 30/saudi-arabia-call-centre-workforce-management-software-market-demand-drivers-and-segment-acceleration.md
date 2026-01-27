@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-call-centre-workforce-management-software-ablwf/

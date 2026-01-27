@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lockstitch-machine-market-high-growth-8yf6f/

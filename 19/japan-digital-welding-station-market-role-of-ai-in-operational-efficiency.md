@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-welding-station-market-role-ai-operational-efficiency-ollxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wire-winding-inductors-professional-market-v6tff/

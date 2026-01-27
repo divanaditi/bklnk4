@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bt-substrate-market-size-2026-a5u7f/

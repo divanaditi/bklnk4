@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-access-home-network-market-automation-hduzf/

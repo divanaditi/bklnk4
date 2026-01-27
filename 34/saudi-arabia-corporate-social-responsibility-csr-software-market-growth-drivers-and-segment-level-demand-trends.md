@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-corporate-social-responsibility-csr-a9l9f/

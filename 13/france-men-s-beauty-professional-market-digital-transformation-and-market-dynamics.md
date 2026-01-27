@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mens-beauty-professional-market-digital-transformation-e4mjf/

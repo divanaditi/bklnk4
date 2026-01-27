@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-food-protein-market-segment-growth-demand-side-po7uf/

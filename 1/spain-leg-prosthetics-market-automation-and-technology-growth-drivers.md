@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-leg-prosthetics-market-automation-3rj8f/

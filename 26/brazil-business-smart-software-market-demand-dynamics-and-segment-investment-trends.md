@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-business-smart-software-market-demand-dynamics-hhfnc/

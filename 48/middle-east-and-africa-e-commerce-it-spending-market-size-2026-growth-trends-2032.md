@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-e-commerce-spending-market-size-brw9f/

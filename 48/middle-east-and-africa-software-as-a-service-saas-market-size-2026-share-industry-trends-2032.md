@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-software-as-a-service-saas-market-xticf/

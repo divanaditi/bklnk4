@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vehicle-mount-terminal-market-xhevc/

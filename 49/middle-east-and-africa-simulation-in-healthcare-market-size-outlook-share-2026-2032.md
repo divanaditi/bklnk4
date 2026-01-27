@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-simulation-healthcare-market-size-outlook-apb3f/

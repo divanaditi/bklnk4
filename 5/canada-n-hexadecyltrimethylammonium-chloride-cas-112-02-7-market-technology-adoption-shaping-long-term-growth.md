@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-n-hexadecyltrimethylammonium-chloride-cas-ueupf/

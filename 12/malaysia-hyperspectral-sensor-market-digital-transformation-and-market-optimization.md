@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hyperspectral-sensor-market-digital-i5htf/

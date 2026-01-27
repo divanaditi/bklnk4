@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-transportable-scooters-8x55f/

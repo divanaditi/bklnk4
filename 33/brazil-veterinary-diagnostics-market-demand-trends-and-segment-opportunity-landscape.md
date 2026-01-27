@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-veterinary-diagnostics-market-demand-trends-wfbte/

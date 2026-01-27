@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-35-difluorocinnamic-acid-cas-84315-23-1-market-beqxf/

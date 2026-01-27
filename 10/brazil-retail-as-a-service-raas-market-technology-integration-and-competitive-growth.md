@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-retail-as-a-service-raas-market-technology-integration-rl5uf/

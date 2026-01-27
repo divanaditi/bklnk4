@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-van-avn-market-demand-indicators-cimrf/

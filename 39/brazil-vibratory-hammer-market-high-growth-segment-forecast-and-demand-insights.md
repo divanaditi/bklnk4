@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vibratory-hammer-market-high-growth-segment-hxrxf/

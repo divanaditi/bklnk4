@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-employee-training-software-market-3h2lf/

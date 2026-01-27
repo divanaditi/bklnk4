@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-b2c-payment-market-size-ecosystem-prqxf/

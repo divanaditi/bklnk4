@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-surface-field-analytics-market-ai-led-digital-3lx5f/

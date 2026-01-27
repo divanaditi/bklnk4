@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-platinumiv-oxide-cas-52785-06-5-market-trq8f/

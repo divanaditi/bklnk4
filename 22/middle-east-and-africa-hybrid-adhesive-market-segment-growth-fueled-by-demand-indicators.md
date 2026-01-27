@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hybrid-adhesive-market-segment-02vmf/

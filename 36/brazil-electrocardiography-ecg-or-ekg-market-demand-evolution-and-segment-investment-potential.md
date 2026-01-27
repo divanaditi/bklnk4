@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrocardiography-ecg-ekg-market-demand-nnkuf/

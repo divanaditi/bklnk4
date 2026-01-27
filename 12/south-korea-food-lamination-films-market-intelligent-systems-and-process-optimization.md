@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-lamination-films-market-intelligent-systems-g0mrf/

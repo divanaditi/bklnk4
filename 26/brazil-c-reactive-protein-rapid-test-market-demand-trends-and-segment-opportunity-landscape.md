@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-c-reactive-protein-rapid-test-market-demand-doyoc/

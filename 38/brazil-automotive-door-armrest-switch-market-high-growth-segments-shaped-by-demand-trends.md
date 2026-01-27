@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-door-armrest-switch-market-high-growth-mwsnf/

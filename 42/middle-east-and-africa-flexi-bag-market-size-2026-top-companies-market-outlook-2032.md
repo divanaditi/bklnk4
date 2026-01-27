@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flexi-bag-market-size-2026-top-companies-ayqpc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-plywood-adhesives-market-ai-enabled-vuyof/

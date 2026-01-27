@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-patient-handling-equipment-market-demand-analysis-wgv8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-machine-vision-guided-robotics-market-itr7f/

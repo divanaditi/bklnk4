@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-virtual-welding-simulator-market-ai-automation-enhancing-v8rkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-pcie-cxl-based-memory-disaggregation-ufgrc/

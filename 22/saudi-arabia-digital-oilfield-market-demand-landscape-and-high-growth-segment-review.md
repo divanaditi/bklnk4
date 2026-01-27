@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-digital-oilfield-market-demand-landscape-euzsf/

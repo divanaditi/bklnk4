@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-emulsion-coatings-market-growth-drivers-segment-bw94f/

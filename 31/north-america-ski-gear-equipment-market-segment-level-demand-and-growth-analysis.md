@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ski-gear-equipment-market-segment-level-q2vaf/

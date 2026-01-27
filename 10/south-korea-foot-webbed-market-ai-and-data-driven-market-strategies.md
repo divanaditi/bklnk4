@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-foot-webbed-market-ai-data-driven-strategies-d1qtf/

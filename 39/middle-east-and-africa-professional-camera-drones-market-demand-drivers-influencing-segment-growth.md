@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-professional-camera-drones-market-demand-vuvyf/

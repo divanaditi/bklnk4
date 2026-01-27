@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-24-difluorophenol-cas-367-27-1-market-gexyf/

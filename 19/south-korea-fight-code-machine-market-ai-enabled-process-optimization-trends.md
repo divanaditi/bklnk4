@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fight-code-machine-market-ai-enabled-3mgsf/

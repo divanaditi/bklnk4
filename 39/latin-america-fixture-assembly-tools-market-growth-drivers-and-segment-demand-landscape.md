@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixture-assembly-tools-market-growth-i4vqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-electric-golf-scooter-market-digital-transformation-edrrf/

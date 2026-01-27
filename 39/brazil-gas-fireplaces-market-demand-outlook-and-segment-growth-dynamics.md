@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gas-fireplaces-market-demand-outlook-segment-b0zef/

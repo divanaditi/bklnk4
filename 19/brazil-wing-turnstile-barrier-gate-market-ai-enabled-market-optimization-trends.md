@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wing-turnstile-barrier-gate-market-ai-enabled-yl6be/

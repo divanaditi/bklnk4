@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-seal-component-market-demand-forces-pzref/

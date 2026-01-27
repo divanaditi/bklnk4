@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-semiconductor-timing-ics-market-qon1f/

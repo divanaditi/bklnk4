@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-intelligent-computing-market-ev46e/

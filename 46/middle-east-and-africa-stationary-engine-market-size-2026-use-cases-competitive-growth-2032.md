@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stationary-engine-market-size-s42jf/

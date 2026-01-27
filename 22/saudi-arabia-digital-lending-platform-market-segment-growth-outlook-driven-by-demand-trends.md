@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-digital-lending-platform-market-segment-w2yhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-crystalline-silicon-pv-cell-market-ai-digital-1mt3f/

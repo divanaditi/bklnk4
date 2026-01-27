@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-playing-cards-professional-market-technology-355mf/

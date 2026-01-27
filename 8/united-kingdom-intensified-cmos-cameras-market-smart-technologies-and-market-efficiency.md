@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-intensified-cmos-cameras-market-xnn2f/

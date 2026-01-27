@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-subsea-pipeline-jumpers-market-segment-itlpc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-battery-management-service-market-technology-vujlf/

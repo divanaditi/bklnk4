@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-kelvin-probe-market-ai-adoption-competitive-qxopf/

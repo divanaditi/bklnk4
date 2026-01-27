@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-doctor-blade-market-demand-analysis-yh8if/

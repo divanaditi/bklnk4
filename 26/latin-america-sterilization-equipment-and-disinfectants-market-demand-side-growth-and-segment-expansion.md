@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sterilization-equipment-disinfectants-me5dc/

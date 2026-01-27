@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-roaming-tariff-market-size-apr2f/

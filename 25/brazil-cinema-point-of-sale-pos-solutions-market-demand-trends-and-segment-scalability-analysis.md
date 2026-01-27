@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cinema-point-sale-pos-solutions-market-demand-3oiaf/

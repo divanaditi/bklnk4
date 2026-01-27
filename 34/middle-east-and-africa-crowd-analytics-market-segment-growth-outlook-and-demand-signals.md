@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-crowd-analytics-market-segment-growth-rvf1f/

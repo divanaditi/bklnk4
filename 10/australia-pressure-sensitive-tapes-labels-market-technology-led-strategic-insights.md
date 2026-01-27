@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pressure-sensitive-tapes-labels-market-s3kcf/

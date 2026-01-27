@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-embedded-computing-module-market-automation-zjsvf/

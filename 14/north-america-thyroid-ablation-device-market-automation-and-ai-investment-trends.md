@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thyroid-ablation-device-market-automation-d3vyc/

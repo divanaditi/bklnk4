@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-autoinjectors-market-size-share-industry-x5iaf/

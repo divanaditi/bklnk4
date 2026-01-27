@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fuselage-attachments-market-ai-driven-mxrrf/

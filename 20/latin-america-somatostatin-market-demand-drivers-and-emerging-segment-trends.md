@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-somatostatin-market-demand-drivers-emerging-c4ulf/

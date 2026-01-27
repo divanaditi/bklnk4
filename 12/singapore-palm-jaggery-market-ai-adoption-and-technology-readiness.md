@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-palm-jaggery-market-ai-adoption-technology-ftn0f/

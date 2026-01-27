@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bopp-heat-shrinkable-film-market-technology-hff9f/

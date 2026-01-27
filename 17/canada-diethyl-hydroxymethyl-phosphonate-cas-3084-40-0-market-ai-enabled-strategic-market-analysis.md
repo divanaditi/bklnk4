@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diethyl-hydroxymethylphosphonate-cas-3084-40-0-6w5wc/

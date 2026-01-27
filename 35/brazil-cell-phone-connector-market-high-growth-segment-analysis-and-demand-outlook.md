@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cell-phone-connector-market-high-growth-segment-f3atf/

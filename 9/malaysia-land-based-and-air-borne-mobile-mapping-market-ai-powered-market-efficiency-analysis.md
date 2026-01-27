@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-land-based-air-borne-mobile-mapping-olk4f/

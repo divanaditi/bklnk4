@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-risk-financial-advisory-services-market-ai-led-operational-vv2kf/

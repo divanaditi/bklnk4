@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-skin-laser-treatment-device-market-ai-unhaf/

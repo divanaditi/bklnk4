@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-echo-type-diagnostic-ultrasound-devices-market-iyxuf/

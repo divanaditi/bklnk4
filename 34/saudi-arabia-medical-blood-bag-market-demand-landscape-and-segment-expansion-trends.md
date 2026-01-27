@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-medical-blood-bag-market-demand-ej4of/

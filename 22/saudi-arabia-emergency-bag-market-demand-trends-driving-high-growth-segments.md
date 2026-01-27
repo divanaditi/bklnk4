@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-emergency-bag-market-demand-trends-xvfcf/

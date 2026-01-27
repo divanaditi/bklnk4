@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-secure-element-market-size-z7bsf/

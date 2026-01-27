@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ultrasound-probe-guide-needle-market-ai-enabled-1xw0f/

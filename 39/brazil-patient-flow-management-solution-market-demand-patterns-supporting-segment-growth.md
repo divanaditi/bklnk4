@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-patient-flow-management-solution-market-demand-patterns-cccnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-celestine-blue-cas-1562-90-9-market-technology-tuodf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-robot-management-platform-market-intelligent-won7f/

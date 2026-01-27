@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-usb-flash-drive-professional-market-automation-uxs4f/

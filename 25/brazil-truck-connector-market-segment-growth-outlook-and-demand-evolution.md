@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-truck-connector-market-segment-growth-outlook-fo4af/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-zero-trust-access-control-system-bohrf/

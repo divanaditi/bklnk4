@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-commercial-corporate-card-market-ai-driven-ffolf/

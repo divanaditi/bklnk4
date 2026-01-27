@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-futsal-market-ai-driven-optimization-msaoc/

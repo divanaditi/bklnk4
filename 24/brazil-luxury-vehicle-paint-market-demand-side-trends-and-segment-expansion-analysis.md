@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-luxury-vehicle-paint-market-demand-side-b3mqf/

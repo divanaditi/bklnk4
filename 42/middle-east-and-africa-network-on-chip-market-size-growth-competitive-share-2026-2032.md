@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-network-chip-market-size-growth-9d5df/

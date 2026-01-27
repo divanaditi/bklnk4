@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pressure-sensitive-adhesives-market-demand-forces-m12ef/

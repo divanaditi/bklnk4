@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-childrenands-outdoor-swing-market-ai-smart-0rhuf/

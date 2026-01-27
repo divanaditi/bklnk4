@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hardware-otp-token-authentication-market-growth-du2uc/

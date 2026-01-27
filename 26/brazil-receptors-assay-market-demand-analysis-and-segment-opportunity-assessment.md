@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-receptors-assay-market-demand-analysis-fcrjc/

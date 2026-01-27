@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-magnetic-ring-cross-flow-fan-cdbhf/

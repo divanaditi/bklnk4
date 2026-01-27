@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-real-estate-investment-solution-market-demand-f5c1f/

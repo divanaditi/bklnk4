@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-film-permeability-testers-market-demand-patterns-6f5xf/

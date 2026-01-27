@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-rosin-resin-market-high-growth-gljvf/

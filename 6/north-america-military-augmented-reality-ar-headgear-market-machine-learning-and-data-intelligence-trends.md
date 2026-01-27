@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-military-augmented-reality-ar-qcudf/

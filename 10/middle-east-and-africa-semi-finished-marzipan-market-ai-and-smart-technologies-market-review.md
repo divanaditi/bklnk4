@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-semi-finished-marzipan-market-ai-eg2kf/

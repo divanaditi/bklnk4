@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-veterinary-ultrasonic-scalpel-market-epotf/

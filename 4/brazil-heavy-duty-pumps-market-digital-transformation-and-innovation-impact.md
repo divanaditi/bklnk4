@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heavy-duty-pumps-market-digital-transformation-u9evf/

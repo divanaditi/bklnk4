@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mobile-field-hospitals-market-demand-led-rhjvf/

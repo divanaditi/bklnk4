@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-disposable-medical-electrodes-market-demand-kp6qc/

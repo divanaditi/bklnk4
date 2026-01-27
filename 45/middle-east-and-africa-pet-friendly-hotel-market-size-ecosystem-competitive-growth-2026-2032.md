@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pet-friendly-hotel-market-size-ya2df/

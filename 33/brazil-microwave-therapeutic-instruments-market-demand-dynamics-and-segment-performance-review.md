@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-microwave-therapeutic-instruments-market-5hrme/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-nonenylsuccinic-anhydride-cas-28928-97-4-market-pqcof/

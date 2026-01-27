@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-hollow-shaft-pmsm-market-digital-infrastructure-wwunf/

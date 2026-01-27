@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-simple-programmable-logic-devices-spld-os1gc/

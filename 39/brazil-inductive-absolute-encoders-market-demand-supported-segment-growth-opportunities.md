@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-inductive-absolute-encoders-market-demand-supported-axdlf/

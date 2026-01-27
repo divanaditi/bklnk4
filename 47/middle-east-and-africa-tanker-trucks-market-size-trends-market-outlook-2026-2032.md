@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tanker-trucks-market-size-nem5f/

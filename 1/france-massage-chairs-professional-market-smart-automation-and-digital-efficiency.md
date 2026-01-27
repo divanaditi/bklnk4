@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-massage-chairs-professional-market-smart-automation-yw6wf/

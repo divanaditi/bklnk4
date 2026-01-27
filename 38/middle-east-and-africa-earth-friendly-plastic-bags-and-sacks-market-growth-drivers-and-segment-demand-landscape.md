@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-earth-friendly-plastic-bags-dv8ec/

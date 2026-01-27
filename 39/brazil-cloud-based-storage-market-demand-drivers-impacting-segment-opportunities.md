@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-based-storage-market-demand-drivers-impacting-hrkrf/

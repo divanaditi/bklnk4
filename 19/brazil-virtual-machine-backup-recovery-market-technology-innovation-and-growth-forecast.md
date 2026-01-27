@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-virtual-machine-backup-recovery-market-technology-innovation-bdxge/

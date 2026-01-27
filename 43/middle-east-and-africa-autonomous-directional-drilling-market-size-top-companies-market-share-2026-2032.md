@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-autonomous-directional-drilling-52swf/

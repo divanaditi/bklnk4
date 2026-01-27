@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-factoring-market-high-growth-segments-demand-afbxf/

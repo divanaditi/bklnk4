@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-beverage-encapsulation-market-wszbc/

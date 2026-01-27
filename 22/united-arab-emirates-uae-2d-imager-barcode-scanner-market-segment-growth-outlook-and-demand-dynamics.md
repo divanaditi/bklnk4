@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-2d-imager-barcode-scanner-market-c4v4f/

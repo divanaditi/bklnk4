@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hands-free-power-liftgate-market-0au3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-inductor-market-technology-trends-driving-7d67f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-left-handed-inswing-commercial-h1syf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fat-market-growth-drivers-segment-demand-3nquf/

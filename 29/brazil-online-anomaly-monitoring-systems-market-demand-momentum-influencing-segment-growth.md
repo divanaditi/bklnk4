@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-online-anomaly-monitoring-systems-market-demand-qwshf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medical-carts-workstations-market-size-yxzlf/

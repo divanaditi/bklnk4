@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-adhesive-market-growth-drivers-1fxlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-outdoor-payment-terminal-c0vic/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-kraft-paper-tape-market-growth-9amwf/

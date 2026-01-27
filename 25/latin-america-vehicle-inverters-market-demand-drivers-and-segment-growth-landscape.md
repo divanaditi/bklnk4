@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vehicle-inverters-market-demand-drivers-jv3lc/

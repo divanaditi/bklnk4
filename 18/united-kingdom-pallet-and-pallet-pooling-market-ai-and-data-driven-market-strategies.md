@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-pallet-pooling-market-ai-data-driven-strategies-vjmmf/

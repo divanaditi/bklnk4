@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-guest-wi-fi-providers-professional-market-ai-kbx6c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gypsum-board-wall-market-demand-dynamics-zvsnf/

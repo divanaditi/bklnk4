@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-p2p-fundraising-tool-market-demand-drivers-p6wvc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-retail-furniture-market-demand-patterns-0qb7f/

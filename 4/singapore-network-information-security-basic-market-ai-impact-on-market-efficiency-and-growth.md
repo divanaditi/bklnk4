@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-network-information-security-basic-market-ai-1kodc/

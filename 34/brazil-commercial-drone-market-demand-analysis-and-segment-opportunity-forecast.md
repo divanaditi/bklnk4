@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-drone-market-demand-analysis-segment-oujgf/

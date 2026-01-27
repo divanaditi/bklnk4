@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-kettle-heating-elements-market-demand-147of/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-airport-usb-charging-stations-market-demand-analysis-pcyvf/

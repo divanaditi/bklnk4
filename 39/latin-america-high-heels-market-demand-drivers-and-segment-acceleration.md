@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-high-heels-market-demand-drivers-segment-xmd0f/

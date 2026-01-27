@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-iodine-pentafluoride-if5-market-demand-nehnf/

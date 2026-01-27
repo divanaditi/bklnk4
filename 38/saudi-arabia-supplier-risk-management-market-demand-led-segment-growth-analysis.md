@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-supplier-risk-management-market-demand-led-0qpyc/

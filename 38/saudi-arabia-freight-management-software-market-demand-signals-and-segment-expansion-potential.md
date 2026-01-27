@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-freight-management-software-market-demand-dhsxf/

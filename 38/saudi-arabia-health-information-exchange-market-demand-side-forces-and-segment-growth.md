@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-health-information-exchange-market-r4eqc/

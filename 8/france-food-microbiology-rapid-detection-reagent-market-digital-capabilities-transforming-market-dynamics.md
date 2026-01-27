@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-food-microbiology-rapid-detection-reagent-ocsmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-microneedling-devices-professional-market-digital-eplzc/

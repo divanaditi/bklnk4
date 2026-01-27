@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pay-tv-services-market-high-growth-segments-7zwsf/

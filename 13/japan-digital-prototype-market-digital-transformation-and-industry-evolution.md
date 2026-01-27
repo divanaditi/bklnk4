@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-prototype-market-transformation-industry-7iuff/

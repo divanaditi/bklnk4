@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pads-market-segment-level-demand-growth-ueomf/

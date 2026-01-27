@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-1-hydroxy-1-cyclohexanecarbonitrile-cas-931-97-5-inlhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oscillating-plough-market-advanced-analytics-bauyf/

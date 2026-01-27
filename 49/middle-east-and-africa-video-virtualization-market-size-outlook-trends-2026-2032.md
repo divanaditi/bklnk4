@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-video-virtualization-market-size-outlook-1g2df/

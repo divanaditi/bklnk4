@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-intraoral-scanners-digital-impressions-market-r9wgc/

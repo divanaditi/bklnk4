@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-tetrahydrofurfuryl-alcohol-cas-97-99-4-1fwac/

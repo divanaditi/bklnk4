@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-visual-novel-market-size-2026-st1cf/

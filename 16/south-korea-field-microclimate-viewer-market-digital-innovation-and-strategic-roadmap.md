@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-field-microclimate-viewer-market-digital-e7erf/

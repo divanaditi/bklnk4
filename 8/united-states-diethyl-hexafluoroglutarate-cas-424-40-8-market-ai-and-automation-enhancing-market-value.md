@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-diethyl-hexafluoroglutarate-cas-424-40-8-1ypjf/

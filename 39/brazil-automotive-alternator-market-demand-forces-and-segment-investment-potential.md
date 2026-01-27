@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-alternator-market-demand-forces-llmcf/

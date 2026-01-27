@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drywall-building-plaster-market-demand-534kf/

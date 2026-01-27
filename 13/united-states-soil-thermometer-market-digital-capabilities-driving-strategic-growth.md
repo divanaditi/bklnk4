@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-soil-thermometer-market-digital-capabilities-gnrxc/

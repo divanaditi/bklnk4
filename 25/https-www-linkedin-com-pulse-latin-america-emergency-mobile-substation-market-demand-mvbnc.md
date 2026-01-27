@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-emergency-mobile-substation-market-demand-mvbnc/

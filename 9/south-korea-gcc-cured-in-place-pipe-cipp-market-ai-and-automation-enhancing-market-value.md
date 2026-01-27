@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-cured-in-place-pipe-cipp-market-rdanf/

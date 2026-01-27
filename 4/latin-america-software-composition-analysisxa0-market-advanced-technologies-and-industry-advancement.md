@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-software-composition-analysisxa0-market-advanced-zneff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-application-modernization-systems-tauyf/

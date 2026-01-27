@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thin-film-solar-pv-market-ai-powered-oxcsf/

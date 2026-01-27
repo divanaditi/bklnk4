@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-christmas-trees-decorations-market-ai-adoption-yutmf/

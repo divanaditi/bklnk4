@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-contract-logistics-warehousing-market-technology-gys8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-ecg-monitor-market-demand-qvfec/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-hair-fragrance-professional-market-ai-2rvtc/

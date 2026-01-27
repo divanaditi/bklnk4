@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-data-privacy-consulting-zq1ic/

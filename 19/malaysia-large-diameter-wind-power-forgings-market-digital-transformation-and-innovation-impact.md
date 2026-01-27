@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-large-diameter-wind-power-forgings-market-t4zfe/

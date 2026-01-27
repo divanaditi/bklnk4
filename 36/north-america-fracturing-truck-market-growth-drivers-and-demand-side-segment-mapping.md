@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fracturing-truck-market-growth-drivers-kqd4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-passive-thermoregulated-shipment-professional-t5vzc/

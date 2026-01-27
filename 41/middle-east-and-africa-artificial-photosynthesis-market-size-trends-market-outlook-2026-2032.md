@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-artificial-photosynthesis-market-wt9jf/

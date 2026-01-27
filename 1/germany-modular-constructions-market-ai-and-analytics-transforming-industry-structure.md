@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-modular-constructions-market-ai-analytics-a69wf/

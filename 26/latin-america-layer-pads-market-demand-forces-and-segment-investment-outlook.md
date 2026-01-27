@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-layer-pads-market-demand-forces-zmpqc/

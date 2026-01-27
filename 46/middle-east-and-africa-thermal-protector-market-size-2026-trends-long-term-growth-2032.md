@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thermal-protector-market-size-2026-mpaaf/

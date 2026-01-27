@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-flexible-coupler-market-technology-integration-bgj4f/

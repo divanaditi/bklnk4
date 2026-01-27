@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-subscription-management-software-market-5pxrc/

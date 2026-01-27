@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pu-microfiber-leather-market-demand-cey7f/

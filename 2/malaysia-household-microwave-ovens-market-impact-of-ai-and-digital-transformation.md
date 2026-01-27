@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-household-microwave-ovens-market-impact-cc86c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-low-bandwidth-optical-detector-market-technology-8xtrf/

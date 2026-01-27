@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-refrigerated-display-cases-glasses-market-ghqrf/

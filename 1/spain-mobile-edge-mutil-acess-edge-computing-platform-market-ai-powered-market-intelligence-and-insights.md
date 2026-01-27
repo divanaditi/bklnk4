@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mobile-edge-mutil-acess-computing-platform-xkcef/

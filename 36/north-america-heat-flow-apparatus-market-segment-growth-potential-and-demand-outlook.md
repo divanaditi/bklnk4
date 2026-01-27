@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heat-flow-apparatus-market-segment-f2cmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cooling-tower-market-size-share-gtm8f/

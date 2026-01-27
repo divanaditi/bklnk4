@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-motor-driven-fan-market-ai-automation-investment-nu5kf/

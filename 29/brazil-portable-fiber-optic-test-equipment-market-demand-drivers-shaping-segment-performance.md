@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-fiber-optic-test-equipment-market-kgk3f/

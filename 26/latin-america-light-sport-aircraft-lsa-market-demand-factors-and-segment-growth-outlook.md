@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-light-sport-aircraft-lsa-market-0ux3c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-isopropyl-4-nitrobenzene-cas-1817-47-6-oobmf/

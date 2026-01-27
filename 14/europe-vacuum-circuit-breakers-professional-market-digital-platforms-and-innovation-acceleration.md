@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-vacuum-circuit-breakers-professional-market-h6oqc/

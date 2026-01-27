@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cybe-insurance-market-automation-ai-investment-i7i7f/

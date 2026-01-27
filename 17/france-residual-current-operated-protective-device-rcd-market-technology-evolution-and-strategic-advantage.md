@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-residual-current-operated-protective-devicercd-n6bcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-cold-insulation-materials-market-sceyf/

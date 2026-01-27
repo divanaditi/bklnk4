@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-monochrome-electronic-paper-module-market-iwuhf/

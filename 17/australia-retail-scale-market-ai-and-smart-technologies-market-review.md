@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-retail-scale-market-ai-smart-technologies-8fzdf/

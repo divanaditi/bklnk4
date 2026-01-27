@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-autonomous-vehicles-adas-t0j5f/

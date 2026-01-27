@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-folding-shopping-trolley-market-j3aqf/

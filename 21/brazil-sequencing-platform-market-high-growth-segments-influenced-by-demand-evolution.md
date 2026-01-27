@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sequencing-platform-market-high-growth-iojuf/

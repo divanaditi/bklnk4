@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-payment-market-demand-forces-zn0rf/

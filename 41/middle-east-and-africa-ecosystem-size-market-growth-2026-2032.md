@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ecosystem-size-market-growth-2026-2032-okb3f/

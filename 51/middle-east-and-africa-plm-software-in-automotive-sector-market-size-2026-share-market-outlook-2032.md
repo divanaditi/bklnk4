@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-plm-software-automotive-yhfjc/

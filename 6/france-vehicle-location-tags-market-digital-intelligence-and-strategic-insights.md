@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vehicle-location-tags-market-digital-lyz9f/

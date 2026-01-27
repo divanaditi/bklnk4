@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-single-lead-ecg-equipment-qm4kf/

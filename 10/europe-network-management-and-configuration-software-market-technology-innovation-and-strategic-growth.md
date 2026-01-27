@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-network-management-configuration-software-j0avf/

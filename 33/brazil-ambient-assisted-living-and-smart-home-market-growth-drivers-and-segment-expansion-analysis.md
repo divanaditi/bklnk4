@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ambient-assisted-living-smart-home-market-umz2e/

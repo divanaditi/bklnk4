@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-micro-ct-scanners-professional-market-intelligent-ntpmf/

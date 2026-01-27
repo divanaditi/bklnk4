@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-foundry-forging-robots-market-demand-bwcff/

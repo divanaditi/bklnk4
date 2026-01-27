@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-floating-rigs-market-digital-ibonf/

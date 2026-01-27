@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-metal-detectors-sales-market-digital-hqxpe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-industrial-wireless-automation-market-9v6df/

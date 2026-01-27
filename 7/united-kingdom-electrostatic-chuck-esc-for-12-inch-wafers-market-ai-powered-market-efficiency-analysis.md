@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-electrostatic-chuck-esc-12-inch-3eibf/

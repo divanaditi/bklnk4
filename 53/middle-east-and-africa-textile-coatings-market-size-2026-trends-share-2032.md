@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-textile-coatings-market-size-2026-cq5rf/

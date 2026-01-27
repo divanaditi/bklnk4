@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-textile-printer-market-technology-led-ygsrc/

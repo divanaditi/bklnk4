@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-neutral-certification-market-ai-technology-n7hkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-photographic-photocopying-equipment-market-demand-ctkaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-assistive-technologies-demand-visually-impaired-lr1gf/

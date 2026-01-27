@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-analog-integrated-circuits-market-segment-level-demand-fkcff/

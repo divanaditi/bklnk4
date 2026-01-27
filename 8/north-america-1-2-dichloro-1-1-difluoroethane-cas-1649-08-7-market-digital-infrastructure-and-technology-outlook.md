@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-12-dichloro-11-difluoroethane-cas-1649-08-7-tzqkf/

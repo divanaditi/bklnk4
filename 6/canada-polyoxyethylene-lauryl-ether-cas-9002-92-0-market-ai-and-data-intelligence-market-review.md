@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-polyoxyethylene-lauryl-ether-cas-9002-92-0-u4adf/

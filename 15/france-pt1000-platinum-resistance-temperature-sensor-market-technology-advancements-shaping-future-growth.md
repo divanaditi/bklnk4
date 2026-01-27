@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pt1000-platinum-resistance-temperature-sensor-qkhwf/

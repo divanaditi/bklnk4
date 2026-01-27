@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-compact-clam-shell-heat-press-market-technology-mzsdf/

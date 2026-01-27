@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-3-4-methoxyphenyl-1h-pyrazole-4-carbaldehyde-57hof/

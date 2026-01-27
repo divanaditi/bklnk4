@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-voltage-switch-type-spd-market-drclf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-acrylic-silicone-polyurethane-hybrid-conformal-coating-w9dpf/

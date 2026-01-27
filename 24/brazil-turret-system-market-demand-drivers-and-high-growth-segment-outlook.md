@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-turret-system-market-demand-drivers-3sggf/

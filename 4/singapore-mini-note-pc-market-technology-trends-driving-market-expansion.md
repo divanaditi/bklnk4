@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mini-note-pc-market-technology-trends-driving-nnlyc/

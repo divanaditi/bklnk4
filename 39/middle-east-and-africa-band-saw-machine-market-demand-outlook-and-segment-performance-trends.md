@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-band-saw-machine-market-demand-0zfvf/

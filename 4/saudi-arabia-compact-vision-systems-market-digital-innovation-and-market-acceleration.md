@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-compact-vision-systems-market-digital-9sysf/

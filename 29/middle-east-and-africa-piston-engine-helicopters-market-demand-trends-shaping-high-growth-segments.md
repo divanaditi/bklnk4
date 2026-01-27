@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-piston-engine-helicopters-r1ymf/

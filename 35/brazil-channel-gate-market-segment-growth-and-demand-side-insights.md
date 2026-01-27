@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-channel-gate-market-segment-growth-26nnf/

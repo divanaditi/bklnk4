@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-weighing-system-market-technology-trends-pvzgc/

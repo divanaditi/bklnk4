@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cr-doped-barium-strontium-titanate-ceramic-cnzqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-visual-surface-defect-detection-equipment-market-ai-7gfrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-touch-screen-gloves-market-demand-forces-ygwuf/

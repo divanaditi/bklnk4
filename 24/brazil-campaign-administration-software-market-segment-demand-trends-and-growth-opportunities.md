@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-campaign-administration-software-market-segment-pjtef/

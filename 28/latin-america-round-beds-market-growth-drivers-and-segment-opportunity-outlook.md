@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-round-beds-market-growth-8jzmc/

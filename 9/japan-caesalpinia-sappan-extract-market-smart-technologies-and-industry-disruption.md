@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-caesalpinia-sappan-extract-market-smart-technologies-m06vf/

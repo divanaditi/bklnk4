@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-general-transportation-market-demand-drivers-e4awf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medium-heavy-duty-truck-market-afgkf/

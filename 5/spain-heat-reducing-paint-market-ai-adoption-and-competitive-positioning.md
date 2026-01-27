@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-heat-reducing-paint-market-ai-adoption-competitive-jdadf/

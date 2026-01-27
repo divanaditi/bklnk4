@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-high-temperature-resistant-%CE%B1-amylase-5g8bf/

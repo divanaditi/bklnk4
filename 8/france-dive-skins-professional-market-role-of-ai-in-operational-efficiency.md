@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-dive-skins-professional-market-role-ai-operational-wzzff/

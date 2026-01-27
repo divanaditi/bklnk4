@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-biaxially-oriented-polyester-film-ewk3f/

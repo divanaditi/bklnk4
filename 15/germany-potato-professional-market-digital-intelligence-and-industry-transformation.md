@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-potato-professional-market-digital-intelligence-n9bof/

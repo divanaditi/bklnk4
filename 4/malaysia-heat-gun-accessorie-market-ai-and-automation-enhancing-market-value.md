@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heat-gun-accessorie-market-ai-automation-yhoxc/

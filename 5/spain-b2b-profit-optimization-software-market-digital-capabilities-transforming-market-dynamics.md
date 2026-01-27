@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-b2b-profit-optimization-software-market-ka2if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electronic-platform-market-ai-driven-4og2f/

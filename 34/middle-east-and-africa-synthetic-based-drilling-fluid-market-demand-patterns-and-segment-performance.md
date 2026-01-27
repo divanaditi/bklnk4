@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-synthetic-based-drilling-em9af/

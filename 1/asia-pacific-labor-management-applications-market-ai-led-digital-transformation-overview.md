@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-labor-management-applications-market-ztnhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hardware-encryption-market-size-ktqpf/

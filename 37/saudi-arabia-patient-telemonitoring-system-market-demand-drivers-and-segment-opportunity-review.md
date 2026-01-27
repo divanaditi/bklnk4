@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-patient-telemonitoring-system-market-yv2ic/

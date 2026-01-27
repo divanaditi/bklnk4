@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-personal-gel-imaging-system-market-mzgtc/

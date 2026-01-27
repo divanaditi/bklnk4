@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-coppa-capocollo-market-demand-outlook-mxwjf/

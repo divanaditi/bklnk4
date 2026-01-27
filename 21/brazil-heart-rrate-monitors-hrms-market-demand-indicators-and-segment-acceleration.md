@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heart-rrate-monitors-hrms-market-demand-fezmf/

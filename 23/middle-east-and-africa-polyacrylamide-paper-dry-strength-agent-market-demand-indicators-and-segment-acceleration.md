@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyacrylamide-paper-dry-strength-q1zzf/

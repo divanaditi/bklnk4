@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carbon-fiber-technology-market-size-gptyf/

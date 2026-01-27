@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-microsatellite-market-digital-transformation-tlxvf/

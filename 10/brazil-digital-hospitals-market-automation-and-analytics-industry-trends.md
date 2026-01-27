@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-hospitals-market-automation-analytics-t5b7f/

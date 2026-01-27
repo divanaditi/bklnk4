@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermo-compression-bonder-market-demand-ufpwc/

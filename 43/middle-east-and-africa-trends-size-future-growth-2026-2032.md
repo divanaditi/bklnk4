@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trends-size-future-growth-30g0f/

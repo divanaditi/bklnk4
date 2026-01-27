@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-portable-business-projector-market-advanced-gl7wf/

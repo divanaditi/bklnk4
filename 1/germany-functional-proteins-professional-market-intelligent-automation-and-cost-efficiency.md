@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-functional-proteins-professional-market-intelligent-j7gnf/

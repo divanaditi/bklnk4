@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-drive-mining-trucks-0lrlf/

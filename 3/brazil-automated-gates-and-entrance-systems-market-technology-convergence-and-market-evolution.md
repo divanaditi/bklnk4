@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automated-gates-entrance-systems-market-technology-opyof/

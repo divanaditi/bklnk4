@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-heel-shoe-market-digital-transformation-ce56f/

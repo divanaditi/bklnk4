@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-encapsulation-material-market-pt9zf/

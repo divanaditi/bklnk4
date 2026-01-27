@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-thunderbolt-systems-peripherals-professional-aygwf/

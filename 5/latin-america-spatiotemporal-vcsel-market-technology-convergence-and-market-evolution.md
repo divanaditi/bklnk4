@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spatiotemporal-vcsel-market-8qc7c/

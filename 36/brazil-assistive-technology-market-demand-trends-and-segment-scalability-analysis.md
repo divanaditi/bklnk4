@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-assistive-technology-market-demand-trends-segment-r8dgf/

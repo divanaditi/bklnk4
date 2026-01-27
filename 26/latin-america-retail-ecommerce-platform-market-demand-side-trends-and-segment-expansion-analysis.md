@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-retail-ecommerce-platform-market-demand-side-p7cnc/

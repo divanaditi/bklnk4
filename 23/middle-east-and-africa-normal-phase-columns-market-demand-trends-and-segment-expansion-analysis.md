@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-normal-phase-columns-market-demand-0ldaf/

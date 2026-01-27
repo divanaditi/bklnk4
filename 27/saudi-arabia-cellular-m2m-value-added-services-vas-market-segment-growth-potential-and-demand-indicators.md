@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cellular-m2m-value-added-services-vas-ulgtf/

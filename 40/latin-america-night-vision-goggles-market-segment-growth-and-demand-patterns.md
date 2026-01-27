@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-night-vision-goggles-market-segment-fvjmf/

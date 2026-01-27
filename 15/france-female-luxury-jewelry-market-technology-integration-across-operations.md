@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-female-luxury-jewelry-market-technology-integration-n9lff/

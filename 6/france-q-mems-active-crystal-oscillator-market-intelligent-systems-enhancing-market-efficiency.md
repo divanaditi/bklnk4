@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-q-mems-active-crystal-oscillator-market-ctn2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cupola-roof-market-technology-led-efficiency-cost-qkplf/

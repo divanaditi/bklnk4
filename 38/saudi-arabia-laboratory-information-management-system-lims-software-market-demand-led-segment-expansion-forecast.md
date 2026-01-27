@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-laboratory-information-management-system-jksbf/

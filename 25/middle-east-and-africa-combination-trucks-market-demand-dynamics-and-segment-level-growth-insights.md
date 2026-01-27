@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-combination-trucks-market-g6fqf/

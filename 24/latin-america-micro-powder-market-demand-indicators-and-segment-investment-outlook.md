@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-micro-powder-market-demand-indicators-segment-dke6c/

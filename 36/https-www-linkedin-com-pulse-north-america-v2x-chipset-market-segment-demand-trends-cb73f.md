@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-v2x-chipset-market-segment-demand-trends-cb73f/

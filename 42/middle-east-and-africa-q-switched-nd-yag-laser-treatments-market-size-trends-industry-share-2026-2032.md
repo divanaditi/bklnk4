@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-q-switched-nd-yag-laser-treatments-s2ilc/

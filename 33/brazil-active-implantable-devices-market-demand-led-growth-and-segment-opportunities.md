@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-active-implantable-devices-market-demand-led-hwbfe/

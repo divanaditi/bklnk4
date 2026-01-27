@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-dacthal-cas-1861-32-1-market-ai-driven-operational-irpuf/

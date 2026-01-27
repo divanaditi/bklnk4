@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-battery-testing-services-market-size-vx9pe/

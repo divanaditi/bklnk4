@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hem-flange-bonding-adhesive-market-zl56f/

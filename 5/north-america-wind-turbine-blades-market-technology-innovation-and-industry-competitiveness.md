@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wind-turbine-blades-market-technology-innovation-qdtpf/

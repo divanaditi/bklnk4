@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thermal-receipt-printer-market-v4g4f/

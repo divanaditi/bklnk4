@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-22-diethyl-13-propanediol-cas-115-76-4-market-bncqf/

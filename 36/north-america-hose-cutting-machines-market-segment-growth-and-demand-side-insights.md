@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hose-cutting-machines-market-y6zaf/

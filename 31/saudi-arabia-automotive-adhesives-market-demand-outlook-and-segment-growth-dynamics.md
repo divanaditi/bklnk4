@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-automotive-adhesives-market-demand-du3xf/

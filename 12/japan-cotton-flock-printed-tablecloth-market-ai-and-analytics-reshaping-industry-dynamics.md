@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cotton-flock-printed-tablecloth-market-ai-analytics-s9vuf/

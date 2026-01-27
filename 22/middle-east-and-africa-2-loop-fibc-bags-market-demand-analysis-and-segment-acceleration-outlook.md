@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-2-loop-fibc-bags-market-demand-qooff/

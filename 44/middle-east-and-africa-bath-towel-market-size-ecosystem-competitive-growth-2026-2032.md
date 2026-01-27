@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bath-towel-market-size-ecosystem-xvvcc/

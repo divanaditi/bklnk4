@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-canoe-kayak-accessories-market-digital-yb6rc/

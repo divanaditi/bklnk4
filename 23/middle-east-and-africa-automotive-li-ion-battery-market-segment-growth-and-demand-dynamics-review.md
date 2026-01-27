@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-li-ion-battery-market-y9k6f/

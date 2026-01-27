@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-traveling-limit-switch-market-automation-p9qkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-collet-market-technology-evolution-innovation-mg0gf/

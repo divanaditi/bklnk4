@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-land-seismic-equipment-acquisitions-uz08c/

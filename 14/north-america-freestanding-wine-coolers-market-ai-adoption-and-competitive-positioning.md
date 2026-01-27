@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-freestanding-wine-coolers-market-ey6dc/

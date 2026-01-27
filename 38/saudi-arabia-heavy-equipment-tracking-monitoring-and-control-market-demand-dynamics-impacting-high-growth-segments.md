@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-heavy-equipment-tracking-monitoring-control-xvrec/

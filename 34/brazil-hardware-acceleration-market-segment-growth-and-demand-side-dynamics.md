@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hardware-acceleration-market-segment-dbtyf/

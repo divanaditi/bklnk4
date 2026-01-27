@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-picture-windows-market-technology-intelligence-wl7af/

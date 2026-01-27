@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-edible-insects-market-size-share-uiahf/

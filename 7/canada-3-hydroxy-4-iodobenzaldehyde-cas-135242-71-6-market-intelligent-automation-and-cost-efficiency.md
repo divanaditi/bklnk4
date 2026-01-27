@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-hydroxy-4-iodobenzaldehyde-cas-135242-71-6-jbggf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-fenamiphos-cas-22224-92-6-market-ai-driven-development-rydac/

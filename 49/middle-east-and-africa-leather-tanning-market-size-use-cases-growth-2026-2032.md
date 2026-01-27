@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-leather-tanning-market-size-o0rof/

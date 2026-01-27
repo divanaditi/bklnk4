@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-civil-explosion-market-ai-adoption-transformation-2sbcf/

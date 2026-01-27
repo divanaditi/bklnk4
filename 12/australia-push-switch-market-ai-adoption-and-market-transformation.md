@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-push-switch-market-ai-adoption-transformation-iybyf/

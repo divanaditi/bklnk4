@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-quick-drying-short-sleeves-market-digital-dmbcf/

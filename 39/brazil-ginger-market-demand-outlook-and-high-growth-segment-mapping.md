@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ginger-market-demand-outlook-high-growth-04xif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-acg-3d-modeling-market-digital-innovation-strategic-ybrqf/

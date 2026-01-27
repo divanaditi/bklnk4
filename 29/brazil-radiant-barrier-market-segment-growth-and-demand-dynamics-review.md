@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radiant-barrier-market-segment-growth-demand-8yxtf/

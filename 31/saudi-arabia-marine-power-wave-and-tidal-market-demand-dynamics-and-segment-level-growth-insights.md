@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-marine-power-wave-tidal-market-demand-1yjcf/

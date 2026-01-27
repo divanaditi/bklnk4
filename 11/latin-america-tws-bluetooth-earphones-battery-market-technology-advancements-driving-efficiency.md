@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tws-bluetooth-earphones-battery-market-2owqc/

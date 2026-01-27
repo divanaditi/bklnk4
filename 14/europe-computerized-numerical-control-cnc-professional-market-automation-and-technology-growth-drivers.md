@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-computerized-numerical-control-cnc-professional-vzecc/

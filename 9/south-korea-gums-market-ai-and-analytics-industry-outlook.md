@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gums-market-ai-analytics-industry-outlook-qpabf/

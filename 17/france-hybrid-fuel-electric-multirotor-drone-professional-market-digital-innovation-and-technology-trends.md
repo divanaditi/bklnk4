@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-hybrid-fuel-electric-multirotor-drone-professional-dci4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-event-management-service-market-size-efyzf/

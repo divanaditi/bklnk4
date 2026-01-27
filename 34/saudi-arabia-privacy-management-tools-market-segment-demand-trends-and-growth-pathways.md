@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-privacy-management-tools-market-segment-ng3of/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacuum-emulsifying-machine-market-technology-innovation-szyof/

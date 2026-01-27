@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-tattoo-removal-market-demand-dynamics-uplwf/

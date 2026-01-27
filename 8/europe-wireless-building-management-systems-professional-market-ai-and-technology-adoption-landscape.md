@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wireless-building-management-systems-professional-oye1f/

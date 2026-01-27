@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gonorrhea-diagnostic-market-growth-drivers-ub2pc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flannel-shirts-market-size-use-cases-gmusf/

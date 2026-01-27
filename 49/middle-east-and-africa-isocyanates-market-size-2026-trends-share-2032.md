@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-isocyanates-market-size-2026-ik91f/

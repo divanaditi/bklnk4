@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-specialty-oilfield-chemical-market-nf1gc/

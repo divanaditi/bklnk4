@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anticoagulants-market-demand-forces-segment-qkqtc/

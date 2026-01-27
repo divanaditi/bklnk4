@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smashing-machine-market-ai-automation-mtr7e/

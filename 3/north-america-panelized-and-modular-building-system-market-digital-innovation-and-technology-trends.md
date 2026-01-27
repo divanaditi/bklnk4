@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-panelized-modular-building-system-yq06f/

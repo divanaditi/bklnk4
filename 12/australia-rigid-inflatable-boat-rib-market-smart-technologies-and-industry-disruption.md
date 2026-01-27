@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rigid-inflatable-boat-rib-market-smart-pgakf/

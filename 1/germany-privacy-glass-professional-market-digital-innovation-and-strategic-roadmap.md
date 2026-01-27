@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-privacy-glass-professional-market-a2ovf/

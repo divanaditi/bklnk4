@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-boarding-gates-sales-market-segment-growth-j7hkf/

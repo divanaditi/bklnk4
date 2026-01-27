@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-artificial-leather-market-demand-drivers-segment-fk3yf/

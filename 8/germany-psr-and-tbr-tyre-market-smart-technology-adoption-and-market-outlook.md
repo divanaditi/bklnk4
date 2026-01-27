@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-psr-tbr-tyre-market-smart-technology-adoption-mi89f/

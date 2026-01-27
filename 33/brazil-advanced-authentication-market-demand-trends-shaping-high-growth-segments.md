@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-advanced-authentication-market-demand-trends-gbvee/

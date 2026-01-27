@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metal-alloy-analyzer-market-smart-technologies-hzfzf/

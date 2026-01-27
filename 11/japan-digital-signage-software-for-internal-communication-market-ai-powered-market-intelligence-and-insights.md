@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-signage-software-internal-communication-market-mxj7f/

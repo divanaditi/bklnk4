@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trends-size-long-term-growth-2026-2032-j95pf/

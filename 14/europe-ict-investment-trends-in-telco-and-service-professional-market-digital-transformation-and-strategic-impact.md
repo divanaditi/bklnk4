@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ict-investment-trends-telco-service-professional-mhjtc/

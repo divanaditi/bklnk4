@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-23-difluoroethoxybenzene-cas-121219-07-6-9ej2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-dichlorobenzonitrile-cas-6574-98-7-zwnff/

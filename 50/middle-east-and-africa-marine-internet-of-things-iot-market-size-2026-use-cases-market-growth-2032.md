@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-marine-internet-things-iot-market-4bnrf/

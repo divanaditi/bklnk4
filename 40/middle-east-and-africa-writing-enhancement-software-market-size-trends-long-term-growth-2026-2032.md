@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-writing-enhancement-software-market-size-wpiwf/

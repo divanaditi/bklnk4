@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-construction-management-software-market-59vrf/

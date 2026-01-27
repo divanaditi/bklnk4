@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-low-speed-tablet-rotary-presses-pe5uf/

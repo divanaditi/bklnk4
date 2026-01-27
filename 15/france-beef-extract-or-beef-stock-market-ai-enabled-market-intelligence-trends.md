@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-beef-extract-stock-market-ai-enabled-intelligence-trends-qnp0f/

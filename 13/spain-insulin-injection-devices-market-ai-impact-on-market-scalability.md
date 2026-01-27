@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-insulin-injection-devices-market-ai-impact-scalability-ao1uf/

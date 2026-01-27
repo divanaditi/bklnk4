@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stone-working-machines-market-demand-kzqdf/

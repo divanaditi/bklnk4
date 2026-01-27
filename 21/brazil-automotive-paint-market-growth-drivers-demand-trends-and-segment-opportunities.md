@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-paint-market-growth-drivers-rer0f/

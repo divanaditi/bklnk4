@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-methyl-5-chloromethyl-2-furoate-cas-2144-37-8-16vxf/

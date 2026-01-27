@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commodity-contracts-brokerage-market-technology-95chf/

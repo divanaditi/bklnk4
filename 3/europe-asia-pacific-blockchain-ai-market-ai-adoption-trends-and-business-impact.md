@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-asia-pacific-blockchain-ai-market-adoption-trends-4iu3f/

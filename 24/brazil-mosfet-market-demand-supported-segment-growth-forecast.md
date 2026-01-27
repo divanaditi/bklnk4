@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mosfet-market-demand-supported-segment-wdipf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electrical-beds-market-digital-transformation-aaa1f/

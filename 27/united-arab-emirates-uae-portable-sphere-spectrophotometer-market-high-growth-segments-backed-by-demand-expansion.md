@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-portable-sphere-spectrophotometer-9dnkf/

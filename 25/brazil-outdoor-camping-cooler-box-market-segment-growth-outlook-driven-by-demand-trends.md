@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-outdoor-camping-cooler-box-market-segment-01c1f/

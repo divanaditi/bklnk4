@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-diethylaminoethanol-hydrochloride-cas-14426-20-1-bkp2c/

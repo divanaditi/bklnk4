@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-product-liability-insurance-professional-market-xu3af/

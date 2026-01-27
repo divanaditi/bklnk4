@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-endoscopic-cold-light-source-market-9px4e/

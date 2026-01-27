@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-aminocinnamic-acid-hydrochloride-cas-54057-95-3-yct9f/

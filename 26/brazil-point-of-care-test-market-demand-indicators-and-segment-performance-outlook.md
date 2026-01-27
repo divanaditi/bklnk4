@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-point-care-test-market-demand-indicators-hbjyc/

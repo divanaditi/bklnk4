@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-disinfectant-equipment-professional-market-8zbxf/

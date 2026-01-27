@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-4-fluorophenylbenzaldehyde-cas-192863-46-0-05isf/

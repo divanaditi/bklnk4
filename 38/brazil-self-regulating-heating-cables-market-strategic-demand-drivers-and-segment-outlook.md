@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-self-regulating-heating-cables-market-strategic-26ctf/

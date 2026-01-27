@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hot-melt-packaging-adhesives-market-demand-supported-7gktf/

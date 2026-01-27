@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-edc-electronic-data-capture-system-market-o3x8f/

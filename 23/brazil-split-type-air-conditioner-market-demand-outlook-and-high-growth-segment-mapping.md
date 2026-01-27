@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-split-type-air-conditioner-market-demand-outlook-qcvef/

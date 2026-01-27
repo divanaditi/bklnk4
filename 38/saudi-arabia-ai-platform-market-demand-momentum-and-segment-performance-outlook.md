@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ai-platform-market-demand-momentum-segment-f5eff/

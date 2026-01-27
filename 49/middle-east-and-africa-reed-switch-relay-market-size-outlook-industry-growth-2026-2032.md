@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-reed-switch-relay-market-size-d9n1f/

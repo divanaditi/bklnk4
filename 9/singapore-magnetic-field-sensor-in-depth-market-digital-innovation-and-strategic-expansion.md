@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-magnetic-field-sensor-in-depth-market-ndo3f/

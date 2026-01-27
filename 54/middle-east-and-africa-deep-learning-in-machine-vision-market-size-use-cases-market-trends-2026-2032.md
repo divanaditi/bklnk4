@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-deep-learning-machine-vision-bua3f/

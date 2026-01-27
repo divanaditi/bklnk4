@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-timer-market-demand-trends-segment-pwevc/

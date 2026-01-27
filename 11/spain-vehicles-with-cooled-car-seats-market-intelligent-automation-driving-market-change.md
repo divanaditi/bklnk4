@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-vehicles-cooled-car-seats-market-intelligent-automation-69dyf/

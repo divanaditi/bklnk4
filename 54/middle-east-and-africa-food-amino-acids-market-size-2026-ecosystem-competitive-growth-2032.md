@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-food-amino-acids-market-size-2026-e7mxf/

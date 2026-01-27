@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gastroscope-market-segment-growth-outlook-driven-bwryf/

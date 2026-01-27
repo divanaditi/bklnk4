@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-spraying-market-ai-xnpmc/

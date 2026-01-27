@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-advanced-printer-market-digital-capabilities-scalability-6xpcc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-based-video-analytics-market-predictive-ijq5f/

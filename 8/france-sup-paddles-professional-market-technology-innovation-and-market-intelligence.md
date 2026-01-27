@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-sup-paddles-professional-market-technology-zbevf/

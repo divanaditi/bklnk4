@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-disposable-vaginal-douche-market-ai-impact-geryf/

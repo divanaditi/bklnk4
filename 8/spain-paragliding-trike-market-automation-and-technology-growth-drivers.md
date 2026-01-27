@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-paragliding-trike-market-automation-technology-growth-xofof/

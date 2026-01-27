@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ewse-market-demand-factors-segment-growth-pathways-rzzxf/

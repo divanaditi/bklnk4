@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-point-care-ultrasound-market-demand-evolution-qhobf/

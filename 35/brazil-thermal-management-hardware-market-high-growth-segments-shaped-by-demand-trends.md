@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermal-management-hardware-market-high-growth-bnoef/

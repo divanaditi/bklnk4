@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-temperature-recorder-market-demand-qsu0c/

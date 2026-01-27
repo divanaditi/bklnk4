@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-bromoundecane-cas-693-67-4-market-technology-xjvbf/

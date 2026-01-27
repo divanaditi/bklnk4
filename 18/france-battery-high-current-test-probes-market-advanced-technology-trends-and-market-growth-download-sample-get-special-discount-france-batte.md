@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-battery-high-current-test-probes-market-ydddf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-non-commutated-linear-voice-coil-motor-ciajf/

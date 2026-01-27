@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-pressure-transducers-7whic/

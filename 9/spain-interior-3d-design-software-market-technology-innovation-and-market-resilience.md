@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-interior-3d-design-software-market-technology-p5hqf/

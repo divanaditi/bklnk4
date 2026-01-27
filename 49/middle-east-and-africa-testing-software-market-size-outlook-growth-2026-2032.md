@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-testing-software-market-size-rczrf/

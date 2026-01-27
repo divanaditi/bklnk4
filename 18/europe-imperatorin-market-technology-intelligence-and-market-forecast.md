@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-imperatorin-market-technology-intelligence-klyzf/

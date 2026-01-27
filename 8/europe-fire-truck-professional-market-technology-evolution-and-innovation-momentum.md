@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-fire-truck-professional-market-technology-8bttf/

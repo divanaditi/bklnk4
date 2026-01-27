@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cork-footbed-market-advanced-technologies-vq6yf/

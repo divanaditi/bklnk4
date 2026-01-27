@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-sam4l-cortex-m4-low-power-microcontroller-ett8c/

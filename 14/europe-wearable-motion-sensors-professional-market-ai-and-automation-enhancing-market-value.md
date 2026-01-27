@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wearable-motion-sensors-professional-market-gh3mc/

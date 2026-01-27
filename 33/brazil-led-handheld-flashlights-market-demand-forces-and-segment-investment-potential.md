@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-led-handheld-flashlights-market-demand-forces-gjw8f/

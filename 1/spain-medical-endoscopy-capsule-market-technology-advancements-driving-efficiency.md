@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-endoscopy-capsule-market-technology-zaprf/

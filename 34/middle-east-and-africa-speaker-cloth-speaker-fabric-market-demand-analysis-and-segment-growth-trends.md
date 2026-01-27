@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-speaker-cloth-fabric-market-demand-m7j2f/

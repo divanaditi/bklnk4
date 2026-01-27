@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-polyamide-hot-melt-adhesives-aqsvc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-neo-challengers-bank-market-role-ai-4hdrc/

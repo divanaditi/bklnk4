@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-aerial-photography-system-yol7e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-plastic-doctor-blade-professional-market-ai-drkzf/

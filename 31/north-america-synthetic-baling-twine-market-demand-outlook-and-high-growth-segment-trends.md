@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-synthetic-baling-twine-market-demand-bgalf/

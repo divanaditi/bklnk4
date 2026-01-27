@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ergonomic-office-software-professional-market-qbyec/

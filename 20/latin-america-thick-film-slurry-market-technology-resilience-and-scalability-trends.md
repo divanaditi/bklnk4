@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thick-film-slurry-market-technology-wgi7e/

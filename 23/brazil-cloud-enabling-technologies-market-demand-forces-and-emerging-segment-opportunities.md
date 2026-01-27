@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-enabling-technologies-market-demand-forces-wpmaf/

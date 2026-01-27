@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-flat-face-quick-couplings-market-technology-jmtzf/

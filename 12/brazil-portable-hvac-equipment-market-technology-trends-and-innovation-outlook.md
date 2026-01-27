@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-hvac-equipment-market-technology-trends-3kc0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-carbon-dioxide-removal-market-role-ai-risk-lfa3f/

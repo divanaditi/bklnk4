@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-interpreter-service-professional-market-ai-enabled-8otlf/

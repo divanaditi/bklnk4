@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-n-isopropylethylenediamine-cas-19522-67-9-gx5sf/

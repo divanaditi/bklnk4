@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-3-methylpyrazole-cas-13808-64-5-gbfgf/

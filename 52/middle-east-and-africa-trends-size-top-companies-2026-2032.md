@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trends-size-top-companies-b7j2e/

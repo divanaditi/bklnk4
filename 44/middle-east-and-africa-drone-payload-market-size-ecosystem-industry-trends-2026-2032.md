@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drone-payload-market-size-ecosystem-fo1tc/

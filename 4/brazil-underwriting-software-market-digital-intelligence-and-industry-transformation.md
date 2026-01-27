@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-underwriting-software-market-digital-intelligence-ok1gf/

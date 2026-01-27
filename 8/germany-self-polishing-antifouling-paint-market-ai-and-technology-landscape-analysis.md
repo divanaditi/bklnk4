@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-self-polishing-antifouling-paint-market-i4q9f/

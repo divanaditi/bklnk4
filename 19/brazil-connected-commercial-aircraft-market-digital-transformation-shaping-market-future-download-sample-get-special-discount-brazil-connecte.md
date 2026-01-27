@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-connected-commercial-aircraft-market-digital-transformation-2b8ae/

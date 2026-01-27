@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gps-fleet-tracking-software-market-oed0f/

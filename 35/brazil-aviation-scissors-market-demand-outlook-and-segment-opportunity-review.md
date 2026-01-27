@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aviation-scissors-market-demand-outlook-of2sf/

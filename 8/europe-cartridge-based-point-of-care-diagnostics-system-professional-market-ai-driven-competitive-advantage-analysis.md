@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cartridge-based-point-care-diagnostics-system-sosbf/

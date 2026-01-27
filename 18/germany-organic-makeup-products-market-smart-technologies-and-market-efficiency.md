@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-organic-makeup-products-market-smart-technologies-aptlf/

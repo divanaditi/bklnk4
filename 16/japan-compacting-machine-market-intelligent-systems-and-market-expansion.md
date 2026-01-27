@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compacting-machine-market-intelligent-systems-sqkbf/

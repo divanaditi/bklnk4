@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drop-weight-impact-testing-machine-bik2c/

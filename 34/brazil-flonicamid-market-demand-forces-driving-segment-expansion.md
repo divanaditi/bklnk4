@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-flonicamid-market-demand-forces-5wwpf/

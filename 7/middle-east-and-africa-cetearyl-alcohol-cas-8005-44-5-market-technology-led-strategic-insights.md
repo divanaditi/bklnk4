@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cetearyl-alcohol-cas-8005-44-5-market-heldf/

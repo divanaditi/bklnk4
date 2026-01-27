@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-differential-air-pressure-gauge-market-cuaff/

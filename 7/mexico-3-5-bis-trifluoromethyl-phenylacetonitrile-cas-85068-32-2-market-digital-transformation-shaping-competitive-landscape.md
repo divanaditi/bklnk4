@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-35-bistrifluoromethylphenylacetonitrile-cas-vzk2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-surgical-aspirator-market-ai-automation-spz7f/

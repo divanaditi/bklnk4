@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-offshore-cranes-market-high-growth-segments-backed-79skf/

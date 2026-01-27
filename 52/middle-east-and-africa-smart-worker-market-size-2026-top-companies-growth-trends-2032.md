@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-worker-market-size-4hbaf/

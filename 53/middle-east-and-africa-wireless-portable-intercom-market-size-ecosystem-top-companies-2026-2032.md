@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wireless-portable-intercom-market-k5qbe/

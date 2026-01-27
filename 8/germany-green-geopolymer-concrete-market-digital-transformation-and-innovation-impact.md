@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-green-geopolymer-concrete-market-digital-transformation-pvo5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coordinate-boring-market-intelligent-systems-a5rkf/

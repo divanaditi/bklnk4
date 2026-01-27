@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermoformed-plastic-market-growth-6zrif/

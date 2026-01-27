@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wind-power-bearing-market-advanced-rasef/

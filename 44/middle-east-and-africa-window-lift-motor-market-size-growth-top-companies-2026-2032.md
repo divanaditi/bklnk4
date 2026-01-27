@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-window-lift-motor-market-size-growth-uuo6c/

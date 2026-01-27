@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-oven-controlled-crystal-oscillator-vozlf/

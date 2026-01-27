@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-diverdine-market-technology-resilience-scalability-nivtf/

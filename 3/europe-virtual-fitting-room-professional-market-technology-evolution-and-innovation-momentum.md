@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-virtual-fitting-room-professional-market-technology-5imvf/

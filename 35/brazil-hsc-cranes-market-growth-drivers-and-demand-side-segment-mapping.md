@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hsc-cranes-market-growth-drivers-demand-side-fq5ef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-consumer-durables-market-technology-innovation-reldf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-data-storage-market-br26f/

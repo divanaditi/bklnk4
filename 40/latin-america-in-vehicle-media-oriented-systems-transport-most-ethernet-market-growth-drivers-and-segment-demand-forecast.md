@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-in-vehicle-media-oriented-systems-transportmostethernet-eeeyf/

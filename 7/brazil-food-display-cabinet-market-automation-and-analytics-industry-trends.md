@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-food-display-cabinet-market-automation-analytics-n63gf/

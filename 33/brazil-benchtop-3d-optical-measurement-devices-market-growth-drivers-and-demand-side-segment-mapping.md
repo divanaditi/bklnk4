@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-benchtop-3d-optical-measurement-devices-3yvwe/

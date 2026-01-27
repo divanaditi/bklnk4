@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-thin-film-ceramic-chip-inductor-market-phynf/

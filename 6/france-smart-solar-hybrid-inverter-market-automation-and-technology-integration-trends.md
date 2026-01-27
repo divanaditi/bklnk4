@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-solar-hybrid-inverter-market-automation-jczwf/

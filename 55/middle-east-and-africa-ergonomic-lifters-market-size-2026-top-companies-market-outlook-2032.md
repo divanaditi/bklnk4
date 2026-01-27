@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ergonomic-lifters-market-size-fmfxf/

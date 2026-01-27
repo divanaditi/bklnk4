@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-brooch-market-strategic-demand-drivers-cwiae/

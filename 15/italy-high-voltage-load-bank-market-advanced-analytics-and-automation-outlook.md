@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-high-voltage-load-bank-market-advanced-wsp6f/

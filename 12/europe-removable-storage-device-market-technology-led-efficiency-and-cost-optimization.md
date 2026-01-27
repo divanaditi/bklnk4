@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-removable-storage-device-market-technology-led-pzdnc/

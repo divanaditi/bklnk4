@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-blood-glucose-sensor-patch-market-digital-cjbkf/

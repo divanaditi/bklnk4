@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pentaerythritol-ester-gum-rosin-tk42f/

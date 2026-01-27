@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-distributed-natural-gas-fueled-generation-market-pexlf/

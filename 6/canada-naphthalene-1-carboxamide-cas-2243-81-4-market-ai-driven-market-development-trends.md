@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-naphthalene-1-carboxamide-cas-2243-81-4-sl0qf/

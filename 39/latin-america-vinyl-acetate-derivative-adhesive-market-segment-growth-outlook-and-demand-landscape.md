@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vinyl-acetate-derivative-adhesive-market-1ijyf/

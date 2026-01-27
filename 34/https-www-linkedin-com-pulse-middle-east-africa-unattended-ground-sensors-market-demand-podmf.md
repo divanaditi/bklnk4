@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-unattended-ground-sensors-market-demand-podmf/

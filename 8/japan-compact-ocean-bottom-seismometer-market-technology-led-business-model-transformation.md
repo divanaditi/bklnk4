@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compact-ocean-bottom-seismometer-market-technology-led-nnpff/

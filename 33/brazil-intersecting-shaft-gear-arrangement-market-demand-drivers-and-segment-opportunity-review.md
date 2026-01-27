@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-intersecting-shaft-gear-arrangement-market-xhv2e/

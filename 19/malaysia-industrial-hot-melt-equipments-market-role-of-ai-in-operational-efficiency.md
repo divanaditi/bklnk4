@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-hot-melt-equipments-market-role-yooce/

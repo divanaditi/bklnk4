@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hotel-distribution-channel-software-market-holaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-gcc-digital-temperature-indicators-1pabf/

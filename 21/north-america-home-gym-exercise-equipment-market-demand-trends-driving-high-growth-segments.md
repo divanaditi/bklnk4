@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-home-gym-exercise-equipment-market-demand-fpxjf/

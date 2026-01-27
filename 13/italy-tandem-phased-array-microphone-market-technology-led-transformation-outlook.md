@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-tandem-phased-array-microphone-market-technology-led-vqa3f/

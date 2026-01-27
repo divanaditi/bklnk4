@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rotational-sensor-market-technology-trends-cllme/

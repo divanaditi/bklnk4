@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-drying-alfalfa-market-digital-intelligence-hk8kf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-power-seat-switch-market-digital-innovation-mr1yc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bioactive-materials-market-size-2026-lqdhc/

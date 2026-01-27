@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-home-nonstick-pan-market-technology-disruption-lx2rc/

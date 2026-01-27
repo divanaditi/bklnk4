@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-palm-tableware-market-intelligent-systems-ghizf/

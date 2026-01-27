@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-n-type-ibc-solar-panel-market-digital-innovation-mtcnf/

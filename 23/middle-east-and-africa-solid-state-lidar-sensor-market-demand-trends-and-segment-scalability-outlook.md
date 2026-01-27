@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-solid-state-lidar-sensor-market-9nxyf/

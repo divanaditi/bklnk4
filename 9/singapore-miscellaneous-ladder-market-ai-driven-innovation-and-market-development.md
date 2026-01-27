@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-miscellaneous-ladder-market-ai-driven-eekof/

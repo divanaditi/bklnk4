@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-retail-management-systems-software-market-4w3le/

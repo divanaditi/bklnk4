@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-oil-free-air-fryer-market-demand-forces-typ0c/

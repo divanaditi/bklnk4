@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-14-phenylene-diisothiocyanate-cas-4044-65-9-e56lf/

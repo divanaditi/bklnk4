@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-virtual-human-market-size-trends-top-htflf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-indoor-self-growing-garden-system-market-3r3qf/

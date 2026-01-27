@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wall-panel-market-intelligent-systems-driving-zau7f/

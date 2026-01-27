@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-print-head-market-demand-trends-vikgc/

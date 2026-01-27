@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-helicopter-blades-mro-market-ai-automation-dynamics-xvx1f/

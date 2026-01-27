@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-abrasive-blasters-market-segment-ldjtf/

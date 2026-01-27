@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-splicing-machine-market-demand-2rjrf/

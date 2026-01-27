@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-non-contact-eddy-current-displacement-sensor-twquf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixed-x-ray-flat-panel-detector-ectwc/

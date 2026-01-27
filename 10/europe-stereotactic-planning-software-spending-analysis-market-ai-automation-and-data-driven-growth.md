@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-stereotactic-planning-software-spending-analysis-2ua7f/

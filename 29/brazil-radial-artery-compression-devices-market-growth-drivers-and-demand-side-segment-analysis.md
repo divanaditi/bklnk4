@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radial-artery-compression-devices-market-ewkrc/

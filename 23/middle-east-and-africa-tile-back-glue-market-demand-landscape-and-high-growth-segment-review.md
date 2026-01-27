@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tile-back-glue-market-demand-landscape-7zn0f/

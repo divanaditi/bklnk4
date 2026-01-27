@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-phone-chargers-system-market-intelligent-ylljf/

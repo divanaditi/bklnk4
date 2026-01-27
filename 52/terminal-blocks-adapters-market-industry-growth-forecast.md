@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/terminal-blocks-adapters-market-industry-growth-forecast-8vomc/

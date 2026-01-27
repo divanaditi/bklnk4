@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-built-in-kitchen-appliance-market-advanced-lpnhf/

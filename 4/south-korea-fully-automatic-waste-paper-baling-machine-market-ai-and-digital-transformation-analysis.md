@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fully-automatic-waste-paper-baling-sh7xc/

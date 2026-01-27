@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oil-gas-recovery-system-market-ai-adoption-across-7j9rc/

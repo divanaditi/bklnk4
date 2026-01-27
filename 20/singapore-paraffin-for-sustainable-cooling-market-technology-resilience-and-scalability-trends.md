@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-paraffin-sustainable-cooling-market-technology-resilience-ollxe/

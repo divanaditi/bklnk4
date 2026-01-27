@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-satellite-ground-test-system-market-ai-automation-uittf/

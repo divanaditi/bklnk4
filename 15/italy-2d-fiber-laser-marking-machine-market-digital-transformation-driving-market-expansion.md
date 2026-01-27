@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-2d-fiber-laser-marking-machine-market-digital-aiwnf/

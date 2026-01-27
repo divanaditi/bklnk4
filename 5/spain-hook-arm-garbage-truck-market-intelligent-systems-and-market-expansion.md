@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-hook-arm-garbage-truck-market-intelligent-d0llf/

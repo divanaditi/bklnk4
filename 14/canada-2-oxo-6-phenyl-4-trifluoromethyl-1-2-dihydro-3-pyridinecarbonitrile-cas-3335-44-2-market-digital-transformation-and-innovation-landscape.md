@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-oxo-6-phenyl-4-trifluoromethyl-12-dihydro-3-pyridinecarbonitrile-ggwcc/

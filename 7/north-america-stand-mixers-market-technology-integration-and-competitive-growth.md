@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-stand-mixers-market-technology-yodyf/

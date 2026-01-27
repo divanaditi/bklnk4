@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-static-mechanical-analyzer-market-uamvf/

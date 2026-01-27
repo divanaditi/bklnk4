@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-sheet-metal-repair-machine-market-smart-automation-ilevf/

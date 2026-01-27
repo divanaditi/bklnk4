@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerospace-adhesives-market-demand-analysis-p8gyf/

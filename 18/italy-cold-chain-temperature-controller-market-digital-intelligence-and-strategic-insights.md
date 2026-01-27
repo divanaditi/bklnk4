@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-cold-chain-temperature-controller-market-digital-efywf/

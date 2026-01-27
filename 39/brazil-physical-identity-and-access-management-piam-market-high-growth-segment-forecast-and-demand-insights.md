@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-physical-identity-access-management-piam-market-high-growth-qbqrf/

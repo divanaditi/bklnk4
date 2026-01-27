@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-25-difluoroacetophenone-cas-1979-36-8-market-digital-k5lzf/

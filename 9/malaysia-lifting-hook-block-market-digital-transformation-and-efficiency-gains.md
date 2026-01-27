@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-lifting-hook-block-market-digital-transformation-rv6vf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hand-pallet-jack-market-demand-momentum-segment-pdxhf/

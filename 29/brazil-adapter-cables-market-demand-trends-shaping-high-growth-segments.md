@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-adapter-cables-market-demand-trends-shaping-2a8yf/

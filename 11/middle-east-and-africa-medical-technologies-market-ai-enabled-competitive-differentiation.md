@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medical-technologies-market-ai-enabled-lqnpc/

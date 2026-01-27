@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fabless-ic-market-technology-disruption-industry-lokaf/

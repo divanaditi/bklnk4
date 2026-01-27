@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-navigation-satellite-system-chip-market-nykrf/

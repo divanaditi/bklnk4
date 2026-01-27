@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-waterproof-panel-market-segment-growth-f42cf/

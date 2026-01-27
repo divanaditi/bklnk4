@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-2-chloro-1-fluorobenzene-cas-60811-21-4-market-vqfof/

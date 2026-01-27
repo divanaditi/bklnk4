@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-photobooks-professional-market-machine-y0eof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-sanitary-pads-market-technology-adoption-cxatf/

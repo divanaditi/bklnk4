@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-insulative-tape-market-high-growth-12jff/

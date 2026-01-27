@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/airport-walkway-market-scope-review-quantum-ridge-ventures-d9hzc/

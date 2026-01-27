@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-kids27-table-market-smart-technologies-industry-disruption-nnfif/

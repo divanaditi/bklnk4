@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-laurophenone-cas-1674-38-0-market-technology-5chgf/

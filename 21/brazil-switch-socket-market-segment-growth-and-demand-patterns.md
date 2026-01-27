@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-switch-socket-market-segment-growth-demand-w0o7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-spain-cbd-product-market-ai-adoption-enhancing-kqt3f/

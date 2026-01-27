@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mvno-market-digital-transformation-efficiency-lx8rc/

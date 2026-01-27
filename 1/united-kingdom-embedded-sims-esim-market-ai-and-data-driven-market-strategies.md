@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-embedded-sims-esim-market-8aavf/

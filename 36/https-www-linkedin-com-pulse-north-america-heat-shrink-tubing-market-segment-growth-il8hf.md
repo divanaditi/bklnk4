@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heat-shrink-tubing-market-segment-growth-il8hf/

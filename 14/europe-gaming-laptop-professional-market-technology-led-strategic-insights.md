@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gaming-laptop-professional-market-technology-led-vgqqc/

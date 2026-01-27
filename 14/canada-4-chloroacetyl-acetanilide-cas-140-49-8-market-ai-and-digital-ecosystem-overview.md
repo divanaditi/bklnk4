@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-chloroacetyl-acetanilide-cas-140-49-8-market-sunil-bade-sfrcc/

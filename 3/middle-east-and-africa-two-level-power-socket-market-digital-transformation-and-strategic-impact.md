@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-two-level-power-socket-market-qbcyf/

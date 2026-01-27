@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pvc-welding-cable-market-ai-smart-technologies-0apjf/

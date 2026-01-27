@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-uav-unmanned-aerial-vehicles-mining-yt5wc/

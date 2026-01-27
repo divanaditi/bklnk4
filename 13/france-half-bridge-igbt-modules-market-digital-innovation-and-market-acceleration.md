@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-half-bridge-igbt-modules-market-digital-innovation-nai7f/

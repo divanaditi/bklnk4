@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-supplier-risk-management-professional-market-ai-mqldf/

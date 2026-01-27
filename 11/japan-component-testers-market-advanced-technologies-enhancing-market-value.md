@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-component-testers-market-advanced-technologies-luwyf/

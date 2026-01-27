@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hoa-property-management-software-lqnlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-bromadiolone-cas-28772-56-7-market-zbblf/

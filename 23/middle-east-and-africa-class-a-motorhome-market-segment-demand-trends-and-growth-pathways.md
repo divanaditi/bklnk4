@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-class-motorhome-market-segment-demand-5yyyf/

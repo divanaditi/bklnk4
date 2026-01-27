@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-26-dichlorophenyl-isothiocyanate-cas-6590-95-0-jssvf/

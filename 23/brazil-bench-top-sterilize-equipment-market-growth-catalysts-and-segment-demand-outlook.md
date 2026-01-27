@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bench-top-sterilize-equipment-market-growth-iu4pf/

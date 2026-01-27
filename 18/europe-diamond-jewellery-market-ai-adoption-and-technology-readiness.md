@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-diamond-jewellery-market-ai-adoption-l5bsf/

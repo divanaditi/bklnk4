@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-barcode-decoders-market-size-s5xaf/

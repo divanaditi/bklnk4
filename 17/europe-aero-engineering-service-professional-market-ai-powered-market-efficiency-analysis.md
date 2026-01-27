@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-aero-engineering-service-professional-market-ai-powered-np8of/

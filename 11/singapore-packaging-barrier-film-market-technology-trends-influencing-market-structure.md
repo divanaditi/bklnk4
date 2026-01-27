@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-packaging-barrier-film-market-technology-0m2ac/

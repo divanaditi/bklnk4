@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-whole-body-cooling-therapeutic-system-market-epsbf/

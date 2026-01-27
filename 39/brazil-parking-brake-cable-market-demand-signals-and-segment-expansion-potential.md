@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-parking-brake-cable-market-demand-signals-segment-loe4f/

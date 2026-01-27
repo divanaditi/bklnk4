@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-seated-type-reach-truck-market-ai-automation-enhancing-t2h4f/

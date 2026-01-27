@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-zero-ohm-resistance-market-role-ai-product-sveof/

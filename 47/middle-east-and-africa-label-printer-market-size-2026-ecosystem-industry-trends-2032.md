@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-label-printer-market-size-3gnif/

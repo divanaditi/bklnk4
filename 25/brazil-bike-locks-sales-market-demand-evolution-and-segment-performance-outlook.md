@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bike-locks-sales-market-demand-evolution-kxjuf/

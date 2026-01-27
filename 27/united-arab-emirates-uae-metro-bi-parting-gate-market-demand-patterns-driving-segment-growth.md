@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-metro-bi-parting-gate-market-9ww9f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-outdoor-climbing-shoe-market-demand-side-c8uyf/

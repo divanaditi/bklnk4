@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-linear-encoder-market-size-growth-mb9wf/

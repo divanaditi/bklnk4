@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wall-decor-market-high-growth-tglac/

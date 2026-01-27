@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-single-function-juicer-market-klg9f/

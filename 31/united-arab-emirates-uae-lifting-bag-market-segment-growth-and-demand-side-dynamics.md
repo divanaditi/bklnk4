@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-lifting-bag-market-segment-growth-7lcqf/

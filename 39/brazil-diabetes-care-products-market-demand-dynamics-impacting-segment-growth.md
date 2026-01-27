@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diabetes-care-products-market-demand-9u7zf/

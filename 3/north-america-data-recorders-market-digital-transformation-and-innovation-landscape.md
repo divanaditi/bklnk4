@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-data-recorders-market-digital-transformation-y6hkf/

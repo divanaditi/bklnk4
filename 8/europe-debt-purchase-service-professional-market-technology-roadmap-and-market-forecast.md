@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-debt-purchase-service-professional-market-technology-phisf/

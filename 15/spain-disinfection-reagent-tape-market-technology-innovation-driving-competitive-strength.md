@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-disinfection-reagent-tape-market-technology-nnp6f/

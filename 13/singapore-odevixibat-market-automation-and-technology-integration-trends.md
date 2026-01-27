@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-odevixibat-market-automation-technology-zgnbf/

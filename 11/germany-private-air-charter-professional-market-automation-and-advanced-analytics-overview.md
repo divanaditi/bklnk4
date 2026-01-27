@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-private-air-charter-professional-market-automation-ohnkc/

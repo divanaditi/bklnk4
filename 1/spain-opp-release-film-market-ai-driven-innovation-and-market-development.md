@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-opp-release-film-market-ai-driven-innovation-development-qckkf/

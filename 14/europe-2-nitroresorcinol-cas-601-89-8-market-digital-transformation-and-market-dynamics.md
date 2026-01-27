@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-2-nitroresorcinol-cas-601-89-8-market-digital-wrd3c/

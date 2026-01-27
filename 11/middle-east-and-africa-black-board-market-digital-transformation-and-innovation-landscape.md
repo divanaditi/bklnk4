@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-black-board-market-digital-transformation-g9oqc/

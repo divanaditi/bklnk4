@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-6-bromo-2233-tetrafluoro-14-benzodioxan-cas-141872-90-4-etrnc/

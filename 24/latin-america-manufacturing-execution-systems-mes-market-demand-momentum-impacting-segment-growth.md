@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-manufacturing-execution-systems-3ee2c/

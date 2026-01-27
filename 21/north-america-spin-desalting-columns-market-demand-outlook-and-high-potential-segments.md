@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-spin-desalting-columns-market-demand-outlook-qyp9f/

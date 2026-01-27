@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-platform-electronic-laboratory-balance-market-brcuf/

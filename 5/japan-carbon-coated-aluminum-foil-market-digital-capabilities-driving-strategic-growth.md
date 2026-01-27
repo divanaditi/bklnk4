@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-coated-aluminum-foil-market-digital-capabilities-2k00f/

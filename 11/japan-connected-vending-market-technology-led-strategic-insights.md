@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-connected-vending-market-technology-led-strategic-b7r7f/

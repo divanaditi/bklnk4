@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-frequency-x-ray-generators-market-demand-side-kji0f/

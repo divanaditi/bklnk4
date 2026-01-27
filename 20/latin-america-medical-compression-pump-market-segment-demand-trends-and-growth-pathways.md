@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-compression-pump-market-segment-qkrnf/

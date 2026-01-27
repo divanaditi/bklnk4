@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dpu-gfast-chipset-market-demand-trends-z454f/

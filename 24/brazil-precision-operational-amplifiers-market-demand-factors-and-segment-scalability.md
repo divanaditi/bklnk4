@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-precision-operational-amplifiers-market-demand-7vrpf/

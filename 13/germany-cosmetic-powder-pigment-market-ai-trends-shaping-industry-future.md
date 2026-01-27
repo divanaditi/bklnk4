@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cosmetic-powder-pigment-market-ai-trends-kmqof/

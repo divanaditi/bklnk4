@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-forklift-fire-blanket-market-intelligent-automation-eafyf/

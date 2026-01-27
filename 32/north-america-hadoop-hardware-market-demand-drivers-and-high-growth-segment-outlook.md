@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hadoop-hardware-market-demand-drivers-rad2f/

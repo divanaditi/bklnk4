@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-dimethyl-6-nitrophenol-cas-14452-34-7-avuvc/

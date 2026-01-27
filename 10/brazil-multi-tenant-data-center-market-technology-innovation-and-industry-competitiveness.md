@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multi-tenant-data-center-market-technology-hlwmf/

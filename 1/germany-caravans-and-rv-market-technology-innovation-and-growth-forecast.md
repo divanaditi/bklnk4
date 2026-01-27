@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-caravans-rv-market-technology-innovation-9eyyf/

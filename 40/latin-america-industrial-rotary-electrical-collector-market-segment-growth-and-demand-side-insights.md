@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-rotary-electrical-collector-2kj3f/

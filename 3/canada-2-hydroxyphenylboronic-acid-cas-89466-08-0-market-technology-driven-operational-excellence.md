@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-hydroxyphenylboronic-acid-cas-89466-08-0-market-iqpzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-solar-thermal-heating-market-ai-smart-5gp3c/

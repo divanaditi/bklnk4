@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-calcium-iodide-hydrate-cas-71626-98-7-cfuyf/

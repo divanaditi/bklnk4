@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-radiotherapy-market-demand-dynamics-h6cxc/

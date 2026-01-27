@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-4-fluorobenzoyl-chloride-cas-403-43-0-fsm0f/

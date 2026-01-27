@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wind-turbine-blade-coatings-market-uvd4f/

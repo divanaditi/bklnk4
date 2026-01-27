@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-functional-yarn-market-segmentation-x6gff/

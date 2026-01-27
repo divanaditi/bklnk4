@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gulf-mexico-oil-gas-decommissioning-6blrf/

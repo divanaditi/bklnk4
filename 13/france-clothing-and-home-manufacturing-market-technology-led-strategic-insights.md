@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-clothing-home-manufacturing-market-technology-led-e2a2f/

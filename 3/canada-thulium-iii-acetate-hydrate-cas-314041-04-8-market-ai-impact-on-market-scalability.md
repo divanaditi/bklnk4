@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-thuliumiii-acetate-hydrate-cas-314041-04-8-dh6nf/

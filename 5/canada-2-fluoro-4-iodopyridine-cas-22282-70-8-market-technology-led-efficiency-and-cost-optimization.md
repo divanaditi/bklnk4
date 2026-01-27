@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-fluoro-4-iodopyridine-cas-22282-70-8-market-1dswf/

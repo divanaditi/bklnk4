@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mycoprotein-market-size-6fwhf/

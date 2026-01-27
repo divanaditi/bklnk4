@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-inkjet-marking-coding-machinesr-market-smart-analytics-nnv2c/

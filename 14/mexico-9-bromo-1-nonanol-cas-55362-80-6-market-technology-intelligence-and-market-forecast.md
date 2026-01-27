@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-9-bromo-1-nonanol-cas-55362-80-6-market-technology-rji9f/

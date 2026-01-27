@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clinical-intelligence-market-high-growth-segments-8qf0e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-business-consulting-professional-market-hqrcc/

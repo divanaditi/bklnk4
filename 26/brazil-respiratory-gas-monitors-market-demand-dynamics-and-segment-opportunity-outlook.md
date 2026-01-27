@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-respiratory-gas-monitors-market-demand-dynamics-ern8c/

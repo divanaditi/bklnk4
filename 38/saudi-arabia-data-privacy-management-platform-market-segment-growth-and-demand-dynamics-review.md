@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-data-privacy-management-platform-evl4c/

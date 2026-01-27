@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-controlled-release-cannabis-pills-market-demand-la8sf/

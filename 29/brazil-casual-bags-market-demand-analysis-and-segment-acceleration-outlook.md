@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-casual-bags-market-demand-analysis-segment-6w6ef/

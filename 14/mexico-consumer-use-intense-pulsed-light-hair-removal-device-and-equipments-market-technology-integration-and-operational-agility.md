@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-consumer-use-intense-pulsed-light-hair-dhbxf/

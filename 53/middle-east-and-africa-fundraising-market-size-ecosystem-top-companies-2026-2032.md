@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fundraising-market-size-ecosystem-pfw0f/

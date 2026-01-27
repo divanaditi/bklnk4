@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-fastenerconnector-market-r1xkf/

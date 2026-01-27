@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-food-delivery-logistic-market-b9nnf/

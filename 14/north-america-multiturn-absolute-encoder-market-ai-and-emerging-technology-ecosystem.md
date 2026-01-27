@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-multiturn-absolute-encoder-market-ai-6cjwf/

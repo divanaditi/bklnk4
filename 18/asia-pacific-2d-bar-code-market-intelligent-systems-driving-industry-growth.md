@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-2d-bar-code-market-intelligent-systems-driving-q4hwf/

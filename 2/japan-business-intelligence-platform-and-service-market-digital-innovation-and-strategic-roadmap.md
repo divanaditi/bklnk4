@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-business-intelligence-platform-service-market-hl2dc/

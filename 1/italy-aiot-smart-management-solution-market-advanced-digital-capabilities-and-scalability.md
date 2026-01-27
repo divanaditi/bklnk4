@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-aiot-smart-management-solution-market-advanced-nompf/

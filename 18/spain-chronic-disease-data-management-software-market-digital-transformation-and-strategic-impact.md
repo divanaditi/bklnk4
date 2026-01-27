@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-chronic-disease-data-management-6weyf/

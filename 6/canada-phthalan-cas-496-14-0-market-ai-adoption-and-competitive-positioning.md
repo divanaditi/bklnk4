@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-phthalan-cas-496-14-0-market-ai-adoption-alikf/

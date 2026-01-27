@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-evoh-ethylene-vinyl-alcohol-copolymer-eukhf/

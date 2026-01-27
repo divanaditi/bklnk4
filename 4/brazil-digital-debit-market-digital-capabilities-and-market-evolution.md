@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-debit-market-capabilities-evolution-xm50f/

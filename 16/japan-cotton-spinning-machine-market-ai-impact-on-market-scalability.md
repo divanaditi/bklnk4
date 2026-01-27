@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cotton-spinning-machine-market-ai-impact-scalability-eur4f/

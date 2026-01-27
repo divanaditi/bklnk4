@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-spiral-weld-pipe-market-segment-demand-4g1of/

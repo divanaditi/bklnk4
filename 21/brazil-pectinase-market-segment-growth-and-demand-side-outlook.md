@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pectinase-market-segment-growth-7ixcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-inertial-measurement-4g2tf/

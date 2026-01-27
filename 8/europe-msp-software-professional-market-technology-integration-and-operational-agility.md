@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-msp-software-professional-market-technology-tbduf/

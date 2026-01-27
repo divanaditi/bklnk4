@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wind-converters-market-segment-sg0se/

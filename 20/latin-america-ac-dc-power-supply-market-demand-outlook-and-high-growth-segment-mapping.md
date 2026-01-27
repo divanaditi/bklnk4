@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-acdc-power-supply-market-ownyf/

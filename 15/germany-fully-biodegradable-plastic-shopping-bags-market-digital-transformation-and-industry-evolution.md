@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-fully-biodegradable-plastic-shopping-bags-3hnif/

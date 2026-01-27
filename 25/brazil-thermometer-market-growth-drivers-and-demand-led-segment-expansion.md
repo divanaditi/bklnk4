@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermometer-market-growth-drivers-demand-led-segment-xz75f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-nand-flash-automotive-market-advanced-digital-z7f5f/

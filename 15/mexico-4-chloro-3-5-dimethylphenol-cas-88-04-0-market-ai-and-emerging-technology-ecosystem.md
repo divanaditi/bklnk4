@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-chloro-35-dimethylphenol-cas-88-04-0-market-vqn5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermosetting-composites-market-demand-dynamics-o6mof/

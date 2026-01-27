@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-window-motor-market-high-growth-segments-d1s7f/

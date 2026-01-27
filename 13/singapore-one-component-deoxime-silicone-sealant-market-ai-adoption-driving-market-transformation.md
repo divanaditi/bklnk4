@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-one-component-deoxime-silicone-sealant-7kmrf/

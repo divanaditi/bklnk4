@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-5-benzyl-134-oxadiazol-2-ylamine-cas-31803-00-6-k3mnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anticoagulant-treatment-market-demand-ny8vc/

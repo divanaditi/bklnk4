@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-spas-beauty-salons-market-demand-drivers-4eokf/

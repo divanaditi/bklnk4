@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nfc-business-card-market-segment-growth-ytgyf/

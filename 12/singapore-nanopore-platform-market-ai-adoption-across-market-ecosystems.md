@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nanopore-platform-market-ai-adoption-t1snf/

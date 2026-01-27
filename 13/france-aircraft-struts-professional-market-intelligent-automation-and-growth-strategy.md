@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-aircraft-struts-professional-market-intelligent-automation-yyief/

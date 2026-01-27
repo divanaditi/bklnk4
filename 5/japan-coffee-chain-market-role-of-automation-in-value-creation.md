@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coffee-chain-market-role-automation-qtczf/

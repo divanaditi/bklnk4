@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-sales-enablement-tools-professional-market-digital-tz4ic/

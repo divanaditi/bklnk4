@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-image-signal-processor-vision-professional-99vdf/

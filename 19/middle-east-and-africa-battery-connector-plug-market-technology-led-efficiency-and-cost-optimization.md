@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-battery-connector-plug-market-technology-led-3tome/

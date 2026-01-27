@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-wi-fi-enabled-electric-heater-market-automation-anjwf/

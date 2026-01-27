@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-wooden-hairpin-market-smart-automation-analytics-x7vsf/

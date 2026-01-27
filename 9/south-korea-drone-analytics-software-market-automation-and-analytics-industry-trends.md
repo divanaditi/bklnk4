@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-drone-analytics-software-market-znlef/

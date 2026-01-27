@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-indazole-3-carboxylic-acid-cas-6076-13-7-hx7cf/

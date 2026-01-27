@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-freight-audit-payment-professional-market-ai-ddnxf/

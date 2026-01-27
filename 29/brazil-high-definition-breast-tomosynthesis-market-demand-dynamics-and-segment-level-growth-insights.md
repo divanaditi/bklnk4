@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-definition-breast-tomosynthesis-ws3tc/

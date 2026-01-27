@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-236-trifluorophenol-cas-113798-74-6-market-ygtkc/

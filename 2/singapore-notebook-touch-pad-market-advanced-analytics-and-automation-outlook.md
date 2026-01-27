@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-notebook-touch-pad-market-advanced-analytics-3z8cc/

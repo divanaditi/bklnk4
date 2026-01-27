@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-irda-transceiver-modules-market-nj0bf/

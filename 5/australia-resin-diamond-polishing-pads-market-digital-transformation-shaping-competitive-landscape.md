@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-resin-diamond-polishing-pads-nztcc/

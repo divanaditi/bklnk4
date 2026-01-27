@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-inclinometer-market-demand-eg9rf/

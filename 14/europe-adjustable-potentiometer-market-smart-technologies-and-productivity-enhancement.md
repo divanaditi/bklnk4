@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-adjustable-potentiometer-market-smart-technologies-gsm4c/

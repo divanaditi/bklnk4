@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-homomorphic-encryption-market-demand-stl0f/

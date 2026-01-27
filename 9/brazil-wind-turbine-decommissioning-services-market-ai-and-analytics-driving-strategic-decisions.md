@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-turbine-decommissioning-services-market-dsjff/

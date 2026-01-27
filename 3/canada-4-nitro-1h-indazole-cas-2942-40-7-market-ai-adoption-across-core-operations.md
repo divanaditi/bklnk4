@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-nitro-1h-indazole-cas-2942-40-7-market-ai-adoption-gigof/

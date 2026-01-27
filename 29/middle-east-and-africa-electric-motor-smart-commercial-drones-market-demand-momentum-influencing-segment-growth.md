@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-motor-smart-commercial-4k1pf/

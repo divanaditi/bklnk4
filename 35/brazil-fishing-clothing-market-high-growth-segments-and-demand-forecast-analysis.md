@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fishing-clothing-market-high-growth-segments-squbf/

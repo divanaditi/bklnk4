@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uav-photoelectric-pod-market-khe0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vessels-off-shore-wind-power-market-keqle/

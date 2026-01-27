@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-folding-shopping-carts-market-demand-vcbhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dye-sub-printer-market-segment-demand-uaq1f/

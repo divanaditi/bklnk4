@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-food-beverage-coding-marking-equipments-13qnc/

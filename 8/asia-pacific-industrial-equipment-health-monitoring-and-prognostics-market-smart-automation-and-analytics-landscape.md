@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-industrial-equipment-health-monitoring-prognostics-6efnf/

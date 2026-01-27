@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-receivables-management-market-digital-capabilities-w7lpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-atm-market-growth-drivers-segment-o2gdf/

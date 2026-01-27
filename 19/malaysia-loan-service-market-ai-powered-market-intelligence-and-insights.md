@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-loan-service-market-ai-powered-intelligence-6odxe/

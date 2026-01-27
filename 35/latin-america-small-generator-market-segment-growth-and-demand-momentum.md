@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-small-generator-market-segment-growth-ryl6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-grocery-delivery-software-market-xp2lc/

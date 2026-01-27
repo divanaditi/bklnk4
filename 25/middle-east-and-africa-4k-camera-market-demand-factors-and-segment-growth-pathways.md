@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-4k-camera-market-demand-factors-he8zf/

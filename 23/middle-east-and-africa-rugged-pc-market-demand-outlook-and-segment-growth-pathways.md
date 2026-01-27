@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rugged-pc-market-demand-vd6mf/

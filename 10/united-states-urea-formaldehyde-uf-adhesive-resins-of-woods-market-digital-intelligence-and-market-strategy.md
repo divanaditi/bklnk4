@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-urea-formaldehyde-uf-adhesive-resins-woods-yvozf/

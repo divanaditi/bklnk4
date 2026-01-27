@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-lane-type-automated-warehouse-system-market-technology-1wtxf/

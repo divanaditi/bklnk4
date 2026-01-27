@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-programmable-automation-controllers-pw7sf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mobile-accounting-apps-market-demand-idfcf/

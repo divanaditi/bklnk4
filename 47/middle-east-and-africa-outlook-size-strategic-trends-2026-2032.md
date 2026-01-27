@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-outlook-size-strategic-trends-m3lpf/

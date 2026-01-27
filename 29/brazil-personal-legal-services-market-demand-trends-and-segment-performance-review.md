@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-personal-legal-services-market-demand-trends-yk61f/

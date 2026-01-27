@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-electric-system-sales-market-oof4f/

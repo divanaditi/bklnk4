@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-door-position-switch-market-automation-digital-uuo9f/

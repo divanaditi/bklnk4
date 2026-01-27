@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-critical-illness-insurance-market-e9q2c/

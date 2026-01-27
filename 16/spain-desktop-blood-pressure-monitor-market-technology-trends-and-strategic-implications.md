@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-desktop-blood-pressure-monitor-market-technology-2otff/

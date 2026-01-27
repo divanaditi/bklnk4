@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-civilian-less-lethal-self-defense-weapons-5sakf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-programmable-rice-cookers-market-demand-outlook-l3sqc/

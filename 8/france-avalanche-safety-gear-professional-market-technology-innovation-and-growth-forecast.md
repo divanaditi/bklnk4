@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-avalanche-safety-gear-professional-market-7frff/

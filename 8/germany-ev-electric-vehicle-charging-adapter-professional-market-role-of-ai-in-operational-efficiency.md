@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ev-electric-vehicle-charging-adapter-professional-wc7pf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ic-card-management-system-market-demand-y3dkc/

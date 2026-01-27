@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-red-blue-light-therapy-device-2jlmf/

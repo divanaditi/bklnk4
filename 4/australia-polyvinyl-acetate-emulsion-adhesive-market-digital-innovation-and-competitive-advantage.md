@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-polyvinyl-acetate-emulsion-adhesive-market-digital-gasac/

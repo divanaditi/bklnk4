@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-language-learning-market-size-top-cl2gf/

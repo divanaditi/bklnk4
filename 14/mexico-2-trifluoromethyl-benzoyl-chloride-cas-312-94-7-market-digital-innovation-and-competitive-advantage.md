@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-trifluoromethylbenzoyl-chloride-cas-312-94-7-vvajc/

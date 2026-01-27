@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-table-base-market-demand-altac/

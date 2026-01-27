@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-h-d-cit-oh-cas-13594-51-9-market-smart-analytics-be2af/

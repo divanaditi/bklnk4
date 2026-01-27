@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-patio-stools-market-high-growth-segments-zlv0f/

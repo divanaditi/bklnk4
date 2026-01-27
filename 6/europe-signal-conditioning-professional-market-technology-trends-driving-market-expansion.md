@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-signal-conditioning-professional-market-7nfof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-player-tracking-system-market-demand-indicators-pbjdf/

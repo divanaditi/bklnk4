@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mil-connector-market-demand-yse2f/

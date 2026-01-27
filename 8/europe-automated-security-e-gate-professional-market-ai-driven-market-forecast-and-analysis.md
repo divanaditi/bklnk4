@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-automated-security-e-gate-professional-market-vp6nf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-womens-loafer-shoes-market-ai-analytics-driving-hsfxf/

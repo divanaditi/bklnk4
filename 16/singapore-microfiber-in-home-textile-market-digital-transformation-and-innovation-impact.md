@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microfiber-home-textile-market-digital-om7yf/

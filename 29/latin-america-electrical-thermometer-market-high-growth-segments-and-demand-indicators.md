@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electrical-thermometer-market-high-growth-ss1gc/

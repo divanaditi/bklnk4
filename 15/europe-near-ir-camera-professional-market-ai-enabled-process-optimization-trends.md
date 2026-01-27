@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-near-ir-camera-professional-market-ai-enabled-t5jnf/

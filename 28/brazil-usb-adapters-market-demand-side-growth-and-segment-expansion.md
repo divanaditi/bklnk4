@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-usb-adapters-market-demand-side-growth-segment-vsqvc/

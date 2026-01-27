@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-clothing-leather-market-digital-capabilities-gannf/

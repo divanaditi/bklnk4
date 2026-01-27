@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-photocuring-coating-market-size-growth-le6jf/

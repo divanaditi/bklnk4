@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-barcode-verification-market-rwhze/

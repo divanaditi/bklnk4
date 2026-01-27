@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ddgs-sales-market-ai-driven-operational-kxn8f/

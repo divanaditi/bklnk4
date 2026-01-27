@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-bathing-textile-market-role-ai-competitiveness-gb0bf/

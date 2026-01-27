@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-europe-jeans-market-size-2026-use-ovezf/

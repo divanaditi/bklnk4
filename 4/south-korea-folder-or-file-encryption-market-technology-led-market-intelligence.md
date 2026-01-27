@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-folder-file-encryption-market-technology-led-jrqcc/

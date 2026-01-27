@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cell-based-assay-equipment-market-automation-kd5wf/

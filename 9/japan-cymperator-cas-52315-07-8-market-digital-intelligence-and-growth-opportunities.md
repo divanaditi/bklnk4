@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cymperator-cas-52315-07-8-market-digital-intelligence-iuguf/

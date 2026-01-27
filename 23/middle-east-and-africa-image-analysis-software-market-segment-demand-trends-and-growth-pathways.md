@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-image-analysis-software-nrrvf/

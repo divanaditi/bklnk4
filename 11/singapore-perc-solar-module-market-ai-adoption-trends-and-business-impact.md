@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-perc-solar-module-market-ai-adoption-trends-business-ktacc/

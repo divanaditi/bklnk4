@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lentil-protein-market-size-2026-trends-l85mc/

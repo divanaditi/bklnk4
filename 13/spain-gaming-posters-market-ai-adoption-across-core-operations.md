@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-gaming-posters-market-ai-adoption-across-core-dqfgf/

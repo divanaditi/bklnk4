@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-laser-ablation-systems-professional-market-r7ilf/

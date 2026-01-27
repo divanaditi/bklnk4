@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-metal-clad-switchgear-market-segment-growth-3ffif/

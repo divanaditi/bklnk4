@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-clinical-trial-service-market-ai-impact-hf6zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-ultrasonic-cutting-system-market-ai-a6msf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-pva-sponge-spear-market-technology-trends-eyxuf/

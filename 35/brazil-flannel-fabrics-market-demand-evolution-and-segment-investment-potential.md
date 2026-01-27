@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-flannel-fabrics-market-demand-evolution-segment-6tlpf/

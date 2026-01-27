@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rapid-prototyping-equipment-market-demand-drivers-cozsf/

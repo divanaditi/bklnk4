@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-chloro-3-trifluoromethylbenzenesulfonyl-chloride-ocyif/

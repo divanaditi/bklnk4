@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-angiography-tables-market-demand-patterns-fpr6f/

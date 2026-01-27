@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wrist-prosthesis-system-market-demand-landscape-pcx6c/

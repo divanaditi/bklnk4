@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-well-logging-equipment-market-segment-level-giy5f/

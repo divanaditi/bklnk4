@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electrostatic-chucks-wafer-consumption-i7kof/

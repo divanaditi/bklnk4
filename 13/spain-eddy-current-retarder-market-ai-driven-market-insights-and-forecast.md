@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-eddy-current-retarder-market-ai-driven-insights-r8tnf/

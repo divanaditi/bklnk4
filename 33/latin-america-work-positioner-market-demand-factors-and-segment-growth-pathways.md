@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-work-positioner-market-demand-factors-4qske/

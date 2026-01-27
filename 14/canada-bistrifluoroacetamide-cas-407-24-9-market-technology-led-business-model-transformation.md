@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-bistrifluoroacetamide-cas-407-24-9-market-technology-led-1iwmc/

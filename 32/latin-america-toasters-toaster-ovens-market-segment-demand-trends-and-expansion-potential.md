@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-toasters-toaster-ovens-market-segment-i1k2e/

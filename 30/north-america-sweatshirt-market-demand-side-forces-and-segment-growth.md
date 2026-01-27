@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-sweatshirt-market-demand-side-forces-mekef/

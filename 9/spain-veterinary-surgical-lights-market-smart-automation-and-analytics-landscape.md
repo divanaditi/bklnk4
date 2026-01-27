@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-veterinary-surgical-lights-market-smart-6hobf/

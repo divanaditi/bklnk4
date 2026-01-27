@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-automotive-blockchain-market-demand-factors-ysmqf/

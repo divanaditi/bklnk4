@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-painted-metal-roofing-market-digital-capabilities-1gc1f/

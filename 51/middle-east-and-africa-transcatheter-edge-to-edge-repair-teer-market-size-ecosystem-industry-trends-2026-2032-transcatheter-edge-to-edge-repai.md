@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-transcatheter-edge-to-edge-3aagc/

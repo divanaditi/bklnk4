@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-cyclohexylthiophthalimide-cas-17796-82-6-e0zrc/

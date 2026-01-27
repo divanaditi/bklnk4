@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-core-banking-software-market-segment-pg10f/

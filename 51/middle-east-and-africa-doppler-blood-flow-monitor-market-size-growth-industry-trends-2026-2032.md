@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-doppler-blood-flow-monitor-market-kw8ec/

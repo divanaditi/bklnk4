@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-health-kiosk-market-size-ecosystem-rxa8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blood-analyser-market-growth-drivers-segment-acceleration-y5u9f/

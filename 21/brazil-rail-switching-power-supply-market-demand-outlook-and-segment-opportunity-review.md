@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rail-switching-power-supply-market-demand-lu1vf/

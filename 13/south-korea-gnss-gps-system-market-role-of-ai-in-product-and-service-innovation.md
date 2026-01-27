@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gnss-gps-system-market-role-ai-product-swzof/

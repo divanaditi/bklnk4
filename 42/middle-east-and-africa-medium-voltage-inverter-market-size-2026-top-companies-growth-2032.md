@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medium-voltage-inverter-market-size-y9rwc/

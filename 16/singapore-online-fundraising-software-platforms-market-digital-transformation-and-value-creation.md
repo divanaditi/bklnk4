@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-online-fundraising-software-platforms-lw9ef/

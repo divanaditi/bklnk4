@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cbd-vape-oils-market-technology-transformation-industry-ec7af/

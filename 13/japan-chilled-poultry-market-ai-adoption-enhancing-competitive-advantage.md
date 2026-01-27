@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chilled-poultry-market-ai-adoption-enhancing-jrkkf/

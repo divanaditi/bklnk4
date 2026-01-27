@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gmo-testing-market-size-trends-nmric/

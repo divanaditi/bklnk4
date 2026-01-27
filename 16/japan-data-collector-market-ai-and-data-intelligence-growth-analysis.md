@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-data-collector-market-ai-intelligence-growth-sld9f/

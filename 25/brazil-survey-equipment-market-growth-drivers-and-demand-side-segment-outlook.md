@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-survey-equipment-market-growth-drivers-demand-side-bofuf/

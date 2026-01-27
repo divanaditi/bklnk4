@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-accounting-bookkeeping-software-professional-h6tbf/

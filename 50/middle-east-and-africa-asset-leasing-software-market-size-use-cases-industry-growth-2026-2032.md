@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-asset-leasing-software-market-4tbmf/

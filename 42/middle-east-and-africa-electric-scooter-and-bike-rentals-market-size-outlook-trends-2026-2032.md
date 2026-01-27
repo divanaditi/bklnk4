@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-scooter-bike-rentals-mrm4c/

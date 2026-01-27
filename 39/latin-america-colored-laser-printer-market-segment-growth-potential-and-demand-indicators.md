@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-colored-laser-printer-market-segment-growth-sdyaf/

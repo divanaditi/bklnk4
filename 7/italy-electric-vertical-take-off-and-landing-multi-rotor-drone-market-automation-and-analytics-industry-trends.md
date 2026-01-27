@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-electric-vertical-take-off-landing-multi-rotor-hktif/

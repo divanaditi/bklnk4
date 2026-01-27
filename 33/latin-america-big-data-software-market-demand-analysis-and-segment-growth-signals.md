@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-big-data-software-market-demand-analysis-foqce/

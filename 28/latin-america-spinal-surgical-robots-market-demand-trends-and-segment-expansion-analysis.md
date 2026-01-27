@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spinal-surgical-robots-5fqrc/

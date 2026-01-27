@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-iot-internet-things-public-safety-mc6dc/

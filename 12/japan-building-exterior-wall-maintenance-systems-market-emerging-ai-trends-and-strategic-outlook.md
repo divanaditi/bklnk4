@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-building-exterior-wall-maintenance-systems-xpjtf/

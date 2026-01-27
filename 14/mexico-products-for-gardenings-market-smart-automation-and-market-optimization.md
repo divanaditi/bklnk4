@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-products-gardenings-market-smart-automation-bb0cc/

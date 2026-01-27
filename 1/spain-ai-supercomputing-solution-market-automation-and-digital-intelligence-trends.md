@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-supercomputing-solution-market-automation-r8qrf/

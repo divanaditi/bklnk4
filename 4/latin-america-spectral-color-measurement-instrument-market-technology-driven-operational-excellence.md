@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spectral-color-measurement-instrument-js2gf/

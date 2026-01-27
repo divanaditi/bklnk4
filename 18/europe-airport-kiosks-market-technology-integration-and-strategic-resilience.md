@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-airport-kiosks-market-technology-integration-strategic-v20df/

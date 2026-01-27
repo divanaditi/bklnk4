@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-24-difluoropropiophenone-cas-85068-30-0-cdegf/

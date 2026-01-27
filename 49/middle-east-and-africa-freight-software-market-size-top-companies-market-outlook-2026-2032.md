@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-freight-software-market-size-top-companies-jaraf/

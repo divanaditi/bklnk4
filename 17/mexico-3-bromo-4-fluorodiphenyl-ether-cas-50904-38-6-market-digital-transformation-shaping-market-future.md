@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-bromo-4-fluorodiphenyl-ether-cas-50904-38-6-6ekgc/

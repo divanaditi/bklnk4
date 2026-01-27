@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-slot-machines-professional-market-technology-innovation-vow7f/

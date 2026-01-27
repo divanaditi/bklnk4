@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-interactive-promotion-platform-market-ai-emerging-tot6f/

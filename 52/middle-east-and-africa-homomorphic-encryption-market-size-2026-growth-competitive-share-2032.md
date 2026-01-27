@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-homomorphic-encryption-market-w8p0e/

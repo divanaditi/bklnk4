@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-griddles-market-impact-ai-digital-transformation-ap9lf/

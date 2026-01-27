@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-capolyte-cp-resin-market-segment-growth-yqjhc/

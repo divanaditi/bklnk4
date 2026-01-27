@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-firefighting-foam-market-demand-wf6tf/

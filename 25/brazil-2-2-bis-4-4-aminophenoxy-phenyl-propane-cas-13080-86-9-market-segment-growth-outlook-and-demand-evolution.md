@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-22-bis4-4-aminophenoxyphenylpropane-cas-13080-86-9-yxdxf/

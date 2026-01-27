@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-pouch-cell-final-vacuum-sealing-machine-iugdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-diesel-genset-rental-professional-market-dmtcc/

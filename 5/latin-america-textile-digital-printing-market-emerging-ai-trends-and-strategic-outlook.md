@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-textile-digital-printing-market-emerging-tyorc/

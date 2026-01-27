@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ai-computer-vision-market-u6exf/

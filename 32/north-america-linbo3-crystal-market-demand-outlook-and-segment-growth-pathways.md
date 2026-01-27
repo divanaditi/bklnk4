@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-linbo3-crystal-market-demand-outlook-mmqlf/

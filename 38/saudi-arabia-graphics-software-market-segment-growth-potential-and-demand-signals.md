@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-graphics-software-market-q7tsc/

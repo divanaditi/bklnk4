@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-enterprise-agile-transformation-elqgc/

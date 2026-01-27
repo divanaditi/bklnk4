@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-medical-facility-handles-market-growth-ew0if/

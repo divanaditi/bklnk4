@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-vinyl-isobutyl-ether-cas-109-53-5-iyzpf/

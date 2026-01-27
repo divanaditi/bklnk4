@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-solar-powered-fans-market-size-2026-j5p8f/

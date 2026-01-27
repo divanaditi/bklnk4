@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dimethyl-nitroterephthalate-cas-5292-45-5-vhykc/

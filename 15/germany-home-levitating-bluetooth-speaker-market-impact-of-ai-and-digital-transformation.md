@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-home-levitating-bluetooth-speaker-market-impact-fnkof/

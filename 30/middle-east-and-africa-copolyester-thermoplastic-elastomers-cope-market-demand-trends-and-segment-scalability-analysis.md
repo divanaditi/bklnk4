@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-copolyester-thermoplastic-elastomers-b5a1f/

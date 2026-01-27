@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-bromo-6-chloro-4-trifluoromethylaniline-cas-dngyf/

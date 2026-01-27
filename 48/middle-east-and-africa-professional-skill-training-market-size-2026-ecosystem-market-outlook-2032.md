@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-professional-skill-training-market-6qvsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-pallet-pooling-system-rental-market-zajef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-power-optimizer-resident-market-high-growth-4quic/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-gelatin-based-capsules-market-demand-outlook-high-growth-zi6lf/

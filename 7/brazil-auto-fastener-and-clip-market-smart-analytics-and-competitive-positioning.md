@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-auto-fastener-clip-market-smart-analytics-f01rf/

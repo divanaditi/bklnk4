@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-inspection-robotics-oil-gas-market-5edbf/

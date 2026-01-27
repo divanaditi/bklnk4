@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-data-center-fabric-architecture-market-technology-o51ff/

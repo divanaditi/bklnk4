@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-cameras-sales-market-demand-ayh0f/

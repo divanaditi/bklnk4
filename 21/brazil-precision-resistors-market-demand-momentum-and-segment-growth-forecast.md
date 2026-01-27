@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-precision-resistors-market-demand-momentum-segment-qunof/

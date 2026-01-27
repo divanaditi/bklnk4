@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-glass-tv-cabine-market-automation-digital-capabilities-nv4gf/

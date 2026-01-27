@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-printers-market-segment-growth-tvrjc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-biological-sterilization-indicating-equipment-oevwf/

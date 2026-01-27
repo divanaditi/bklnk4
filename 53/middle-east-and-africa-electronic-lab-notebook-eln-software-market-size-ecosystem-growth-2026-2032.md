@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electronic-lab-notebook-eln-software-18phf/

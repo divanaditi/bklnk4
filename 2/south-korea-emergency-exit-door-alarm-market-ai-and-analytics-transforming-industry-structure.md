@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emergency-exit-door-alarm-market-ai-7e0wc/

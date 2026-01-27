@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-talazoparib-market-demand-r2k8c/

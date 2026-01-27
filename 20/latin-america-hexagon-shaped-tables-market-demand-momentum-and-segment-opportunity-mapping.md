@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hexagon-shaped-tables-market-demand-ka2pf/

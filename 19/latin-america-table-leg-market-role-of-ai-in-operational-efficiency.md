@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-table-leg-market-role-ai-operational-efficiency-ooese/

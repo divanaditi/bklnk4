@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-top-grade-beef-market-ai-led-operational-lmdbf/

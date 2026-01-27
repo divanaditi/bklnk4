@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-n-4-cyano-3-trifluoromethylphenylmethacrylamide-rdguf/

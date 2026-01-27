@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-rs-485-interface-market-technology-qpzyf/

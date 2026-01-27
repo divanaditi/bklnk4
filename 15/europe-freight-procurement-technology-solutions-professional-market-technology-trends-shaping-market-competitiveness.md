@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-freight-procurement-technology-solutions-professional-wgvdf/

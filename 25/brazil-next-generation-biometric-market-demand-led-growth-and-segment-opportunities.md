@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-next-generation-biometric-market-demand-led-pbmxf/

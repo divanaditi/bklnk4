@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-truck-shock-absorber-market-segment-fppaf/

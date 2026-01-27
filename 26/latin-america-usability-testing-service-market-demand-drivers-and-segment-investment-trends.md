@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-usability-testing-service-market-demand-rmb4c/

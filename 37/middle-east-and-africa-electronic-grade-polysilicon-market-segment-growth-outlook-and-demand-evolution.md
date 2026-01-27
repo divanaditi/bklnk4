@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electronic-grade-polysilicon-smv7e/

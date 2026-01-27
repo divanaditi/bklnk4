@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-medical-device-analytical-testing-outsourcing-ntvjf/

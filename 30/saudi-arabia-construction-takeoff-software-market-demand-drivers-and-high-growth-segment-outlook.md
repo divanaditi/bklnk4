@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-construction-takeoff-software-market-yfy9f/

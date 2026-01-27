@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-adaptive-equipment-market-digital-innovation-inaqf/

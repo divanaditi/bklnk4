@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-portable-data-terminals-market-technology-hwy1f/

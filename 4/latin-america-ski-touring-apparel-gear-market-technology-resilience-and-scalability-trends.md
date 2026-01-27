@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ski-touring-apparel-gear-market-technology-vvuif/

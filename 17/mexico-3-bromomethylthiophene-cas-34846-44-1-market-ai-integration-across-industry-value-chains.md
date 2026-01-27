@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-bromomethylthiophene-cas-34846-44-1-market-ck2cc/

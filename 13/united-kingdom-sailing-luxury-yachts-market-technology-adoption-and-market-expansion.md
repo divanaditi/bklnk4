@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-sailing-luxury-yachts-market-technology-4ytvf/

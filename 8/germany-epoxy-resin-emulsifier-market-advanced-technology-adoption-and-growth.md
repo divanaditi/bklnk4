@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-epoxy-resin-emulsifier-market-advanced-2qwaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multipolar-magnetizing-fixture-market-y4jdf/

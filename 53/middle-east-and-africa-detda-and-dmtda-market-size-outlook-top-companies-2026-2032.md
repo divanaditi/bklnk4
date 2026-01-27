@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-detda-dmtda-market-size-outlook-c94ef/

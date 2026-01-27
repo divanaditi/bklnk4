@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-trichloroacetylpyrrole-cas-35302-72-8-kllnc/

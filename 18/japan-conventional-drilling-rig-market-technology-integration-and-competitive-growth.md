@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-conventional-drilling-rig-market-technology-cgctf/

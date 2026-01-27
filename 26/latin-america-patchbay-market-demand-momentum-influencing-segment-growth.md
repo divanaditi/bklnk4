@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-patchbay-market-demand-momentum-esmsc/

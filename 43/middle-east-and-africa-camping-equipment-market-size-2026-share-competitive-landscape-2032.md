@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-camping-equipment-market-size-uvuzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-aviation-purchasing-platform-market-ai-tvsrf/

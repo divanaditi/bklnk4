@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-distribution-panel-market-growth-drivers-segment-qmi7f/

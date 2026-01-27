@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-content-collaboration-market-demand-factors-fhy5f/

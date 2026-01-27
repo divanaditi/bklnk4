@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-4-isopropylphenylisobutyraldehyde-cas-c8lsf/

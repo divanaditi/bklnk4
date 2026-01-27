@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-invertase-professional-market-technology-innovation-wvx0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-industrial-powder-coating-market-smart-hq2uf/

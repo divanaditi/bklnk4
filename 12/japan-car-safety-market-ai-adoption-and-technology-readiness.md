@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-safety-market-ai-adoption-technology-qzl9f/

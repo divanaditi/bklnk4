@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-workwear-boots-market-digital-innovation-9hj1f/

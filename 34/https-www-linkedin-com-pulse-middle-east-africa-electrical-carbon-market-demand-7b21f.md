@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electrical-carbon-market-demand-7b21f/

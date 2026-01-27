@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-crowdfunding-market-size-2026-exzaf/

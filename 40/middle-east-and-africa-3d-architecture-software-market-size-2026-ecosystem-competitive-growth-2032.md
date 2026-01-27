@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-3d-architecture-software-market-size-2026-eyfdf/

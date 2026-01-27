@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-frp-poles-market-size-2026-outlook-vlx1f/

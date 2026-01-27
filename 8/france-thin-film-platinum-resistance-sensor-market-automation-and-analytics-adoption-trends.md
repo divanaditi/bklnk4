@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-thin-film-platinum-resistance-sensor-market-iallf/

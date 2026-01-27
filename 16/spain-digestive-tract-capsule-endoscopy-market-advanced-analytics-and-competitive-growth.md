@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-digestive-tract-capsule-endoscopy-market-advanced-cdirf/

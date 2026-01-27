@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-mobile-device-charge-cart-market-digital-transformation-w1tbf/

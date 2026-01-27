@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-e-wax-market-smart-technologies-productivity-x7u1f/

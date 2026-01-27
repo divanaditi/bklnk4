@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bubble-column-bioreactor-market-growth-catalysts-ejmnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-countries-sarcosine-based-amino-acid-surfactant-7k6dc/

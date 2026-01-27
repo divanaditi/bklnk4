@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-weaving-equipment-market-demand-supported-n9mhc/

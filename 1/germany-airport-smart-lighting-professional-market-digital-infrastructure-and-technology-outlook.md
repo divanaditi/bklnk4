@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-airport-smart-lighting-professional-market-digital-hdmqf/

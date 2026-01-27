@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-power-tools-market-demand-forces-high-growth-wdgwf/

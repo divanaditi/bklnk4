@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-audio-mems-speaker-market-technology-innovation-dsscf/

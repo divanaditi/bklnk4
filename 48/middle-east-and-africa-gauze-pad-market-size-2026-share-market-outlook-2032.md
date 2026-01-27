@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gauze-pad-market-size-2026-ypanf/

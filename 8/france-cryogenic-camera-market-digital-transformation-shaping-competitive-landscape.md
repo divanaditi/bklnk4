@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cryogenic-camera-market-digital-transformation-wskef/

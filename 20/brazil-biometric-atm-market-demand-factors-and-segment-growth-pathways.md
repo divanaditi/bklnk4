@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-biometric-atm-market-demand-factors-segment-33g5f/

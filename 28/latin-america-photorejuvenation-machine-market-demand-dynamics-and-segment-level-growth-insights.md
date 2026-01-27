@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-photorejuvenation-machine-market-demand-1uagc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ligation-clips-market-demand-landscape-segment-bmhuf/

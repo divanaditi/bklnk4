@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enterprise-infrastructure-market-demand-dynamics-b0egf/

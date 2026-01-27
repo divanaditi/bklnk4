@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-evaporative-air-coolers-market-b9kpe/

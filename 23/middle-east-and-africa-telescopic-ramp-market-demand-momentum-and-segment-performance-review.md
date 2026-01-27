@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telescopic-ramp-market-demand-momentum-slqjf/

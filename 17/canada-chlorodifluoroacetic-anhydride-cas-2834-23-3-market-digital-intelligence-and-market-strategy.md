@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-chlorodifluoroacetic-anhydride-cas-2834-23-3-8ujmc/

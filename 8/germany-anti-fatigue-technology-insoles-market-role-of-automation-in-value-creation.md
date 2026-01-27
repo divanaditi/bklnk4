@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-anti-fatigue-technology-insoles-market-99rlf/

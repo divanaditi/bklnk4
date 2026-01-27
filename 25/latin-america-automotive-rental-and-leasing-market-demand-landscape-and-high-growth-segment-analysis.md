@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-rental-leasing-market-demand-dfpuc/

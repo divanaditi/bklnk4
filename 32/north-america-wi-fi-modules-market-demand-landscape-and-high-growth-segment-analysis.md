@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wi-fi-modules-market-demand-landscape-4ll2f/

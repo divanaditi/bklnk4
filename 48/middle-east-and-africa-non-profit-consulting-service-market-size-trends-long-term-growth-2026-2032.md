@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-non-profit-consulting-service-market-xmwzf/

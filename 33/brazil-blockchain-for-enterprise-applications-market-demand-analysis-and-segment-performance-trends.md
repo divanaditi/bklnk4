@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blockchain-enterprise-applications-market-cuwue/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-lightweight-machine-to-machine-lwm2m-professional-tod7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-regression-testing-service-market-demand-dgltf/

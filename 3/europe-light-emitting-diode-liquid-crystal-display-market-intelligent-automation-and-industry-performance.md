@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-light-emitting-diode-liquid-crystal-display-9narf/

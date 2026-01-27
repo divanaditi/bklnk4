@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-low-resistance-ito-glass-market-demand-quvmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-infrared-therapy-apparatus-market-ai-adoption-ysksf/

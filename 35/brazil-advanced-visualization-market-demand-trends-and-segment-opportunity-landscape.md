@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-advanced-visualization-market-demand-trends-4dqsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-sensor-market-size-2026-outlook-dmovf/

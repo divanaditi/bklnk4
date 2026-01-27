@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-artificial-intelligence-head-neck-screening-tgzjf/

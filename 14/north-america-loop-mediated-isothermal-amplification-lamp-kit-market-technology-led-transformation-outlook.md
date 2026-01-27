@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-loop-mediated-isothermal-amplification-kwgyc/

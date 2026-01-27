@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-top-companies-size-competitive-8cvqf/

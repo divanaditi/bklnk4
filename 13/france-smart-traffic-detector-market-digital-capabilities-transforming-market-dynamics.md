@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-traffic-detector-market-digital-capabilities-8dgaf/

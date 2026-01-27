@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-podiatry-emr-software-market-high-growth-wqt6f/

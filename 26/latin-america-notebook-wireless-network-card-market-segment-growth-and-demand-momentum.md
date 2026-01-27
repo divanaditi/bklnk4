@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-notebook-wireless-network-card-market-3p5bc/

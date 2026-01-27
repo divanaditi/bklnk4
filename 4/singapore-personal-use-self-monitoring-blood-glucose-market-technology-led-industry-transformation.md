@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-personal-use-self-monitoring-blood-glucose-9ls7c/

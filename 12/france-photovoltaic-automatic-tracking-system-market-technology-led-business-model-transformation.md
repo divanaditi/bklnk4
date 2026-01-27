@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-photovoltaic-automatic-tracking-system-market-technology-led-8d3ec/

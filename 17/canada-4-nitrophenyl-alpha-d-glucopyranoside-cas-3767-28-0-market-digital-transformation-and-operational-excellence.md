@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-nitrophenyl-alpha-d-glucopyranoside-snpic/

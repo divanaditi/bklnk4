@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-diamond-gemstone-market-size-top-x6mbc/

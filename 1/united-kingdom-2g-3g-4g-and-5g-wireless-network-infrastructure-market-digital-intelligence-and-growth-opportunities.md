@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-2g-3g-4g-5g-wireless-network-infrastructure-rqkof/

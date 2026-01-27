@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fixed-height-tripod-jack-market-demand-d5nkf/

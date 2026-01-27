@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hole-amount-market-technology-trends-jtxzf/

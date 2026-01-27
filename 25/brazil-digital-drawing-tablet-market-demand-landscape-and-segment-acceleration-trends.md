@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-drawing-tablet-market-demand-landscape-ngupf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-block-nbr-market-advanced-technologies-iaclf/

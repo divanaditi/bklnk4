@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-factor-viii-market-segment-growth-fueled-demand-snbqf/

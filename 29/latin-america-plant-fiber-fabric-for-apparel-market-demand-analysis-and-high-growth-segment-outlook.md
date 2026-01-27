@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-plant-fiber-fabric-apparel-market-demand-cwmbc/

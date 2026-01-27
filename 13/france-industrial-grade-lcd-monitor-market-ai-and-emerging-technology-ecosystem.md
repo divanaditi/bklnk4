@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-grade-lcd-monitor-market-ai-emerging-vfkcf/

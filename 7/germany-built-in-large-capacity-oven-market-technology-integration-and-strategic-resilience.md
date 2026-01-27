@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-built-in-large-capacity-oven-market-ablff/

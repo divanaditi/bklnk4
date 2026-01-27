@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ct-scanners-pet-market-ai-automation-de8lf/

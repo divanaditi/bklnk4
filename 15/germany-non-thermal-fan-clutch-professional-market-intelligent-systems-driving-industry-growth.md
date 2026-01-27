@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-non-thermal-fan-clutch-professional-market-pn64f/

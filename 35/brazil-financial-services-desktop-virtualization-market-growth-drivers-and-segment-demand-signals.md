@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-financial-services-desktop-virtualization-sgxuf/

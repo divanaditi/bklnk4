@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-multifunctional-truck-market-gom8f/

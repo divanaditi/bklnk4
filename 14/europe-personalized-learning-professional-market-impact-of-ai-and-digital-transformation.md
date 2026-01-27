@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personalized-learning-professional-market-impact-hut0c/

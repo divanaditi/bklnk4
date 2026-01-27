@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-voice-prosthesis-devices-market-segment-level-c8ejf/

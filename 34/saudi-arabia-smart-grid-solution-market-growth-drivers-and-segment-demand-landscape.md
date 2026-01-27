@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-smart-grid-solution-market-growth-drivers-jpwof/

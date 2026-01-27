@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-commercial-parachute-market-demand-supported-lwsbf/

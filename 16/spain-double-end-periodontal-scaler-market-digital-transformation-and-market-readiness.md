@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-double-end-periodontal-scaler-market-digital-w5fuf/

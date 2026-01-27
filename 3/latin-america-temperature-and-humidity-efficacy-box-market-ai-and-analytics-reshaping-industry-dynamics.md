@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-temperature-humidity-efficacy-i3olf/

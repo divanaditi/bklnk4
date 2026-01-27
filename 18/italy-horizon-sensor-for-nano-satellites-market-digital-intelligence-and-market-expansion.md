@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-horizon-sensor-nano-satellites-market-digital-intelligence-arb6f/

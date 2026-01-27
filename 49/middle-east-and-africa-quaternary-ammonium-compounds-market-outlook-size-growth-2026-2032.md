@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-quaternary-ammonium-compounds-k7jxf/

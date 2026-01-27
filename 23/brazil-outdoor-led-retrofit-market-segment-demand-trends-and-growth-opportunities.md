@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-outdoor-led-retrofit-market-segment-demand-w85wf/

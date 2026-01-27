@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cloud-fax-professional-market-intelligent-uqktf/

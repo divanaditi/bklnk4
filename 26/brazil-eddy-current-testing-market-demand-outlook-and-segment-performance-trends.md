@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-eddy-current-testing-market-demand-outlook-segment-0vpuc/

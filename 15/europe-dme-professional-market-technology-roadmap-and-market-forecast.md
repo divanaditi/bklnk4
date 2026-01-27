@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-dme-professional-market-technology-roadmap-c2dcf/

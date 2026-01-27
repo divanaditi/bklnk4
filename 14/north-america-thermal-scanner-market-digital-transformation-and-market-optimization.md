@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermal-scanner-market-digital-transformation-aootc/

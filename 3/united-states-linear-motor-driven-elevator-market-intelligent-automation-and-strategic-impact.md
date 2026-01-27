@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-linear-motor-driven-elevator-market-intelligent-xyusf/

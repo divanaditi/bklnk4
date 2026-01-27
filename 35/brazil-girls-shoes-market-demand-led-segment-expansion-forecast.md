@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-girls-shoes-market-demand-led-segment-expansion-se2mf/

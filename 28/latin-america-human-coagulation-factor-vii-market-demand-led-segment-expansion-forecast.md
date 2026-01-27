@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-human-coagulation-factor-vii-market-demand-led-mnfac/

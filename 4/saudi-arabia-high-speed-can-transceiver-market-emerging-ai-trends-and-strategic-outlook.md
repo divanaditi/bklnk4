@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-high-speed-can-transceiver-market-emerging-gdhef/

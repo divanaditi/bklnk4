@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-restaurant-thermal-receipt-printer-market-wsbyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-silicon-platform-market-segment-growth-ripvc/

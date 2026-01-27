@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-znse-focus-lens-market-ai-impact-structure-dauef/

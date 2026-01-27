@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-table-freeze-drier-market-demand-drivers-oxtif/

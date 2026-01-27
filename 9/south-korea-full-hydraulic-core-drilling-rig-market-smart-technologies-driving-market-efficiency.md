@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-full-hydraulic-core-drilling-rig-eh1df/

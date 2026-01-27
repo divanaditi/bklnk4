@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bidirectional-v2g-market-ai-analytics-enhancing-qrmsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-handheld-computer-market-si3jf/

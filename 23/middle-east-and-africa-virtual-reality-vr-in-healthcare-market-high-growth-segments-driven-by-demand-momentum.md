@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-virtual-reality-vr-healthcare-0zbwf/

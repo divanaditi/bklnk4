@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personalization-engines-software-professional-ndbif/

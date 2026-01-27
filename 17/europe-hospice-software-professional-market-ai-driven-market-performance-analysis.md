@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-hospice-software-professional-market-ai-driven-kxnmf/

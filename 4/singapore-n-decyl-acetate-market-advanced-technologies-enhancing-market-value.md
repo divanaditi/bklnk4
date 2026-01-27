@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-n-decyl-acetate-market-advanced-technologies-xwjgc/

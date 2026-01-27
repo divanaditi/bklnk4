@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-x-ray-inspection-systems-food-industrial-market-fm7cf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-secured-personal-loans-market-digital-capabilities-jgxdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-3-5-difluorophenol-cas-2713-34-0-market-hjsef/

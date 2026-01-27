@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bulletproof-backpacks-market-growth-drivers-zjqve/

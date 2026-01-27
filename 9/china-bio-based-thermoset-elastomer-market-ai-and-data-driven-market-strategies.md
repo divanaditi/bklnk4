@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bio-based-thermoset-elastomer-market-ai-j28if/

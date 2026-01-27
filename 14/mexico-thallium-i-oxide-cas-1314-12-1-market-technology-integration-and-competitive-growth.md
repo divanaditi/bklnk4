@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-thallium-i-oxide-cas-1314-12-1-market-technology-lhxmc/

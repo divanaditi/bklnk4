@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-near-infrared-spectroscopy-nir-analyzers-zpyif/

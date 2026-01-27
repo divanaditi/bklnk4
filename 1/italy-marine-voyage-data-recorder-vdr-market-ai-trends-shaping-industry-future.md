@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-marine-voyage-data-recorder-vdr-market-ai-trends-upd0f/

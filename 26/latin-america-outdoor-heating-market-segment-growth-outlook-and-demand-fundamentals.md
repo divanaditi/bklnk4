@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-outdoor-heating-market-segment-growth-tgsfc/

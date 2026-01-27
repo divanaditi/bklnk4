@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-foodservice-equipment-pizzeria-gx2vf/

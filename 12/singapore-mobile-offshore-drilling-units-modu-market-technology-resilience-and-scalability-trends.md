@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-offshore-drilling-6v5kf/

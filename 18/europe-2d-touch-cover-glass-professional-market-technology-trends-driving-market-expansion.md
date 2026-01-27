@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-2d-touch-cover-glass-professional-market-technology-kliuf/

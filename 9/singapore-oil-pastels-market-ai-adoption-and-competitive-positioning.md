@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oil-pastels-market-ai-adoption-6g3wf/

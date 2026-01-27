@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-aerospace-industry-temperature-probes-ft7qe/

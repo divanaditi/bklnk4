@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hotel-management-tools-market-segment-cw6jc/

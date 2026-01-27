@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-us-vacation-ownership-timeshare-market-vfrxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-rights-management-market-demand-pqkbf/

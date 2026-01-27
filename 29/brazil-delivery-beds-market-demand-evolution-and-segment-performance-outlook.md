@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-delivery-beds-market-demand-4lrfc/

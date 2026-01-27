@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-design-systems-software-market-cejwf/

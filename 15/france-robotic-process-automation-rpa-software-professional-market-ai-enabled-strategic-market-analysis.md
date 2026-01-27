@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-robotic-process-automation-rpa-software-professional-hfxwf/

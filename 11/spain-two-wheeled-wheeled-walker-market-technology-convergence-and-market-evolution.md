@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-two-wheeled-wheeled-walker-market-technology-wizvf/

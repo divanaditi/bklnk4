@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dye-sublimation-printer-market-demand-momentum-jicbf/

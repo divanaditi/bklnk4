@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-precision-aquaculture-2udlf/

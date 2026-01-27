@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ecg-devices-market-high-growth-segments-vw3kf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-permanent-magnet-synchronous-pitch-motor-market-kzlxf/

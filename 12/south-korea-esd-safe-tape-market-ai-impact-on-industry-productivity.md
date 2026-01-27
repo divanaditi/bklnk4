@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-esd-safe-tape-market-ai-impact-industry-finzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flame-scanners-detector-market-6051f/

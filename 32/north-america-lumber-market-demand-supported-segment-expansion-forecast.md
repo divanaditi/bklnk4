@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-lumber-market-demand-supported-segment-102ef/

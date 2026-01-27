@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-refrigerated-food-storage-market-digital-g3nwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bedside-terminal-market-growth-drivers-cnvrf/

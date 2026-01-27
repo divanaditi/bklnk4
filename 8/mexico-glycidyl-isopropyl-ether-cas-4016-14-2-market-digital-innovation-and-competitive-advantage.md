@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-glycidyl-isopropyl-ether-cas-4016-14-2-market-axeuf/

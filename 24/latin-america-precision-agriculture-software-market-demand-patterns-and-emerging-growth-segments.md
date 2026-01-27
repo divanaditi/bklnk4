@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-precision-agriculture-software-market-demand-nwfvc/

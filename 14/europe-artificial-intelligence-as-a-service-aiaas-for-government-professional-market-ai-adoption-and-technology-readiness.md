@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-artificial-intelligence-service-aiaas-government-0drkc/

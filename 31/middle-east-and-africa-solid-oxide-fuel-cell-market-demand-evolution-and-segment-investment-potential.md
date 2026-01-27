@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-solid-oxide-fuel-cell-market-demand-wyzsf/

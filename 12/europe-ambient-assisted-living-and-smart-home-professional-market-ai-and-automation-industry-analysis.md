@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ambient-assisted-living-smart-home-professional-2wrcc/

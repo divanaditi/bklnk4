@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-d-fructose-6-phosphate-disodium-salt-cas-jgskf/

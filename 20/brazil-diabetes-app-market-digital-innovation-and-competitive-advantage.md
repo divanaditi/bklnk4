@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diabetes-app-market-digital-innovation-competitive-nhvhe/

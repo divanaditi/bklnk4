@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-power-inverter-accessories-market-growth-drivers-j9inc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dual-channel-vehicle-detector-market-ai-myqef/

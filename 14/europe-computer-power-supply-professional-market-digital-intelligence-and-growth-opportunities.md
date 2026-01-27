@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-computer-power-supply-professional-market-9tpgc/

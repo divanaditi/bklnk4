@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fabric-inspection-machines-57ghc/

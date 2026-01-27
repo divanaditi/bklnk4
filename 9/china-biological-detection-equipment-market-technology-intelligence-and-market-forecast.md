@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-biological-detection-equipment-market-technology-qsx7f/

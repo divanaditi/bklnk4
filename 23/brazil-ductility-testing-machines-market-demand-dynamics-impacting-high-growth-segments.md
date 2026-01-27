@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ductility-testing-machines-market-demand-hstjf/

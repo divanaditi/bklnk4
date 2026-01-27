@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shimmering-powder-market-demand-landscape-nk9hc/

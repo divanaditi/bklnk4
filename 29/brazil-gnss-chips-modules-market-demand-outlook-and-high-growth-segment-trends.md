@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gnss-chips-modules-market-demand-outlook-high-growth-ugaaf/

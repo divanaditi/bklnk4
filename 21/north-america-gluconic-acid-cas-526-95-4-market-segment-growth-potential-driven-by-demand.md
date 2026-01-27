@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gluconic-acid-cas-526-95-4-market-ilvaf/

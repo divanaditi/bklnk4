@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-elastography-system-market-segment-jet8c/

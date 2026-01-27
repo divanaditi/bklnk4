@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-tractor-rental-market-demand-analysis-o2k6c/

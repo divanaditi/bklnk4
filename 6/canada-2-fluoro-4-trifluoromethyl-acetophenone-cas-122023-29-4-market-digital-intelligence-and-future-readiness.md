@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-fluoro-4-trifluoromethylacetophenone-cas-122023-29-4-gmkuf/

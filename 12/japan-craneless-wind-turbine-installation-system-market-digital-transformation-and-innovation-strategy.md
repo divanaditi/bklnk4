@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-craneless-wind-turbine-installation-system-i7v2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-marine-telematics-market-strategic-demand-z3o5f/

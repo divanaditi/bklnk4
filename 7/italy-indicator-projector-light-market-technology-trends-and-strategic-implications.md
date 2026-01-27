@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-indicator-projector-light-market-technology-hjtzf/

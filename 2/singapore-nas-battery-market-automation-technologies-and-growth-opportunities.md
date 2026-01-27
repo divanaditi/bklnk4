@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nas-battery-market-automation-technologies-v7hac/

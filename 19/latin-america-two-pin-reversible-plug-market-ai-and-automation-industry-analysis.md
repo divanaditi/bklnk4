@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-two-pin-reversible-plug-market-ai-automation-eebve/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-contactless-broken-tool-detector-market-msn5f/

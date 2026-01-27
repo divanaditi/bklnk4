@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-circumcision-suture-device-market-automation-fligf/

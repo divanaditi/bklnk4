@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-software-defined-storage-professional-09xyf/

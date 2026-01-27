@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-engineering-software-cad-cam-cae-983rf/

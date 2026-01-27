@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blood-glucose-testing-equipment-market-growth-pclhf/

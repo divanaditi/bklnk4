@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-sodium-salt-polyaspartic-oow2f/

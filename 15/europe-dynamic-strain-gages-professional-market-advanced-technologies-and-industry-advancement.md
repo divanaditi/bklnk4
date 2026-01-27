@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-dynamic-strain-gages-professional-market-advanced-ecwff/

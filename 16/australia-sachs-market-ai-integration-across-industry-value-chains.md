@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-sachs-market-ai-integration-across-industry-ziipf/

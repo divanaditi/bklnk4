@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-riveting-robots-market-high-growth-dp7qf/

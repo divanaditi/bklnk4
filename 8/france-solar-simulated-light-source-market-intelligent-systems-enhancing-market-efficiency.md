@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-solar-simulated-light-source-market-xx3nf/

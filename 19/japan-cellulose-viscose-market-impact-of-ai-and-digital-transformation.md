@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cellulose-viscose-market-impact-ai-digital-zgzwf/

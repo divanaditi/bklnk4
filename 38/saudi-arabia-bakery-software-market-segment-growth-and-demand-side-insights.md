@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-bakery-software-market-segment-growth-dlx0c/

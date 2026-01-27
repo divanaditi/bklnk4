@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heated-roll-laminator-market-demand-landscape-qgidf/

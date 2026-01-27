@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vertical-pouch-packing-machine-market-hmfrf/

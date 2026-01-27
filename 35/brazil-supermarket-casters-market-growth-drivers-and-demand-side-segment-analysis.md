@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-supermarket-casters-market-growth-drivers-demand-side-y9awf/

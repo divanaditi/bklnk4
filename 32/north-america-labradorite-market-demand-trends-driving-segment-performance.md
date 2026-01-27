@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-labradorite-market-demand-trends-driving-segment-y3gxf/

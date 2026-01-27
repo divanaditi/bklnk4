@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-woven-fabrics-man-made-filaments-staple-z7vff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-intelligent-parking-market-demand-6dyzf/

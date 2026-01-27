@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dimethyl-isophthalate-market-growth-drivers-rvkwe/

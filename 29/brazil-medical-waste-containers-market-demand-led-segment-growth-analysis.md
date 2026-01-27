@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-waste-containers-market-demand-led-segment-dvkgc/

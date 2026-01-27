@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-oil-field-fracturing-mobile-gas-turbine-genset-a5naf/

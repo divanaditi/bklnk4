@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-door-sensors-market-high-growth-segments-3uajf/

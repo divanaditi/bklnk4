@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-caravan-park-market-high-growth-segments-driven-97ycf/

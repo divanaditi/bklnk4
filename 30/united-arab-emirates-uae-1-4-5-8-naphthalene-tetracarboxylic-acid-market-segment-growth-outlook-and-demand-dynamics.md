@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-1-4-5-8-naphthalene-tetracarboxylic-ohfuf/

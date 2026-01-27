@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-bromo-3-chlorophenyl-isothiocyanate-cas-yu3vc/

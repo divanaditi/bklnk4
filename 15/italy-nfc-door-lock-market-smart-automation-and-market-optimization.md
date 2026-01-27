@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-nfc-door-lock-market-smart-automation-mm90f/

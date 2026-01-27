@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-consumer-identity-access-management-market-bnjof/

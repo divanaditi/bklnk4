@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-quoting-software-market-size-top-companies-3l1wf/

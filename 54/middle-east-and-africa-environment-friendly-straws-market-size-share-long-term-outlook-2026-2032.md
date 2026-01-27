@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-environment-friendly-straws-market-d0gaf/

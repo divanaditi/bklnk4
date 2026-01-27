@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-notebooks-market-size-growth-c1h2c/

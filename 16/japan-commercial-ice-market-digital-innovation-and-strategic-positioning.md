@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-ice-market-digital-innovation-bdpyf/

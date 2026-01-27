@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-real-time-analytics-market-segment-growth-fueled-zqief/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-visual-fault-identifier-market-ai-impact-hohwf/

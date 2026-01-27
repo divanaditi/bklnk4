@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-light-vehicle-active-safety-systems-professional-1vjef/

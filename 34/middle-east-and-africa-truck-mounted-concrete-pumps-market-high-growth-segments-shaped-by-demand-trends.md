@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-truck-mounted-concrete-pumps-market-mxqjf/

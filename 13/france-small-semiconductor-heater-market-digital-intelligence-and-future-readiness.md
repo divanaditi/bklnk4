@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-small-semiconductor-heater-market-digital-is7yf/

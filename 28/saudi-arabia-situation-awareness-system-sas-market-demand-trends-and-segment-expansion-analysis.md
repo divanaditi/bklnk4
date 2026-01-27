@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-situation-awareness-system-sas-market-nuycf/

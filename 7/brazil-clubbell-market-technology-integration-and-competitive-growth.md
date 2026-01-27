@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clubbell-market-technology-integration-sdcvf/

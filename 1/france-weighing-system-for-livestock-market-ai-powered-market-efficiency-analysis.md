@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-weighing-system-livestock-market-ai-powered-u0hwf/

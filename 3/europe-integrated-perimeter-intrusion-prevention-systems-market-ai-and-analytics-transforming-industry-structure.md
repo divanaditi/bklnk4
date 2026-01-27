@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-integrated-perimeter-intrusion-prevention-systems-w6pmf/

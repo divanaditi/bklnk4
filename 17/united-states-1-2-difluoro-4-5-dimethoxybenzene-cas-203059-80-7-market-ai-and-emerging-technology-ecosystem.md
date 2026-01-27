@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-12-difluoro-45-dimethoxybenzene-cas-203059-80-7-toe2c/

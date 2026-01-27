@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-bias-otr-tires-professional-market-intelligent-kao3f/

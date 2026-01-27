@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-snow-gauges-market-digital-platforms-rsmqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-light-sensors-market-demand-patterns-driving-segment-zsecf/

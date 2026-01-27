@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-drone-technology-market-smart-impact-povjf/

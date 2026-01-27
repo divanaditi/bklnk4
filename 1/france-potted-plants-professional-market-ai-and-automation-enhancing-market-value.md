@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-potted-plants-professional-market-ai-automation-dqvnf/

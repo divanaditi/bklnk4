@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-virtual-call-center-voc-software-ka7wf/

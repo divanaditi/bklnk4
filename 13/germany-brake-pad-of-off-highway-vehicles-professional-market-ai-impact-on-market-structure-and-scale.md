@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-brake-pad-off-highway-vehicles-professional-hfwtf/

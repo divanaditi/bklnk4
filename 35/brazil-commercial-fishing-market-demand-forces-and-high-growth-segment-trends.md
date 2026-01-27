@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-fishing-market-demand-forces-high-growth-ocaaf/

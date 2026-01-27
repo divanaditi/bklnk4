@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pentadecafluorooctanoyl-chloride-cas-nxqjf/

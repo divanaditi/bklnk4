@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-large-area-tft-lcd-panel-market-ai-powered-efficiency-4iczf/

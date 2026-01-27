@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-data-infrastructure-market-technology-convergence-jnuyf/

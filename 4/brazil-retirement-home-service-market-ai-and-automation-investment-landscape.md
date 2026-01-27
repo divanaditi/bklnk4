@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-retirement-home-service-market-ai-automation-investment-ljsbf/

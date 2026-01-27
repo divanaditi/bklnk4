@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-adenosine-triphosphate-test-kits-market-zp8zf/

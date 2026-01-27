@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-computer-network-adapters-market-segment-demand-nrf4f/

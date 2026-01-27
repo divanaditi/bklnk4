@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electronic-fetal-monitoring-efm-1r44c/

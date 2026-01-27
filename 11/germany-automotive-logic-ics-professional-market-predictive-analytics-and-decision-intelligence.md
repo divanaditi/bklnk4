@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-logic-ics-professional-market-yrc4c/

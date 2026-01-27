@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-high-temperature-resin-market-lz6wc/

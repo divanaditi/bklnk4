@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-casual-dining-professional-market-ai-enabled-kpnvf/

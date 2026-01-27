@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-analog-ic-test-system-market-ai-adoption-technology-7bmlc/

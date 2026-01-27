@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coloscope-market-ai-adoption-transformation-py1vf/

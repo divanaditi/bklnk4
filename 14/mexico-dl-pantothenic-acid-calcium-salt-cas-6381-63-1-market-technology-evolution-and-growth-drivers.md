@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-dl-pantothenic-acid-calcium-salt-cas-6381-63-1-ax2fc/

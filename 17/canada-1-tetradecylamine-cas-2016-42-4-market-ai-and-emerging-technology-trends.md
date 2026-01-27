@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-tetradecylamine-cas-2016-42-4-market-azeqc/

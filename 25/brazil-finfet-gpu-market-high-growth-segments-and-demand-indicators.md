@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-finfet-gpu-market-high-growth-segments-demand-mizrf/

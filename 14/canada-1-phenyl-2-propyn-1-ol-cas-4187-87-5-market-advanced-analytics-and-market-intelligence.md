@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-phenyl-2-propyn-1-ol-cas-4187-87-5-ysytc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-solar-thermal-collectors-market-ai-uzhkc/

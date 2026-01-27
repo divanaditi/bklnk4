@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-barrier-co-extruded-film-market-automation-analytics-9en5f/

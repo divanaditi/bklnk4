@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ankle-trainer-market-automation-digital-intelligence-zylxf/

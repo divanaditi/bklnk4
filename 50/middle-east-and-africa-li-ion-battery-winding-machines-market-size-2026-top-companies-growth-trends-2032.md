@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-li-ion-battery-winding-machines-tc6rf/

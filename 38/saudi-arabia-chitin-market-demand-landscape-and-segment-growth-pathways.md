@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-chitin-market-demand-landscape-segment-veemc/

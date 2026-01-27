@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-single-door-hinges-market-growth-i5vjf/

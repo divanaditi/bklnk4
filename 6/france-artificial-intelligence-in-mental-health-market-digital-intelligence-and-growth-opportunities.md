@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-artificial-intelligence-mental-health-market-mh6hf/

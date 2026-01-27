@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-geomembrane-market-ai-enabled-efficiency-gvvgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-unmanned-surface-vehicles-usv-defense-a0dof/

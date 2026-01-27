@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-nitrophenyl-beta-l-fucopyranoside-cas-22153-71-5-1zwkf/

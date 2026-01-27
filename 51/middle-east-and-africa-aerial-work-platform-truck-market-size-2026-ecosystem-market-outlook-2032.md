@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerial-work-platform-truck-market-3uqaf/

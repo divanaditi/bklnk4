@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-purchasing-software-market-demand-7wdnf/

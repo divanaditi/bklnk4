@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-hospitality-learning-management-systems-software-te6wf/

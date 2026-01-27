@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-out-of-home-food-beverages-market-technology-lp2yc/

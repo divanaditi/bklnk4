@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-temperature-monitoring-market-e3qbc/

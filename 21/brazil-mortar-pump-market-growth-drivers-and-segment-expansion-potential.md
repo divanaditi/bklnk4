@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mortar-pump-market-growth-drivers-segment-eappf/

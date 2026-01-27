@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-perovskites-market-demand-drivers-segment-nwc8c/

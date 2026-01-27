@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-household-shredder-market-ai-powered-efficiency-rdwsf/

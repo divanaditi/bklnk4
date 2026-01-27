@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-evaporative-cooling-towers-market-high-growth-chw4f/

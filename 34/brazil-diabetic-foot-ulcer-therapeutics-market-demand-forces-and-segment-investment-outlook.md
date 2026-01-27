@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diabetic-foot-ulcer-therapeutics-market-skgwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radiotherapy-equipment-market-demand-patterns-8ykdc/

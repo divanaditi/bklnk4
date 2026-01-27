@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ecosystem-size-share-2026-2032-yf76c/

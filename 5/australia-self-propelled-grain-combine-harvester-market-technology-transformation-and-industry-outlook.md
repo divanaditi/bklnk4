@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-self-propelled-grain-combine-harvester-97o4c/

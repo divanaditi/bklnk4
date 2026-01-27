@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-switch-market-ai-powered-efficiency-s7bff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-polyglyceryl-4-laurate-market-technology-j6uhc/

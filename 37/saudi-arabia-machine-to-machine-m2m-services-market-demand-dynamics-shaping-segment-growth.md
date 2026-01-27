@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-machine-m2m-services-market-demand-dynamics-s2zxc/

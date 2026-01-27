@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-low-temperature-capacitive-sensor-market-mmf0e/

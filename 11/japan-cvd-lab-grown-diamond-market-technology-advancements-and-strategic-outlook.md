@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cvd-lab-grown-diamond-market-technology-vumrf/

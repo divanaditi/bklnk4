@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-socially-assistivehealthcare-assistive-8sgvc/

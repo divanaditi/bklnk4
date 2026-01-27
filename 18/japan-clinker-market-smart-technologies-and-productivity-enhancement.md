@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-clinker-market-smart-technologies-productivity-36fkf/

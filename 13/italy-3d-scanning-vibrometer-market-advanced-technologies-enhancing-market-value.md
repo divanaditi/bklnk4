@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-3d-scanning-vibrometer-market-advanced-technologies-7udkf/

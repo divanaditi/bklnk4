@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-toilet-partitions-market-demand-landscape-dlrae/

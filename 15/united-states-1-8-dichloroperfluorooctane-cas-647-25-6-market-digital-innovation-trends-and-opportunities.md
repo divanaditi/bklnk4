@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-18-dichloroperfluorooctane-cas-647-25-6-jt45f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-2-iodoacetamide-cas-144-48-9-market-q3ccf/

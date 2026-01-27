@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-licensed-merchandise-market-sd7if/

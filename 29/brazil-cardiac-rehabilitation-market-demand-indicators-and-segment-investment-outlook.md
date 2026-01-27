@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cardiac-rehabilitation-market-demand-indicators-0arcc/

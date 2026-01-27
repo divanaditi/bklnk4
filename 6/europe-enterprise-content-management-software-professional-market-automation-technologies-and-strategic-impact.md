@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-enterprise-content-management-software-p3sbf/

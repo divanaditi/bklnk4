@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-phase-change-material-market-demand-rjyac/

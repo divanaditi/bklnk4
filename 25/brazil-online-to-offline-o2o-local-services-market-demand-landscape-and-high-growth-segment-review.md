@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-online-to-offline-o2o-local-services-market-demand-gf07f/

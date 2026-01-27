@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-cable-pipeline-detector-market-technology-led-tiqrf/

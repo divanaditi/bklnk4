@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-programmatic-display-market-segment-dsujc/

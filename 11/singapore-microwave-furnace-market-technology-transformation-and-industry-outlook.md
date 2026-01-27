@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microwave-furnace-market-technology-jtzhc/

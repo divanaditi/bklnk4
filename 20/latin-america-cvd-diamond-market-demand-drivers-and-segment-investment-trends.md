@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cvd-diamond-market-demand-drivers-zuc7f/

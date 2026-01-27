@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-insulin-patch-market-emerging-ai-trends-strategic-ghjnf/

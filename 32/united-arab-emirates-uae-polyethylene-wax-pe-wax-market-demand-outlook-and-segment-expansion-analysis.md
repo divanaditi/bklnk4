@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-polyethylene-wax-pe-market-demand-b3fff/

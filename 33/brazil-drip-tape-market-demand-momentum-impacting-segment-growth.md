@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drip-tape-market-demand-momentum-impacting-segment-bz7af/

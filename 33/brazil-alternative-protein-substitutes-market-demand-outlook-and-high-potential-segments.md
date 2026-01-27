@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-alternative-protein-substitutes-market-demand-6d5fe/

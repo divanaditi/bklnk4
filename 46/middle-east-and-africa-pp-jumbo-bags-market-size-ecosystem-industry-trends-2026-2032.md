@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pp-jumbo-bags-market-size-mufif/

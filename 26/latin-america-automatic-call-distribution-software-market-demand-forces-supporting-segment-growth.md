@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-call-distribution-software-sqnjc/

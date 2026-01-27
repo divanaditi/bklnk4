@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-x-ray-irradiators-market-size-2026-tmvac/

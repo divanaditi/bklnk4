@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microbiology-testing-clinical-market-ai-cbate/

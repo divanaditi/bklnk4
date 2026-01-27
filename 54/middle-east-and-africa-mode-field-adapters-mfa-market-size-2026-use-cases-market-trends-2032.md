@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mode-field-adapters-mfa-in1qf/

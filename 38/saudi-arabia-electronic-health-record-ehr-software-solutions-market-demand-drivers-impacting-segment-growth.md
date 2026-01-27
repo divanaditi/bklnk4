@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-electronic-health-record-ehr-software-qt1yc/

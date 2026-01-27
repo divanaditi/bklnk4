@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-abs-masterbatch-market-demand-indicators-qquaf/

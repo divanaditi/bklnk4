@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-indoor-intelligent-inspection-robot-9ggkf/

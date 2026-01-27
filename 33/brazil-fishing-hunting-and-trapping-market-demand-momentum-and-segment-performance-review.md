@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fishing-hunting-trapping-market-demand-is4xe/

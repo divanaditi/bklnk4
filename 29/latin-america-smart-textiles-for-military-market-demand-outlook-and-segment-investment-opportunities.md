@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-textiles-military-market-demand-0lkac/

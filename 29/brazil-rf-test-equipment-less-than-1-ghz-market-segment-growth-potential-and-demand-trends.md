@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rf-test-equipment-less-than-1-ghz-market-tvqyf/

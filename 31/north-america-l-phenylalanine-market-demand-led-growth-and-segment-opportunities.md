@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-l-phenylalanine-market-demand-led-growth-segment-l4dpf/

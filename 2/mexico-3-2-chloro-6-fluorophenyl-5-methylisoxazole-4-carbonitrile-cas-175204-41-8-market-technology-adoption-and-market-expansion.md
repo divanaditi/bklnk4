@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-2-chloro-6-fluorophenyl-5-methylisoxazole-4-carbonitrile-ztaef/

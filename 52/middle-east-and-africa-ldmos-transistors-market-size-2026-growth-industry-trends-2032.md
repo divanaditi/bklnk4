@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ldmos-transistors-market-size-2026-8rqre/

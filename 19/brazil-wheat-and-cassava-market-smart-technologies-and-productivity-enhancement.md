@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wheat-cassava-market-smart-technologies-productivity-56xge/

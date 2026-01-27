@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-food-vacuum-cooler-market-demand-nyqdf/

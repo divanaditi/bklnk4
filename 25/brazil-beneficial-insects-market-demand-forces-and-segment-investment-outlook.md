@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-beneficial-insects-market-demand-forces-segment-investment-y6lef/

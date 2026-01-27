@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-orthopedic-bone-cement-medical-devices-bqqsf/

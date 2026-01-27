@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gel-batteries-market-demand-analysis-high-growth-oi35e/

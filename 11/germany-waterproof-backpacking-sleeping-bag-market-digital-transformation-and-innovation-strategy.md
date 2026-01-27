@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-waterproof-backpacking-sleeping-bag-market-8ui6c/

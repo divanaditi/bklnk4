@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-public-cloud-platform-service-paas-pyhbe/

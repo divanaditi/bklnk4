@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-laser-engraving-equipment-market-zlt2f/

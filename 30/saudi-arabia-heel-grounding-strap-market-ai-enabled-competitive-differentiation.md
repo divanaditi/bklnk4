@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-heel-grounding-strap-market-ai-enabled-jkvhf/

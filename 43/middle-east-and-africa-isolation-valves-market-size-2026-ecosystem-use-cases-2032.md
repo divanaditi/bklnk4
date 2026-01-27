@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-isolation-valves-market-size-2026-f3ccf/

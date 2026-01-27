@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-temperature-transmitter-chip-market-nslnf/

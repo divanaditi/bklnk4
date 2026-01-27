@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-insulation-suit-market-demand-side-3hqzc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-portable-vascular-doppler-market-ihg6f/

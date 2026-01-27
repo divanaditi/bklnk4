@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-paprika-extract-market-digital-transformation-mxm1c/

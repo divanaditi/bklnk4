@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-remote-meter-reading-market-ai-analytics-vyvwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-instant-photo-printer-market-demand-uup4f/

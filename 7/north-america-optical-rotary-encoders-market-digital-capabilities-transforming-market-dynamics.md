@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-optical-rotary-encoders-market-digital-srasf/

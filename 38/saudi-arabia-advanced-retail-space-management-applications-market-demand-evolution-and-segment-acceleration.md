@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-advanced-retail-space-management-9kvpc/

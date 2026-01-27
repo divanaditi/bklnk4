@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-engine-parts-market-ai-smart-technologies-hhk8f/

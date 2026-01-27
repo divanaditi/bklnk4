@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-home-insulin-pen-needles-market-digital-hbbbf/

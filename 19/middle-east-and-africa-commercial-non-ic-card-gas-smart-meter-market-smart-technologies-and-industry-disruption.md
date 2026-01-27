@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-commercial-non-ic-card-gas-1flee/

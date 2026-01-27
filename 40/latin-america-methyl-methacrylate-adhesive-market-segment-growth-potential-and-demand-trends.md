@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-methyl-methacrylate-adhesive-market-segment-e7awf/

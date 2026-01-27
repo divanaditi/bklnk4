@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-passive-fire-protection-professional-market-ai-driven-huibf/

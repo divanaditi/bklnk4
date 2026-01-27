@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-34-dichloro-125-thiadiazole-cas-5728-20-1-hueif/

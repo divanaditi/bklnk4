@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-arm-positioning-market-ai-driven-operational-whore/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-nn-diethyl-222-trifluoroacetamide-cas-360-92-9-2j7xf/

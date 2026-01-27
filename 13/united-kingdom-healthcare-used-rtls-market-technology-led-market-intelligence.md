@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-healthcare-used-rtls-market-technology-led-acwtf/

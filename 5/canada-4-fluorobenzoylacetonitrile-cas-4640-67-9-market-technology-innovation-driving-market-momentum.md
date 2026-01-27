@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-fluorobenzoylacetonitrile-cas-4640-67-9-market-xybpf/

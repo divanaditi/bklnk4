@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-glucose-meter-plastic-strips-market-demand-4q80f/

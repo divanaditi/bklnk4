@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-network-attached-storage-nas-devices-nnmwf/

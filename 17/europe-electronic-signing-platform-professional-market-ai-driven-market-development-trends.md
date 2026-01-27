@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electronic-signing-platform-professional-g5k6f/

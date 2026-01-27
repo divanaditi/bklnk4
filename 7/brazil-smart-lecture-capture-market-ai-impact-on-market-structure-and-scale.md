@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-lecture-capture-market-ai-impact-structure-gihwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-tubular-aluminum-beach-chair-professional-j1ihf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-46-difluorophenyl-isocyanate-cas-dws6c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-bio-metrics-video-surveillance-market-xww5f/

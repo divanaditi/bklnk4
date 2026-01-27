@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-radar-trainer-market-digital-innovation-strategic-zchpf/

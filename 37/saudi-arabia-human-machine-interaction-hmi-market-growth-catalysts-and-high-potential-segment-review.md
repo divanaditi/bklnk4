@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-human-machine-interaction-hmi-market-4dbwc/

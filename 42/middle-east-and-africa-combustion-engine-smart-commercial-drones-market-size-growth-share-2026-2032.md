@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-combustion-engine-smart-commercial-drones-5xoic/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-world-gas-appliances-market-ai-automation-xbsef/

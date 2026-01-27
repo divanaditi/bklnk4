@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nettle-products-market-segment-tp9nf/

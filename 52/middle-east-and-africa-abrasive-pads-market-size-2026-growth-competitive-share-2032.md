@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-abrasive-pads-market-size-2026-xlbue/

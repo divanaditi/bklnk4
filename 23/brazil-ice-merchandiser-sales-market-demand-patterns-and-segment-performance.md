@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ice-merchandiser-sales-market-demand-patterns-5up5f/

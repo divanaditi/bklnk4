@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-portrait-generator-market-technology-trends-6xpkf/

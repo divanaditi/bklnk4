@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-home-appliances-market-demand-6mpkc/

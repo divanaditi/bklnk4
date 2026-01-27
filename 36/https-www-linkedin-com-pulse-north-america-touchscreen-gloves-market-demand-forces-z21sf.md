@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-touchscreen-gloves-market-demand-forces-z21sf/

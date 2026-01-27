@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-rgn-259-market-ai-impact-industry-productivity-if5cf/

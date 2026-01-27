@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fork-sensor-market-intelligent-automation-j5ckc/

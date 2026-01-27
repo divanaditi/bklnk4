@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-microelectronics-professional-market-smart-ts5tf/

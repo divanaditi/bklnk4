@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-ethyl-2-2-acetate-cas-86299-46-9-5bpef/

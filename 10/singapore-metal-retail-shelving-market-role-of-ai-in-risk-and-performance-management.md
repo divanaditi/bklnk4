@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metal-retail-shelving-market-role-ai-risk-avy2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-delivery-takeaway-food-professional-market-ai-gycqf/

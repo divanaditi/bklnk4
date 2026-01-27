@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coating-machines-battery-electrode-market-7mhmc/

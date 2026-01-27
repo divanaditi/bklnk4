@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-turn-signal-lights-market-demand-dynamics-vnx5f/

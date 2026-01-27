@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-innovative-drug-cro-contract-research-organisation-47uhc/

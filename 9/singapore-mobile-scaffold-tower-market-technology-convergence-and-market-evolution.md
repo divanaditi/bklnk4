@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-scaffold-tower-market-technology-mrmnf/

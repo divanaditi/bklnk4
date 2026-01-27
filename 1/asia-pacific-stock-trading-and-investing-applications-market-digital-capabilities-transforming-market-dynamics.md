@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-stock-trading-investing-applications-gickf/

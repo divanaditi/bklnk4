@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-remote-terminal-unit-rtu-market-uo9uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-language-translation-software-market-demand-s87sf/

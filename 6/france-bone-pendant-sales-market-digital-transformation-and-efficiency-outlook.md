@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bone-pendant-sales-market-digital-transformation-ppspf/

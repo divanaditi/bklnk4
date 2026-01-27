@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-aircraft-derived-gas-turbine-market-intelligent-automation-fpwpf/

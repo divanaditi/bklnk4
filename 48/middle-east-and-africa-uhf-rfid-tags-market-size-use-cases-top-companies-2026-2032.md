@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uhf-rfid-tags-market-size-yiljf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-calipers-market-demand-trends-0w9ue/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-robot-teach-pendant-market-segment-krpkf/

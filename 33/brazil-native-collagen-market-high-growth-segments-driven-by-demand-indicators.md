@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-native-collagen-market-high-growth-segments-01ybe/

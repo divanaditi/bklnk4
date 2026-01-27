@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-steering-angle-measurement-pd1be/

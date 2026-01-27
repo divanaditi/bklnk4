@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cargo-inspection-market-demand-strength-high-growth-qqf6f/

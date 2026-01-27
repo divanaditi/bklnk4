@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rfid-portals-doorways-corridors-market-mcure/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-iiot-platform-market-demand-dynamics-g4uyc/

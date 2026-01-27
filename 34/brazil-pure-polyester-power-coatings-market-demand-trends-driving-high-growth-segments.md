@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pure-polyester-power-coatings-market-demand-trends-lhlgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-charging-system-market-demand-gw9vf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-split-type-heat-pump-market-segment-gkhef/

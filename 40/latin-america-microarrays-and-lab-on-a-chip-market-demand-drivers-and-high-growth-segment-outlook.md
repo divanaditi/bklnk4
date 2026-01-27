@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-microarrays-lab-on-a-chip-market-demand-l6ocf/

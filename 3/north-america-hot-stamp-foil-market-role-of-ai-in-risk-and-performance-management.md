@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hot-stamp-foil-market-role-ai-risk-performance-tx2if/

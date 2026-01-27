@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bowie-dick-test-pack-market-technology-trends-475oe/

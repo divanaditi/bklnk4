@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-n-acetyl-dl-phenylalanine-cas-2901-75-9-z0rzf/

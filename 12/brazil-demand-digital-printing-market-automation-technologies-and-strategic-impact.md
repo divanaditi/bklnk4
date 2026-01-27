@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-demand-digital-printing-market-automation-qqhrc/

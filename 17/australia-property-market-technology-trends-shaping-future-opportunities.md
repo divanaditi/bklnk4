@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-property-market-technology-trends-shaping-lnvsf/

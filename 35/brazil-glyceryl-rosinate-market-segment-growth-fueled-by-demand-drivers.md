@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-glyceryl-rosinate-market-segment-growth-fueled-rrzxf/

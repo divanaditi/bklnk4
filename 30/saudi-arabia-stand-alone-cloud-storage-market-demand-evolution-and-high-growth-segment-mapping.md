@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-stand-alone-cloud-storage-market-demand-zbvkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-financial-self-service-card-issue-lrbvf/

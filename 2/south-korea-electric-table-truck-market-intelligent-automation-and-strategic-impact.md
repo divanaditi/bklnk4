@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electric-table-truck-market-intelligent-vunoc/

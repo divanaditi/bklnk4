@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fish-skin-gelatin-market-size-h9ixf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gallnuts-acid-market-demand-m7guc/

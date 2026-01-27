@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-fully-mechanized-mining-equipment-coal-mine-market-5yref/

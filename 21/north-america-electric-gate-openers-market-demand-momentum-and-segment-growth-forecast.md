@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electric-gate-openers-market-demand-7v0hf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-single-part-epoxy-adhesives-0po3f/

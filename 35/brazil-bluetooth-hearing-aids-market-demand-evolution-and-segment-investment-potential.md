@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bluetooth-hearing-aids-market-demand-evolution-ueo0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cloud-gis-market-demand-side-trends-xqxgf/

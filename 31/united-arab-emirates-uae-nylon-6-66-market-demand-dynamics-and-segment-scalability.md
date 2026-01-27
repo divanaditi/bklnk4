@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-nylon-6-66-market-demand-z1jsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-touch-screen-market-demand-supported-fjsnf/

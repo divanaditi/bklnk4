@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-laparoscopic-surgery-laser-market-demand-analysis-6ggrf/

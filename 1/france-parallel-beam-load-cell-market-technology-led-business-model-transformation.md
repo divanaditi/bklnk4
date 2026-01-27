@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-parallel-beam-load-cell-market-technology-led-stbrf/

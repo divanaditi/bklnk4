@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-since-hard-type-phenolic-resin-market-rianf/

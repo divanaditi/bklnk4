@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-pol-polyprotein-market-ai-digital-transformation-hsktf/

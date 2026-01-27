@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-solar-chargers-market-digital-transformation-zs1df/

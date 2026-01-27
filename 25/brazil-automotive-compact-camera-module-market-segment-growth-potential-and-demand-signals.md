@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-compact-camera-module-market-segment-oeh6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-vitamin-k1-cas-84-80-0-market-ai-automation-f6pjf/

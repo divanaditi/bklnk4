@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-20-80ghz-gallium-nitride-semiconductor-b5rtf/

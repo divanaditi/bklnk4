@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-switch-ships-market-demand-momentum-ee2de/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lateral-flow-assay-test-market-segment-lwqze/

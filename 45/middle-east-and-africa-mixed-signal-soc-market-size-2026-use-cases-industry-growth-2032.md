@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mixed-signal-soc-market-size-wg0dc/

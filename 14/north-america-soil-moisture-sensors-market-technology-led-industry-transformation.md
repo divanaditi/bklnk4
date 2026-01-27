@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-soil-moisture-sensors-market-technology-led-ayiic/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-fluorobenzeneboronic-acid-cas-1765-93-1-market-8kv5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-insurtech-market-demand-momentum-impacting-segment-yqiuf/

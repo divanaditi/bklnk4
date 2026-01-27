@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-erp-solution-market-intelligent-systems-ib6sf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-equipment-downtime-tracking-software-market-ahngf/

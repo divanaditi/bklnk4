@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-fluoro-6-nitrobenzoic-acid-cas-ftnvf/

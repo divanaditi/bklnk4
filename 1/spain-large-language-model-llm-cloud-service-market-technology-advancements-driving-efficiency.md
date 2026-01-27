@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-large-language-modelllm-cloud-service-market-zpbtf/

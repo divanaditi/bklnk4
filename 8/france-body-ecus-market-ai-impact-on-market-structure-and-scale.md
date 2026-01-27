@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-body-ecus-market-ai-impact-structure-scale-3vxef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-graphic-processing-unit-pj80c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-versatile-luffing-jib-tower-crane-market-ai-powered-thoyf/

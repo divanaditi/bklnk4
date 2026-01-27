@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-drive-motors-electric-vehicle-market-technology-innovation-ozmbf/

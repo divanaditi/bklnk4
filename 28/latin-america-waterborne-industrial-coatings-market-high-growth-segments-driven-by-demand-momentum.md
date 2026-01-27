@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-waterborne-industrial-coatings-qvz0c/

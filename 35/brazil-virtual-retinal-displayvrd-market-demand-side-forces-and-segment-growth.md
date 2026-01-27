@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-virtual-retinal-displayvrd-market-demand-side-3zhsf/

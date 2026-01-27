@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-smart-home-m2m-market-demand-trends-segment-s7g0f/

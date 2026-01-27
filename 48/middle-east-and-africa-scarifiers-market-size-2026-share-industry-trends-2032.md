@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-scarifiers-market-size-2026-share-industry-2xilf/

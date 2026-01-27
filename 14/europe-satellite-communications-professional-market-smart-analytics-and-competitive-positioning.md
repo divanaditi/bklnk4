@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-satellite-communications-professional-market-smart-e8rwc/

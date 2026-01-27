@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lte-base-station-market-high-growth-segments-xz1pf/

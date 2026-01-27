@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ecosystem-size-growth-outlook-ar5uf/

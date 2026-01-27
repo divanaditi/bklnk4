@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-united-states-teleshopping-3m3nc/

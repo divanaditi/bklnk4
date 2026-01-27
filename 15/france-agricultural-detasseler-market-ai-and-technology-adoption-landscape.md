@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-agricultural-detasseler-market-ai-technology-adoption-vipgf/

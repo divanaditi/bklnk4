@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-flexible-bollards-market-demand-side-forces-izigf/

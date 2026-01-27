@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oilfield-communications-equipment-market-4g77c/

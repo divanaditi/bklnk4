@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mobile-contactless-payments-market-demand-a9jzf/

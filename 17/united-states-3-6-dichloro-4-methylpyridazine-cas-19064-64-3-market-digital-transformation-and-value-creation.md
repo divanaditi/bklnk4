@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-36-dichloro-4-methylpyridazine-cas-dqnzc/

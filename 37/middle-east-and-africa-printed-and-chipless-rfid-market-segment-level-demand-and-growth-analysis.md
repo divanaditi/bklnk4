@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-printed-chipless-rfid-market-gknpe/

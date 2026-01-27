@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-polyimide-foam-market-high-growth-segments-backed-zl39f/

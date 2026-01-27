@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-simulation-game-professional-market-role-automation-1tb4f/

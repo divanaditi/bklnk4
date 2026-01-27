@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-carbon-footprint-calculation-service-06fjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-s-3-chloro-12-propanediol-acetonide-6vhoc/

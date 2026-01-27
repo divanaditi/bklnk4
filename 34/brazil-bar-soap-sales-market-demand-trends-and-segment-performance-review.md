@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bar-soap-sales-market-demand-trends-segment-xvaff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mine-clearance-system-market-demand-factors-7l7af/

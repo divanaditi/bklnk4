@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-chloramphenicol-cas-2787-09-9-market-digital-tezvc/

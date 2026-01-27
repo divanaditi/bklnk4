@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mems-accelerometer-automotive-market-1mloe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-trawl-monitoring-system-market-technology-trends-strategic-fbwcf/

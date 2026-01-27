@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crocodile-bag-market-ai-adoption-transformation-png1f/

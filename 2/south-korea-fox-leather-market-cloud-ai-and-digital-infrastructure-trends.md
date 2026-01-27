@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fox-leather-market-cloud-ai-val0c/

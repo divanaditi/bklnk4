@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-robotic-vision-systems-market-demand-trends-driving-jgmyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personal-finance-accounting-apps-market-intelligent-spsbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vitro-transcription-solutions-market-ai-gkklf/

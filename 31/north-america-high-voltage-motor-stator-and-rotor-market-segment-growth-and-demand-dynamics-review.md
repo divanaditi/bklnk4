@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-voltage-motor-stator-rotor-market-uyqof/

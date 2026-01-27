@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-patulin-cas-149-29-1-market-technology-wi9qf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-elevator-safety-gear-market-demand-landscape-edvmf/

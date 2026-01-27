@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-outdoor-wheeled-intelligent-inspection-robot-market-uvumf/

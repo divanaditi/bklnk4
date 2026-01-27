@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-batteries-market-role-ai-competitiveness-03t3c/

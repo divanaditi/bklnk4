@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-microporous-gel-ion-exchange-resin-kmprc/

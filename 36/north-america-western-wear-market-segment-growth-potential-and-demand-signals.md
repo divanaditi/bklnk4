@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-western-wear-market-segment-growth-k5pcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-real-time-location-systems-rtls-healthcare-6uoff/

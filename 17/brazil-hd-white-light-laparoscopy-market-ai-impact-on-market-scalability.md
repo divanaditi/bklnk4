@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hd-white-light-laparoscopy-market-ai-impact-jzhof/

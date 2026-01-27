@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-iwms-software-professional-market-ai-technology-landscape-bbiwf/

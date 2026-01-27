@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-embedded-system-chip-market-digital-xc09c/

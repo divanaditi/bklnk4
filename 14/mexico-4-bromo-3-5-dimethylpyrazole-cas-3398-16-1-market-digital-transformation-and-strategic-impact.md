@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-35-dimethylpyrazole-cas-3398-16-1-ixg3c/

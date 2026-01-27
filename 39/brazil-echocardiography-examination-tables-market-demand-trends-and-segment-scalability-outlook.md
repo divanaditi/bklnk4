@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-echocardiography-examination-tables-market-8b2rf/

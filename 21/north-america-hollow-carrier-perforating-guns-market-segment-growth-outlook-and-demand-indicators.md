@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hollow-carrier-perforating-guns-bhp9f/

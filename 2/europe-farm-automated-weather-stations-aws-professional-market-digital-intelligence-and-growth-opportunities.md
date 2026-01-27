@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-farm-automated-weather-stations-aws-htkjf/

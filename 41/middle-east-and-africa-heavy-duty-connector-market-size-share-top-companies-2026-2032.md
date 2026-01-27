@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heavy-duty-connector-market-size-petff/

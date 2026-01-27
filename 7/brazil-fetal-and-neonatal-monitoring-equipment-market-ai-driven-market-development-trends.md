@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fetal-neonatal-monitoring-equipment-market-ai-driven-yyw6f/

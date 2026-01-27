@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-projector-market-c8j2f/

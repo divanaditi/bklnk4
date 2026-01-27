@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lte-testing-equipment-market-demand-p3qnf/

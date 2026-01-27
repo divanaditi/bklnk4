@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-heels-footwear-professional-market-automation-answf/

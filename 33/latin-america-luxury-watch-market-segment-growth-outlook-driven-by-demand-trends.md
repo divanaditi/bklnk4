@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-luxury-watch-market-segment-growth-outlook-vtlxe/

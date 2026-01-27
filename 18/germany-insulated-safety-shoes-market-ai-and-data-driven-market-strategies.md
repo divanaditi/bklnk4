@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-insulated-safety-shoes-market-ai-data-driven-wjjef/

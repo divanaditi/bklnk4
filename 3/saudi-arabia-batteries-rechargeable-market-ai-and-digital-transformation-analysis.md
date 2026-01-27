@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-batteries-rechargeable-market-ai-73qwf/

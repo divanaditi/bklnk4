@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-multipurpose-supply-vesselsmpsv-market-digital-aofbf/

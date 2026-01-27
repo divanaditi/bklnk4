@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-parking-space-access-control-market-technology-z7ate/

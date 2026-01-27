@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cooled-infrared-detector-thermal-camera-market-smart-j4zof/

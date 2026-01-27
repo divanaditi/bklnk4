@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-hydraulic-lifting-mobile-light-tower-market-vf2qf/

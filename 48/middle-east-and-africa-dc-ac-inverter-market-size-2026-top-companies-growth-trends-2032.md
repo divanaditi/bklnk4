@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-dc-ac-inverter-market-yq4cf/

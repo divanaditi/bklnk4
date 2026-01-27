@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ship-anchor-chain-market-segment-growth-demand-hqnmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-malaria-diagnostics-market-demand-indicators-fj4af/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bull-frozen-sperm-market-technology-adoption-askef/

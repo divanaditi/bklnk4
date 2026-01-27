@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-non-destructive-testing-instruments-cvx1f/

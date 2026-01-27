@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-silicon-reference-cell-market-technology-jxrbf/

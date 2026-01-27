@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ytterbium-sulfate-cas-10034-98-7-market-hos2c/

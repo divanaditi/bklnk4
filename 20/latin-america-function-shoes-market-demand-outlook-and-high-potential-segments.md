@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-function-shoes-market-demand-outlook-high-potential-w0kkf/

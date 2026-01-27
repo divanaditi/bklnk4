@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-disposable-food-service-glove-market-digital-0zn6f/

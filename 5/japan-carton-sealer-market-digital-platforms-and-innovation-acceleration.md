@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carton-sealer-market-digital-platforms-innovation-5rc7f/

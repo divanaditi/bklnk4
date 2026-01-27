@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-power-generator-rental-market-demand-indicators-vpycc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carry-handle-tape-market-size-2026-pgbgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-fixed-dental-radiography-system-market-ai-automation-5cvbf/

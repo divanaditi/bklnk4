@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cadmium-selenide-market-demand-p9i9f/

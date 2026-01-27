@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-manual-door-closer-market-segment-growth-yuhqf/

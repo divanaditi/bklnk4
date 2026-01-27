@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-photoconductive-detector-market-digital-n1eyf/

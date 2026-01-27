@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-web-performance-market-demand-trends-segment-qtduf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-invar-36-market-size-ecosystem-g0knf/

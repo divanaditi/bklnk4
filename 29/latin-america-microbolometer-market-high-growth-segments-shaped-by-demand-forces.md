@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-microbolometer-market-high-growth-k7tec/

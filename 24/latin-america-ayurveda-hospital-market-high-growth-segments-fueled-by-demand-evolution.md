@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ayurveda-hospital-market-high-growth-segments-sb7dc/

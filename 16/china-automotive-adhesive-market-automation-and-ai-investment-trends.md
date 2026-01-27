@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automotive-adhesive-market-automation-ai-investment-nu1pf/

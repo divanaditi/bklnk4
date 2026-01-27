@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mvr-equipment-market-technology-nghyf/

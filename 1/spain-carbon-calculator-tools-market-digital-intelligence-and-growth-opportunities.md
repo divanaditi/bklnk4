@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-carbon-calculator-tools-market-digital-intelligence-y7vyf/

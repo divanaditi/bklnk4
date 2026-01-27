@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cloud-computing-professional-market-nrrpf/

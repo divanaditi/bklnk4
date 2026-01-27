@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-3d-printing-devices-services-supplies-market-demand-em2tf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hexafluoro-13-butadiene-c4f6-market-demand-pm6uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-counters-market-demand-side-insights-vooff/

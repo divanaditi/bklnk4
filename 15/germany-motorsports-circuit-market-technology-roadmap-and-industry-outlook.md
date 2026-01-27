@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-motorsports-circuit-market-technology-roadmap-vf87f/

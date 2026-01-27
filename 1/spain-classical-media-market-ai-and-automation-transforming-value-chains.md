@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-classical-media-market-ai-automation-transforming-jgihf/

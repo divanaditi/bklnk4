@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electronic-ear-tags-market-size-djzwf/

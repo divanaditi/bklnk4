@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-configuration-management-software-market-852fe/

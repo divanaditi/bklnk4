@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mems-accelerometers-market-segment-growth-7tp4f/

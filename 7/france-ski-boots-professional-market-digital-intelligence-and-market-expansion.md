@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ski-boots-professional-market-digital-pa78f/

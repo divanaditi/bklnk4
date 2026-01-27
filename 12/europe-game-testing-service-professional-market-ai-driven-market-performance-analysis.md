@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-game-testing-service-professional-market-ai-driven-gmzsc/

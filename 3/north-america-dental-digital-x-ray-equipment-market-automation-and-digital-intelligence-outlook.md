@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-dental-digital-x-ray-equipment-mef5f/

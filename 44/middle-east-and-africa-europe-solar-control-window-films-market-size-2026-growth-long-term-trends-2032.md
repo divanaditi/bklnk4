@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-europe-solar-control-window-dle0f/

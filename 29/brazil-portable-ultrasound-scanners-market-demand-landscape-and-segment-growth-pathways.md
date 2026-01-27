@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-ultrasound-scanners-market-2kgcc/

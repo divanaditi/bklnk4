@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-civil-helicopter-mro-market-demand-vc0mf/

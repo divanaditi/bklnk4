@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-email-marketing-market-size-2026-ecosystem-aac9f/

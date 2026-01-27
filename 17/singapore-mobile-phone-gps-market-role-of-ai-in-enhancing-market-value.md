@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-phone-gps-market-role-ai-enhancing-eytef/

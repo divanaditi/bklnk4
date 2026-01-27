@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-rotary-electrical-swivel-vr5gf/

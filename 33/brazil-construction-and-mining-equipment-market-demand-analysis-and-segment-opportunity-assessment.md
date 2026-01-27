@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-construction-mining-equipment-market-demand-pnrbe/

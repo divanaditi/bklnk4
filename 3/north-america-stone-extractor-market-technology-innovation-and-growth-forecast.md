@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-stone-extractor-market-technology-innovation-wrqsf/

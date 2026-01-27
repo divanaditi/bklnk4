@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hot-wire-cutter-market-size-growth-he3yf/

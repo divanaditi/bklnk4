@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-food-ribbon-blender-market-demand-patterns-segment-oamgf/

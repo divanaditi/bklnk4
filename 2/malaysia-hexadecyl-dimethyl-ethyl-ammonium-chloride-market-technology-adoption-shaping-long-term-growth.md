@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hexadecyl-dimethyl-ethyl-ammonium-chloride-fl4kc/

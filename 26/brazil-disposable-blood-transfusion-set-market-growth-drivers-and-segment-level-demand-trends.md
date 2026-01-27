@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-disposable-blood-transfusion-set-market-zgric/

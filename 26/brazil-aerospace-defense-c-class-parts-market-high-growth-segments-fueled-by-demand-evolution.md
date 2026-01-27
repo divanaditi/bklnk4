@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aerospace-defense-c-class-parts-market-high-growth-zx70c/

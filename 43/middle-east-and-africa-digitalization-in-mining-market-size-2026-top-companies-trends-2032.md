@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-digitalization-mining-market-5czhc/

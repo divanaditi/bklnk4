@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fentanyl-transdermal-patches-sdv1f/

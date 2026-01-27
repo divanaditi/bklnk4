@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-enterprise-feedback-management-efm-0hjjf/

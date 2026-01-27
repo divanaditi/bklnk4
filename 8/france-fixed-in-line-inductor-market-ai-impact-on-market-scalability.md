@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fixed-in-line-inductor-market-ai-impact-scalability-nnhcf/

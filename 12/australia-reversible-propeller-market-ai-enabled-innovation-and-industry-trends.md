@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-reversible-propeller-market-ai-enabled-innovation-uuygf/

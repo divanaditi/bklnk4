@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-projectile-loom-market-demand-analysis-segment-pfgaf/

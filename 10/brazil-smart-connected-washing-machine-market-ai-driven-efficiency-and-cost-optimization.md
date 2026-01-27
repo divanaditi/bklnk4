@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-connected-washing-machine-market-ai-driven-yvtmf/

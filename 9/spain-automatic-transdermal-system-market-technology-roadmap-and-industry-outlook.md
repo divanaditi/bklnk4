@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automatic-transdermal-system-market-technology-9yq1f/

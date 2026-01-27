@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-orthopedic-instrumentation-market-demand-factors-qrvkc/

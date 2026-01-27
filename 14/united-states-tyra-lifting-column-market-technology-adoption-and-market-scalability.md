@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-tyra-lifting-column-market-technology-9flwf/

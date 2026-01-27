@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-devices-supporting-line-of-business-applications-diw8f/

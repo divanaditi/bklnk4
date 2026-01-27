@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-biomedical-optical-detection-product-market-pjajf/

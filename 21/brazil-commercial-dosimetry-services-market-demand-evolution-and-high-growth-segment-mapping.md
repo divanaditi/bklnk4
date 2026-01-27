@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-dosimetry-services-l9uff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-doppler-fetal-monitors-market-segment-eywof/

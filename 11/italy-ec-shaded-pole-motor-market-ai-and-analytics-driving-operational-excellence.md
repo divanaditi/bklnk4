@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-ec-shaded-pole-motor-market-ai-analytics-18iqf/

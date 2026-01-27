@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-funnel-market-size-2026-use-cases-utbmc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-accounting-software-consultants-professional-market-omodf/

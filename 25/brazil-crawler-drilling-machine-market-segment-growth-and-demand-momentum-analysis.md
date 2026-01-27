@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-crawler-drilling-machine-market-segment-okulf/

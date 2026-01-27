@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-fire-monitor-market-ai-adoption-transformation-am8uc/

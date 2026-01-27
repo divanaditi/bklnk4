@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-chloro-6-nitrotoluene-cas-83-42-1-wbwvf/

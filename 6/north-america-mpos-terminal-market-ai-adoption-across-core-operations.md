@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-mpos-terminal-market-ai-adoption-4fgxf/

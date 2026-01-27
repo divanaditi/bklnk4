@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-identity-verification-authentication-professional-jgadf/

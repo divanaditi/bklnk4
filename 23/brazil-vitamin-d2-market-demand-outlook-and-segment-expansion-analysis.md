@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vitamin-d2-market-demand-outlook-segment-wcbbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-trifluoromethoxychlorobenzene-cas-461-81-4-market-w7z1f/

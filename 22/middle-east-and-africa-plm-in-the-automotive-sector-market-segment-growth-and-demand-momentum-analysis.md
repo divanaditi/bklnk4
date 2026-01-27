@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-plm-automotive-sector-market-segment-bsx0f/

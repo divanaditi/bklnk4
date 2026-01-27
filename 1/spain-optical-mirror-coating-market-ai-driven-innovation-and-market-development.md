@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-optical-mirror-coating-market-ai-driven-innovation-a8yff/

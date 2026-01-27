@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-welding-neck-flanges-market-size-2026-ezsgf/

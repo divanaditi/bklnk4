@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-intelligent-flow-sensor-market-ai-driven-7mydf/

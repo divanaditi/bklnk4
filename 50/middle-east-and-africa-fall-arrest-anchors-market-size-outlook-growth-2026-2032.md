@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fall-arrest-anchors-market-size-e1kgf/

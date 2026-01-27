@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-system-integration-services-professional-jj2bc/

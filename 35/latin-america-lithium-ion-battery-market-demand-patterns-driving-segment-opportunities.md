@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lithium-ion-battery-market-demand-patterns-hpstf/

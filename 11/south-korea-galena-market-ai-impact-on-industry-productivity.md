@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-galena-market-ai-impact-industry-productivity-kbsgf/

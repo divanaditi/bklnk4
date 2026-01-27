@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-tetraethylammonium-tetrafluoroborate-cas-429-06-1-iznsf/

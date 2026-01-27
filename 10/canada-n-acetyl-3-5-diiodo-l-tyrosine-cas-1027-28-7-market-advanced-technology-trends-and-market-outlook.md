@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-n-acetyl-35-diiodo-l-tyrosine-cas-1027-28-7-a9mff/

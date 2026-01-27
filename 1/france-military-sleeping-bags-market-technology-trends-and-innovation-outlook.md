@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-military-sleeping-bags-market-technology-trends-tfqwf/

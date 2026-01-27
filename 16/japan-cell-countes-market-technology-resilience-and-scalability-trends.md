@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cell-countes-market-technology-resilience-scalability-fs6vf/

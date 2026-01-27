@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-drum-tilting-device-market-ai-driven-r9gkf/

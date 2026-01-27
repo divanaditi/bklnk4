@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-indoor-farming-technology-market-531yf/

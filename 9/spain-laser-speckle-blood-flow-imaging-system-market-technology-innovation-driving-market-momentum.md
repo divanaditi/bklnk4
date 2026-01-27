@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-laser-speckle-blood-flow-imaging-system-market-rl8pf/

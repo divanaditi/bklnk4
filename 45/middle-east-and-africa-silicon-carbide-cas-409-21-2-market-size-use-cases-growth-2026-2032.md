@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-silicon-carbide-cas-409-21-2-bftkc/

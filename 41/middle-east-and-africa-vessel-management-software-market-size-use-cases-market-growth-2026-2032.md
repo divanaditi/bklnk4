@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vessel-management-software-market-size-b4upf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-time-switch-market-growth-drivers-segment-demand-3fhff/

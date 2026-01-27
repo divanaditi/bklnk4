@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-seal-pour-bag-clips-market-growth-drivers-d4wqf/

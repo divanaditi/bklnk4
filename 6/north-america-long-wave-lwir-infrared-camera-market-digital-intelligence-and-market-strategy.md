@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-long-wave-lwir-infrared-camera-6subf/

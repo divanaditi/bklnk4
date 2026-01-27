@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-4-trifluoromethyl-phenyl-ethylamine-cas-775-00-8-teuif/

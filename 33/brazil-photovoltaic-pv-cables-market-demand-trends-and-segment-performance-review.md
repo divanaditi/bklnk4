@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-photovoltaic-pv-cables-market-demand-trends-is3me/

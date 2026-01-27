@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-24-dichloro-6-methylphenol-cas-1570-65-6-0cdfc/

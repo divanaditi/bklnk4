@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mechanical-drive-ride-trowel-market-ai-enabled-wp8df/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-handicap-assistance-robots-market-demand-outlook-xmpxc/

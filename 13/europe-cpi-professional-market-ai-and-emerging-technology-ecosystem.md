@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cpi-professional-market-ai-emerging-technology-aij2c/

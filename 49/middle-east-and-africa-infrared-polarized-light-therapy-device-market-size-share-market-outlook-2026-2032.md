@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-infrared-polarized-light-therapy-42ayf/

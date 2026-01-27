@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-telemedicine-market-growth-drivers-segment-rqzuf/

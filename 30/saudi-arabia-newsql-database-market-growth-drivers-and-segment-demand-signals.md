@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-newsql-database-market-growth-drivers-x1jtf/

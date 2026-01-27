@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-blockchain-insurance-market-demand-qk0tf/

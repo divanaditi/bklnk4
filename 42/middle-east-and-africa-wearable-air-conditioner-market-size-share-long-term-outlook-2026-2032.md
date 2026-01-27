@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wearable-air-conditioner-market-d568c/

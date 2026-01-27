@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-tetrachlorothiophene-cas-6012-97-1-market-9pmdc/

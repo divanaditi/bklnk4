@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-use-cases-size-industry-growth-2026-2032-johvf/

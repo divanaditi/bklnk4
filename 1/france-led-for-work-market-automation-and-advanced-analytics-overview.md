@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-led-work-market-automation-advanced-lzzvf/

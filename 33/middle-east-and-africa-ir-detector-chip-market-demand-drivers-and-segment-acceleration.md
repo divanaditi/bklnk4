@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ir-detector-chip-market-demand-drivers-hflcf/

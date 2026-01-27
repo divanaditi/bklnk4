@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-commercial-stacked-laundry-market-ai-enabled-ckl0f/

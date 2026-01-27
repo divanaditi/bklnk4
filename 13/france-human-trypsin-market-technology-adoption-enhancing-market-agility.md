@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-human-trypsin-market-technology-adoption-pgo2f/

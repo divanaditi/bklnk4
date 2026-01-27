@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wired-home-security-system-market-automation-twz3c/

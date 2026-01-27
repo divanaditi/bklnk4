@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-disoctyl-dimethyl-ammonium-chloride-t5dcc/

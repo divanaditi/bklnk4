@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-reconstructed-human-epidermis-rhe-model-market-mr74f/

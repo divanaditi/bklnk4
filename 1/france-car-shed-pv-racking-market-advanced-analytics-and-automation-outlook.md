@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-car-shed-pv-racking-market-advanced-analytics-automation-bhegf/

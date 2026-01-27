@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wireless-gas-detection-systems-market-qzxlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-m2m-healthcare-market-demand-drivers-2kjif/

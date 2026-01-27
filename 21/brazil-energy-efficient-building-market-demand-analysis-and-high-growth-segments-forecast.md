@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-energy-efficient-building-market-demand-gilpf/

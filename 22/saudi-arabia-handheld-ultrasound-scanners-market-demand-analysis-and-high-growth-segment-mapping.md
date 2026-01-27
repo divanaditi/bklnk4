@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-handheld-ultrasound-scanners-market-demand-w4wpf/

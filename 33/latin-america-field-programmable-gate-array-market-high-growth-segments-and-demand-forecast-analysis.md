@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-field-programmable-gate-array-market-0z7ye/

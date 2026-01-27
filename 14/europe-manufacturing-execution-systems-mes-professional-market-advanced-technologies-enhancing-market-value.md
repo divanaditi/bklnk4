@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-manufacturing-execution-systems-mes-professional-vk6cc/

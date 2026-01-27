@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-guanine-market-demand-indicators-segment-d6j9c/

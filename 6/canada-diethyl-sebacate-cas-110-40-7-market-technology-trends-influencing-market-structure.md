@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diethyl-sebacate-cas-110-40-7-market-technology-ydagf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-benzofuran-5-carbaldehyde-cas-10035-16-2-05tof/

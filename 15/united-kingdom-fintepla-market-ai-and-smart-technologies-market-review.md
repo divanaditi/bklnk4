@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-fintepla-market-ai-smart-technologies-5btof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-interventional-fluoroscopy-systems-market-gvw2c/

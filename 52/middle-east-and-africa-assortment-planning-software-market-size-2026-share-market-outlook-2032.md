@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-assortment-planning-software-market-udt6e/

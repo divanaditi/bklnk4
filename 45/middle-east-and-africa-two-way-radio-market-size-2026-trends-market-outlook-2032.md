@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-two-way-radio-market-size-2026-trends-gyw1c/

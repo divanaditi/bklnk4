@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-active-electronic-components-professional-7qr0f/

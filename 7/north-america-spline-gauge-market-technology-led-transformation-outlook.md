@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-spline-gauge-market-technology-led-transformation-z8fsf/

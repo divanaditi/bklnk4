@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-disperse-blue-1-cas-2475-45-8-market-technology-movqf/

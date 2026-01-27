@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-push-talk-market-size-2026-ecosystem-sup1f/

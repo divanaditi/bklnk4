@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-health-thermometer-market-ai-automation-damaf/

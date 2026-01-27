@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fixed-satellite-services-fss-market-0e3of/

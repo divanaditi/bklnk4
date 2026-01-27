@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-asset-tracking-software-market-size-2026-yrqpf/

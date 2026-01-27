@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-naphthenic-acid-market-demand-dynamics-segment-mufjf/

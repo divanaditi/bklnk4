@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-iodoethanol-cas-624-76-0-market-ai-adoption-p1j3c/

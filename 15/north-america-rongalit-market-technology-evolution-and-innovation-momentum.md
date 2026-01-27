@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-rongalit-market-technology-evolution-c8qef/

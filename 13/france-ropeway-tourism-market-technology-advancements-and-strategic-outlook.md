@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ropeway-tourism-market-technology-advancements-l7f6f/

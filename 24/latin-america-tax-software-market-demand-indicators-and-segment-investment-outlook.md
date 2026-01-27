@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tax-software-market-demand-indicators-segment-9sadc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automated-laboratory-systems-market-demand-nllxf/

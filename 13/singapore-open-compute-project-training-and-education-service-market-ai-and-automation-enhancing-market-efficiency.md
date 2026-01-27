@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-open-compute-project-training-education-2havf/

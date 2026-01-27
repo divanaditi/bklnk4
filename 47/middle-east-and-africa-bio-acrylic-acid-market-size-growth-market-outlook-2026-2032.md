@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bio-acrylic-acid-market-size-8neif/

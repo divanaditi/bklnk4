@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-encoder-ics-market-ai-data-analytics-d7pwf/

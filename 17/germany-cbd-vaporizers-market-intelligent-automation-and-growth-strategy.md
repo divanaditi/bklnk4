@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cbd-vaporizers-market-intelligent-automation-growth-4izkf/

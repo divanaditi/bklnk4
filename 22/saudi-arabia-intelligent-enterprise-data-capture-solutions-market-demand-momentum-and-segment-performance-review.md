@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-intelligent-enterprise-data-capture-9nv0f/

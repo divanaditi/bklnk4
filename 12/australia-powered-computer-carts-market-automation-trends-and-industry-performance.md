@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-powered-computer-carts-market-automation-mytkf/

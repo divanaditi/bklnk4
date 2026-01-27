@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-charcoal-briquette-metallurgical-market-ai-enabled-qbnjf/

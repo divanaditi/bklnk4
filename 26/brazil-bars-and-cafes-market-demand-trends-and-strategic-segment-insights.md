@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bars-cafes-market-demand-trends-strategic-jlj1c/

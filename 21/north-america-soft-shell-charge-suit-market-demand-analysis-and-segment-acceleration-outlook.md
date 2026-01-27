@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-soft-shell-charge-suit-market-demand-1w6xf/

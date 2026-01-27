@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-small-business-invoicing-software-market-jep1f/

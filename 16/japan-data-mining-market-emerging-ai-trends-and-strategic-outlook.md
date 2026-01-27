@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-data-mining-market-emerging-ai-trends-strategic-4axhf/

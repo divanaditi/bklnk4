@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-1h1h11h-perfluoroundecyl-acrylate-cas-a0foc/

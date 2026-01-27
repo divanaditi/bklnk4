@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermal-gloves-market-demand-drivers-segment-rmxff/

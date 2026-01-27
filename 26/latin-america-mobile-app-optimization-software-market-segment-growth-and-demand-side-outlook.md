@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mobile-app-optimization-software-61hoc/

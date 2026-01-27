@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-multi-microphone-noise-canceling-headphone-rklwc/

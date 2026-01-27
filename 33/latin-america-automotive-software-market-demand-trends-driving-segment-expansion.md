@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-software-market-demand-trends-s8y8e/

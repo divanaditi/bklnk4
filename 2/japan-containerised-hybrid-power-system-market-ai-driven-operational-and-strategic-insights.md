@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-containerised-hybrid-power-system-market-ai-driven-5gyyc/

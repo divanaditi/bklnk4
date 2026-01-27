@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automated-border-control-kiosk-market-automation-advanced-i6v6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-energy-storage-battery-microgrids-market-segment-u0t6f/

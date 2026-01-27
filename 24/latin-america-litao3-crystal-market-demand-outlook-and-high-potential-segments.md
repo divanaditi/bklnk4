@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-litao3-crystal-market-demand-outlook-sf1dc/

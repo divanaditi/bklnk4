@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hdi-monomer-market-demand-patterns-536yf/

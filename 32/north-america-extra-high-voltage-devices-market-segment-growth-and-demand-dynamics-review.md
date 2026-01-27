@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-extra-high-voltage-devices-market-segment-7xq1f/

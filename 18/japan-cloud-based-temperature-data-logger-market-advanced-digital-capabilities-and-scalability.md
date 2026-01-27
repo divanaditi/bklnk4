@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cloud-based-temperature-data-logger-market-advanced-jpttf/

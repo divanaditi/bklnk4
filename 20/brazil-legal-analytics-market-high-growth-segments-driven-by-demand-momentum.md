@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-legal-analytics-market-high-growth-segments-3zi3f/

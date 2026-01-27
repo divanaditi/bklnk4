@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-cards-otp-mfa-card-market-automation-cdwxf/

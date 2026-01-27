@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-bis24-pentanedionato-oopalladiumii-cas-14024-61-4-7vphc/

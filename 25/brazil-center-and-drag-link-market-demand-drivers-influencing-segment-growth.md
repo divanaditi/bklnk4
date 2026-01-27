@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-center-drag-link-market-demand-drivers-x6vsf/

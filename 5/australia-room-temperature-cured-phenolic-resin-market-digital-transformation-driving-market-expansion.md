@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-room-temperature-cured-phenolic-resin-vtgqc/

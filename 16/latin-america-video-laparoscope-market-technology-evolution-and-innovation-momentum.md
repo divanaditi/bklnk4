@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-video-laparoscope-market-technology-oo1ef/

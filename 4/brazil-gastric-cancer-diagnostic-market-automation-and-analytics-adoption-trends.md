@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gastric-cancer-diagnostic-market-automation-analytics-k93df/

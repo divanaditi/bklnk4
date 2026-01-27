@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-geophysical-services-equipment-market-high-growth-qfiof/

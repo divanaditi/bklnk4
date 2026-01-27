@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-analytics-things-market-digital-emxxf/

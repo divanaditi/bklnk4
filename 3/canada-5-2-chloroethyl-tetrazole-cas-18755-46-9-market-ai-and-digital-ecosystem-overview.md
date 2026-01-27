@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-2-chloroethyltetrazole-cas-18755-46-9-byykf/

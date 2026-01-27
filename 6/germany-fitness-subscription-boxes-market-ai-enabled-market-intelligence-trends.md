@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-fitness-subscription-boxes-market-ai-enabled-hfisf/

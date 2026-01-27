@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transport-bags-market-segment-demand-trends-growth-6rqnf/

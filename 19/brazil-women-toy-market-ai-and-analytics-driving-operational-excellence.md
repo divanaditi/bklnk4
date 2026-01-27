@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-toy-market-ai-analytics-driving-operational-uq0we/

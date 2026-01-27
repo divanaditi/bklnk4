@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-boc-35-diiodo-l-tyrosine-cas-62129-53-7-market-oik8c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-zigbee-modules-802-15-4-market-ad8kf/

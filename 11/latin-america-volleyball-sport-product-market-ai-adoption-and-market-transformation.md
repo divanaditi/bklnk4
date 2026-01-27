@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-volleyball-sport-product-market-ai-adoption-pr9tc/

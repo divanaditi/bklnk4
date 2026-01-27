@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plant-protein-ingredient-market-demand-outlook-d6m5f/

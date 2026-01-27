@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-bluetooth-smart-scales-market-ai-adoption-vxqrf/

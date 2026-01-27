@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-5g-automotive-grade-product-market-advanced-technologies-uskjf/

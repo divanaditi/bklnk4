@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-power-control-panel-market-ai-adoption-across-5gt8f/

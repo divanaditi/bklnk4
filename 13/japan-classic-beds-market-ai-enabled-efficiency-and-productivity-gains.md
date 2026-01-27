@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-classic-beds-market-ai-enabled-efficiency-pwzwf/

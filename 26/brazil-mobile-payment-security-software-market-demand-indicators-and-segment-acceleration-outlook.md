@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-payment-security-software-market-ubuaf/

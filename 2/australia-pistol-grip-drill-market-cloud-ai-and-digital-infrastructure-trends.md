@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pistol-grip-drill-market-cloud-ai-digital-ooumc/

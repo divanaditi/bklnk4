@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-central-issuance-card-equipment-market-high-growth-agdmf/

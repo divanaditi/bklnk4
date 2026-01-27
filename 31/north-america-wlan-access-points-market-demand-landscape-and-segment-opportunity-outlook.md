@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wlan-access-points-market-demand-landscape-c9z1f/

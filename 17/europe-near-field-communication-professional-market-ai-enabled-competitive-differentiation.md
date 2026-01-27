@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-near-field-communication-professional-market-aqr2f/

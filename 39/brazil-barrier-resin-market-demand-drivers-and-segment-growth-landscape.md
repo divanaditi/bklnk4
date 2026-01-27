@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-barrier-resin-market-demand-drivers-segment-growth-nnckf/

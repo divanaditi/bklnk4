@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-ferrite-core-market-smart-technologies-zlfpf/

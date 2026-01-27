@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radar-based-interaction-sensor-market-digital-7xebe/

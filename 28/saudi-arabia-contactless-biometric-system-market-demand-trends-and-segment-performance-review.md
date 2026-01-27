@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-contactless-biometric-system-market-demand-rxvsf/

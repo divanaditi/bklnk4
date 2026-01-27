@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cooking-appliances-market-high-growth-segments-w47af/

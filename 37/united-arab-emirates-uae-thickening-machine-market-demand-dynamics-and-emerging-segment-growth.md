@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thickening-machine-market-demand-vanave-iruxc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-solar-resource-market-size-trends-i3g6f/

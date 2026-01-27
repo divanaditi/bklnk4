@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-poc-point-care-blood-gas-electrolyte-qw1dc/

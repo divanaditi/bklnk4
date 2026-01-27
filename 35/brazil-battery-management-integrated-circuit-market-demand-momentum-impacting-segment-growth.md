@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-battery-management-integrated-circuit-4eldf/

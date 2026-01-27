@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bender-market-demand-outlook-segment-q2h5f/

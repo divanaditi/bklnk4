@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-meter-data-management-software-professional-27yff/

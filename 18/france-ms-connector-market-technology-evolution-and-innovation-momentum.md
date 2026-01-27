@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ms-connector-market-technology-evolution-d49lf/

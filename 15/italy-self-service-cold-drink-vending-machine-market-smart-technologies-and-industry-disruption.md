@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-self-service-cold-drink-vending-machine-market-4qhtf/

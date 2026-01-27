@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-crop-monitoring-market-technology-jbsdf/

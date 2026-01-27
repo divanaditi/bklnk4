@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-toggle-mram-market-demand-side-growth-segment-97jbf/

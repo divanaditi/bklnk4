@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-eo-ir-gimbal-uav-market-technology-trends-dgwxf/

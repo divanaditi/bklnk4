@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-emergency-medicine-market-size-growth-g9klf/

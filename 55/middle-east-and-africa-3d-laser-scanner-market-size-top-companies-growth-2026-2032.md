@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-3d-laser-scanner-market-size-top-1ejtf/

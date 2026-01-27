@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-smart-card-transportation-market-ai-driven-frppf/

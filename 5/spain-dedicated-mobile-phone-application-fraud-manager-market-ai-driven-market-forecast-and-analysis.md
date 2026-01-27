@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dedicated-mobile-phone-application-fraud-manager-ryqcf/

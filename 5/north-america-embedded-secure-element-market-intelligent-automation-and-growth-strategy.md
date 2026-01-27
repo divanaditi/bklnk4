@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-embedded-secure-element-market-intelligent-ks6xf/

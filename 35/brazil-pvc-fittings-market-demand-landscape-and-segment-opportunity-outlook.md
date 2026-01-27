@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pvc-fittings-market-demand-landscape-segment-jk5kf/

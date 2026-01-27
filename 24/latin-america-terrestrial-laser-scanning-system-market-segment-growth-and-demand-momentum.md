@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-terrestrial-laser-scanning-system-46qoc/

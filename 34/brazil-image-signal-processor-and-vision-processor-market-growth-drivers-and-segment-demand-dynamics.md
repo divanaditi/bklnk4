@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-image-signal-processor-vision-market-growth-aohcf/

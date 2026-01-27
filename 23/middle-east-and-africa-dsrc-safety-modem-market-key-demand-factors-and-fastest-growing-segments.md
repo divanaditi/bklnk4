@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-dsrc-safety-modem-market-key-demand-laaqf/

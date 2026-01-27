@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-space-food-market-size-growth-outlook-vr07f/

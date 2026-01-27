@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-brake-friction-product-professional-fzcrc/

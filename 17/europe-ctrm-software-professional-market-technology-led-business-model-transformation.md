@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ctrm-software-professional-market-technology-led-3j2tf/

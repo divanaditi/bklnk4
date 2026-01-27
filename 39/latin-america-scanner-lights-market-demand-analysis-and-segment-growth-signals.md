@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-scanner-lights-market-demand-analysis-dwg2f/

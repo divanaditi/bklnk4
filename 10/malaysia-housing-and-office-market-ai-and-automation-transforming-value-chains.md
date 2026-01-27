@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-housing-office-market-ai-automation-transforming-9bi9f/

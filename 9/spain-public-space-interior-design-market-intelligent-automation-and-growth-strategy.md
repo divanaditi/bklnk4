@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-public-space-interior-design-market-intelligent-59djf/

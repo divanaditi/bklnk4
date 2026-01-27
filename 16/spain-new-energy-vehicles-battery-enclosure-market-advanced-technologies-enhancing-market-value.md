@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-new-energy-vehicles-battery-enclosure-market-p2vcf/

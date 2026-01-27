@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cardiovascular-magnetic-resonance-7ee9c/

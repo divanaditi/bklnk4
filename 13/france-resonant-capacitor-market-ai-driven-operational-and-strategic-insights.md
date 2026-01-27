@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-resonant-capacitor-market-ai-driven-operational-qjqsf/

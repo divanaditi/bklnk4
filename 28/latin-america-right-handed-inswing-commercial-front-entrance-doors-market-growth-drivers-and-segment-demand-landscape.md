@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-right-handed-inswing-commercial-quagc/

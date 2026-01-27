@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-video-capture-software-market-demand-avztf/

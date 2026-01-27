@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-phones-wireless-charging-market-wtyec/

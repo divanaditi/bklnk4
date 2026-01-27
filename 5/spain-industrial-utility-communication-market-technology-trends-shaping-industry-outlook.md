@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-industrial-utility-communication-market-technology-cu6uf/

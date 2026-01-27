@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gps-clock-market-digital-transformation-3jcef/

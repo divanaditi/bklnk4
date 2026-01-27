@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-artificial-blood-market-segment-mbpic/

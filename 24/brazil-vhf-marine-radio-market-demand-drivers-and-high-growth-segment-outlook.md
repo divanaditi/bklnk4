@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vhf-marine-radio-market-demand-drivers-z8vsf/

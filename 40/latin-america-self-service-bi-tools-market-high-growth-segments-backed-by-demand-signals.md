@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-self-service-bi-tools-market-high-growth-5i13f/

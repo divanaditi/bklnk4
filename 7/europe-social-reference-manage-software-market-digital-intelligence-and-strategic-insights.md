@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-social-reference-manage-software-market-8jbtf/

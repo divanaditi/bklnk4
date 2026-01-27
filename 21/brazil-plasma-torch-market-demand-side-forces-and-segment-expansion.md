@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plasma-torch-market-demand-side-forces-segment-hftwf/

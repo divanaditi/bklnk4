@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gear-shifter-market-digital-oyqsf/

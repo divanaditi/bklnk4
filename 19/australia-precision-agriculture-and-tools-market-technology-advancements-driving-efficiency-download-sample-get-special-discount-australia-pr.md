@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-precision-agriculture-tools-market-technology-faeye/

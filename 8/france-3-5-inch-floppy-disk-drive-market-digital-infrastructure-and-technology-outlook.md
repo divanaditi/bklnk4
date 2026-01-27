@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-35-inch-floppy-disk-drive-market-digital-infrastructure-5722f/

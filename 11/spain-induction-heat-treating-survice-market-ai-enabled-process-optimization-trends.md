@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-induction-heat-treating-survice-market-ai-enabled-vtwlf/

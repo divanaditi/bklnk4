@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-standalone-pico-pv-systems-under-20w-market-qk1ff/

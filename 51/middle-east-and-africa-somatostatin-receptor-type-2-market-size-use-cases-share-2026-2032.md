@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-somatostatin-receptor-type-2-0hzxc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rewritable-pvc-cards-market-segment-level-ombwf/

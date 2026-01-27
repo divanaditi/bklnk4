@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-data-capture-hardware-market-demand-mznpf/

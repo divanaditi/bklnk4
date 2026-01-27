@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hemostasis-coagulation-analyzer-market-role-vtnac/

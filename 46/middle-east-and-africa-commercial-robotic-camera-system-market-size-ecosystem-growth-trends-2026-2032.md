@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-commercial-robotic-camera-wy79f/

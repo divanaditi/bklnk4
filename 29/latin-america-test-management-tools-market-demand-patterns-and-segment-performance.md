@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-test-management-tools-market-demand-patterns-z6fxc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-powered-atm-market-demand-drivers-impacting-m5rlf/

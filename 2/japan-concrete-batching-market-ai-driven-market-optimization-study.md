@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concrete-batching-market-ai-driven-optimization-rfdkc/

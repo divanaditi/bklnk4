@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-resort-planning-market-size-2026-u3rrf/

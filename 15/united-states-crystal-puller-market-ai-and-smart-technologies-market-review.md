@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-crystal-puller-market-ai-smart-technologies-l5k9f/

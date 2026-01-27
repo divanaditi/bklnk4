@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-video-capture-devices-professional-market-ai-nxl6f/

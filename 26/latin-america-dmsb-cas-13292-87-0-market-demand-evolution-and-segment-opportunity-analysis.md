@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dmsb-cas-13292-87-0-market-demand-evolution-ogi7c/

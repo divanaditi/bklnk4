@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-3-fluoro-6-picoline-cas-374633-36-0-2jctc/

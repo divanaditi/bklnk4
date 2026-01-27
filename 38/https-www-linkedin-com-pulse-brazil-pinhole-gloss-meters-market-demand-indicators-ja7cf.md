@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pinhole-gloss-meters-market-demand-indicators-ja7cf/

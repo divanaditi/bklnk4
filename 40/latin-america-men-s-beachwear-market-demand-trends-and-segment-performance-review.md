@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mens-beachwear-market-demand-trends-xskff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-paper-screen-education-market-demand-etnnf/

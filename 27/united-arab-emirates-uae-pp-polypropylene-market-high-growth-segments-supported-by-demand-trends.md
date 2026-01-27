@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-pp-polypropylene-market-high-growth-vt8vf/

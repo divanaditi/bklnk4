@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-refrigerated-truck-bodies-professional-market-tu3of/

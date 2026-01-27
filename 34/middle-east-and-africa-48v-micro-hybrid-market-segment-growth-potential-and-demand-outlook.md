@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-48v-micro-hybrid-market-segment-o6acf/

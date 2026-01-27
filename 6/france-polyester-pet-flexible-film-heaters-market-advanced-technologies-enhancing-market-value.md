@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-polyester-pet-flexible-film-heaters-market-advanced-kb3rf/

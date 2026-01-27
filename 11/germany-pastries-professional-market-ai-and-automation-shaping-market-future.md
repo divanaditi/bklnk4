@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-pastries-professional-market-ai-automation-v3ksc/

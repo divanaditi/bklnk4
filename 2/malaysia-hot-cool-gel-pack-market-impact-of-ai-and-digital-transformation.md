@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hotcool-gel-pack-market-impact-ai-digital-zu3wc/

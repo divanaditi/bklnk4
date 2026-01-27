@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-construction-software-bim-market-technology-gigyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-brazil-impact-wrench-market-smart-automation-wa3lf/

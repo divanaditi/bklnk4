@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-constipation-treatment-market-growth-g6fbf/

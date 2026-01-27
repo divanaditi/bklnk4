@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-exercise-mats-professional-market-intelligent-c3ybf/

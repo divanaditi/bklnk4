@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-gdp-cas-146-91-8-market-ai-enabled-innovation-industry-9xhvf/

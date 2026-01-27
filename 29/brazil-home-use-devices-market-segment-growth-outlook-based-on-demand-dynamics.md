@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-home-use-devices-market-segment-ialcc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tio2-pigments-market-technology-innovation-hgnkf/

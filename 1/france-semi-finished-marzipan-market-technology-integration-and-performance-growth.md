@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-semi-finished-marzipan-market-technology-4vpmf/

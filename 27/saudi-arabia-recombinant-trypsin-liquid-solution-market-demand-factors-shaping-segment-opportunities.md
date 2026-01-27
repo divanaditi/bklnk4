@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-recombinant-trypsin-liquid-solution-9elbf/

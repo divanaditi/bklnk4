@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-touch-ic-market-technology-advancements-8e9gc/

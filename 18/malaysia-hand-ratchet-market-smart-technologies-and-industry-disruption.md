@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hand-ratchet-market-smart-technologies-omhhf/

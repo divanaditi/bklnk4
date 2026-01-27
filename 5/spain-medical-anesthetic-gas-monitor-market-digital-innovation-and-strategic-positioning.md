@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-anesthetic-gas-monitor-market-digital-ix94f/

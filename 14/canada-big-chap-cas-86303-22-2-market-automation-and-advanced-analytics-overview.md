@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-big-chap-cas-86303-22-2-market-automation-advanced-7eerf/

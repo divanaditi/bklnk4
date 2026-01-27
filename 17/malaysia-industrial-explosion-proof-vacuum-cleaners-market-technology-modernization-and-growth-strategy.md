@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-explosion-proof-vacuum-ddw6f/

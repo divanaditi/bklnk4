@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-isophorone-diamine-ipda-market-demand-crszf/

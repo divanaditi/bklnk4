@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gfrg-market-intelligent-automation-yolmc/

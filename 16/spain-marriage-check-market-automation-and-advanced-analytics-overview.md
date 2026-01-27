@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-marriage-check-market-automation-advanced-dw1gf/

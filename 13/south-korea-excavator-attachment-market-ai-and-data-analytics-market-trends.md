@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-excavator-attachment-market-ai-data-5nemf/

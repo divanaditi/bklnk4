@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hot-food-display-cabinet-market-intelligent-3u93f/

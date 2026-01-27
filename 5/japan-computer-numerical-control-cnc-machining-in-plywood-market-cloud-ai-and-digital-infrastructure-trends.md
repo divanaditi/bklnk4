@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-computer-numerical-control-cnc-machining-ht21f/

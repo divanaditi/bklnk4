@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-power-track-socket-market-gvruf/

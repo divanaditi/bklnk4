@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-temperature-meters-market-demand-momentum-9vsif/

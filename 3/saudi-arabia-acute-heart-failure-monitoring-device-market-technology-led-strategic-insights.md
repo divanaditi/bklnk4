@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-acute-heart-failure-monitoring-device-ht99f/

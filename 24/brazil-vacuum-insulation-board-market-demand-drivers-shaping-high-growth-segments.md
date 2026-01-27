@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacuum-insulation-board-market-demand-drivers-nlzvf/

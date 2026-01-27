@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-electrical-switch-professional-market-ai-v0def/

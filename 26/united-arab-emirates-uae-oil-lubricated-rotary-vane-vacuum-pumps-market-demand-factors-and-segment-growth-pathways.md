@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-oil-lubricated-rotary-vane-vacuum-3wbjf/

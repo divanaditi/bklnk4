@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quantum-random-number-generator-market-jl57c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-fast-set-putty-market-intelligent-systems-p9jff/

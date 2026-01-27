@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-bio-based-mof-ink-market-ai-w9kif/

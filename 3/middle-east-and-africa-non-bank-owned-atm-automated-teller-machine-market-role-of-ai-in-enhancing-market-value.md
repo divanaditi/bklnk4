@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-non-bank-owned-atm-automated-teller-vsiqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gauge-pressure-transmitters-market-eyalc/

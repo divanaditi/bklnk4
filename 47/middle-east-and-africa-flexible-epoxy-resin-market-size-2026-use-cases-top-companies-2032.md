@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flexible-epoxy-resin-market-e42uf/

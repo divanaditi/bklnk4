@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automotive-li-battery-thermal-runaway-sensor-market-0rfif/

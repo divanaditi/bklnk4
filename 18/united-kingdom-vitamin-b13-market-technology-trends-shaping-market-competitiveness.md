@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-vitamin-b13-market-technology-trends-wca6f/

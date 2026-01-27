@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-glove-trunk-lamp-market-size-ecosystem-m8cff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-infrared-imaging-market-demand-analysis-l3ftf/

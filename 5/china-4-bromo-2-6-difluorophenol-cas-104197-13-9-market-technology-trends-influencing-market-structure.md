@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-4-bromo-26-difluorophenol-cas-104197-13-9-demlf/

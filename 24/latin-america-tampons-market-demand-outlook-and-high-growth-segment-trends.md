@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tampons-market-demand-outlook-high-growth-g2jhc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-evolved-packet-core-infrastructure-fpa3f/

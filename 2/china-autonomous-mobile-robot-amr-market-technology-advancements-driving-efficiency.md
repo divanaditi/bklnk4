@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-autonomous-mobile-robot-amr-market-technology-cnvlc/

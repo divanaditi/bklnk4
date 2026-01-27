@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-laser-communication-terminal-market-4pasf/

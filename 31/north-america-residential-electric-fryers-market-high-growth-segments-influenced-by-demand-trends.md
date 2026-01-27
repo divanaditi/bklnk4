@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-residential-electric-fryers-market-high-growth-qu5qf/

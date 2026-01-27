@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-interactive-touch-panel-market-ai-enabled-unzbf/

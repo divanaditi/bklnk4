@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-measurement-software-automobiles-b0daf/

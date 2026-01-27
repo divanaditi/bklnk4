@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-parasol-market-demand-evolution-segment-ix7rf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-external-storage-market-demand-factors-shaping-omvnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-t50-iso-tank-model-market-ai-enabled-process-5vluf/

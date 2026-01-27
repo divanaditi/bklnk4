@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-tunable-capacitors-market-demand-epq0f/

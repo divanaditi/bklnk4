@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-d-galactopyranose-pentaacetate-cas-25878-60-8-ww9bf/

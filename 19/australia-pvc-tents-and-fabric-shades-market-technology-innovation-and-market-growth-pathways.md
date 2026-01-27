@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pvc-tents-fabric-shades-market-technology-hwvee/

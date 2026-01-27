@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-temporary-cooling-market-role-ai-jyzxc/

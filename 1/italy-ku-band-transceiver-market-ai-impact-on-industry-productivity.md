@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-ku-band-transceiver-market-ai-impact-industry-drysf/

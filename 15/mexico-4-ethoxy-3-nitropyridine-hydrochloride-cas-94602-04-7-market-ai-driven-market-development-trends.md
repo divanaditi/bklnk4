@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-ethoxy-3-nitropyridine-hydrochloride-cas-94602-04-7-ba1lf/

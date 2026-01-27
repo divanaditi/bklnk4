@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-6-fluoro-2-methylindanone-cas-37794-19-7-market-v2asf/

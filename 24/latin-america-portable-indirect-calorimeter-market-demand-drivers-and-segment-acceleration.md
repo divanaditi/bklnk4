@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-portable-indirect-calorimeter-market-fq8vc/

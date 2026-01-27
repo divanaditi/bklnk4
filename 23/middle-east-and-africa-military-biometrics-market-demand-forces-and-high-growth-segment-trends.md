@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-military-biometrics-market-demand-1siqf/

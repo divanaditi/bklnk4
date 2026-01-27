@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-manganese-ore-market-demand-landscape-segment-tthqf/

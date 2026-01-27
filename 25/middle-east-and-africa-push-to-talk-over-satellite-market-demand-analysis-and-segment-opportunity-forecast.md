@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-push-to-talk-over-satellite-market-demand-q9yhf/

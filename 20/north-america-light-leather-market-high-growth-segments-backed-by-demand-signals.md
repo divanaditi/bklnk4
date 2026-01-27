@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-light-leather-market-high-growth-segments-yvt3f/

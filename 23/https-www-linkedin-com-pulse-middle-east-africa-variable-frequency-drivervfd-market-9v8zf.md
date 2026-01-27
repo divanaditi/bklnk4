@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-variable-frequency-drivervfd-market-9v8zf/

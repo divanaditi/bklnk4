@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-light-medium-commercial-vehicles-crf6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-gradient-window-film-market-ai-impact-nnjhf/

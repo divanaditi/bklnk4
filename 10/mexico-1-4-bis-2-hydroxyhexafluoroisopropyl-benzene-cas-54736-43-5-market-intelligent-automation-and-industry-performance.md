@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-14-bis2-hydroxyhexafluoroisopropylbenzene-cpadf/

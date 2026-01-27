@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automobile-grade-ic-market-technology-xdknf/

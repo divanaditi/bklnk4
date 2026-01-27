@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-runtime-application-self-protection-n2jcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-different-evil-grass-loosely-market-ai-impact-industry-qmv6c/

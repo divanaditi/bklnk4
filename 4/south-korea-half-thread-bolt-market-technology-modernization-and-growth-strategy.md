@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-half-thread-bolt-market-technology-z7ifc/

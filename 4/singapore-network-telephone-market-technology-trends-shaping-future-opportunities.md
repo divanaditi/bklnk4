@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-network-telephone-market-technology-trends-ecl4c/

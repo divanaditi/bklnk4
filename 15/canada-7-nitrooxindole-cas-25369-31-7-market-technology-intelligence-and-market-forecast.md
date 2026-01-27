@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-7-nitrooxindole-cas-25369-31-7-market-technology-cnt2f/

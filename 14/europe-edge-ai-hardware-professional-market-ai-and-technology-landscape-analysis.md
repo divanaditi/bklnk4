@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-edge-ai-hardware-professional-market-technology-xrs3c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-garage-lifting-equipment-market-rl3jf/

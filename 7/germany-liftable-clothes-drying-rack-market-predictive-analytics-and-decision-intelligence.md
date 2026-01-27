@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-liftable-clothes-drying-rack-market-predictive-adxxf/

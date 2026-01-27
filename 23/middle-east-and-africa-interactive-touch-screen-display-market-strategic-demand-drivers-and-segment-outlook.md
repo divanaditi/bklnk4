@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-interactive-touch-screen-qjj0f/

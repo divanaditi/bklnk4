@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-non-destructive-testing-solution-automotive-castings-ubx1f/

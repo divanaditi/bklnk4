@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-power-window-market-intelligent-pfnef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyamide-nylon-6-market-size-2026-mykpf/

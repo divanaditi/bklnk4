@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-spray-coolers-market-demand-side-insights-cyf3e/

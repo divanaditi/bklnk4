@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bus-tachograph-market-growth-drivers-geauf/

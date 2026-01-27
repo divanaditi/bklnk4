@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-single-bipolar-junction-transistors-r1svc/

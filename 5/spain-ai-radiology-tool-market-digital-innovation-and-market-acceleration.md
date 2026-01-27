@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-radiology-tool-market-digital-innovation-fi0lf/

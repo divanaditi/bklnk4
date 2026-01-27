@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dye-medical-laser-market-segment-jpccc/

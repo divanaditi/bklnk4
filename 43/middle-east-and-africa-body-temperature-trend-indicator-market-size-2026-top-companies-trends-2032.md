@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-body-temperature-trend-indicator-market-hfo6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smart-money-investing-financial-services-bgz7f/

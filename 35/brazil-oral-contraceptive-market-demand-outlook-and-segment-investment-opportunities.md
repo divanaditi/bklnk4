@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-oral-contraceptive-market-demand-outlook-segment-44cvf/

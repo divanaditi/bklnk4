@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fashion-homewear-professional-market-ai-automation-4rssf/

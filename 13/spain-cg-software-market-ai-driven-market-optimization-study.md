@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cg-software-market-ai-driven-optimization-study-jh3rf/

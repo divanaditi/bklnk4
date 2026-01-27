@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-rna-purification-market-growth-drivers-demand-lgzme/

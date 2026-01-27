@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lithium-battery-equipment-market-growth-drivers-fygif/

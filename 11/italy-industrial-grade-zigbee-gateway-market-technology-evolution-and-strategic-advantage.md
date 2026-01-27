@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-industrial-grade-zigbee-gateway-market-technology-kqexf/

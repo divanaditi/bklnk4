@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-customer-communication-management-software-yb1lf/

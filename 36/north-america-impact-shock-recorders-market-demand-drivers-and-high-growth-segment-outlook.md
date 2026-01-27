@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-impactshock-recorders-market-demand-tuslf/

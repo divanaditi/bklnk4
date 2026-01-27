@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-office-desk-lamp-market-ai-enabled-process-3ah7f/

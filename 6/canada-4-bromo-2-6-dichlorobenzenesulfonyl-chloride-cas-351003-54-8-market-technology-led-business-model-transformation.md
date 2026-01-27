@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-bromo-26-dichlorobenzenesulfonyl-chloride-oz68f/

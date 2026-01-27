@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-civil-aviation-flight-training-simulation-n0fvf/

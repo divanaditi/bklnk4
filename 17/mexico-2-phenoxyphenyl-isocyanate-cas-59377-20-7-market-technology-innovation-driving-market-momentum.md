@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-phenoxyphenyl-isocyanate-cas-59377-20-7-r4lrf/

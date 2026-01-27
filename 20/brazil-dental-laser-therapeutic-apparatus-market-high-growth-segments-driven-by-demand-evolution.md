@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dental-laser-therapeutic-apparatus-market-0lj6f/

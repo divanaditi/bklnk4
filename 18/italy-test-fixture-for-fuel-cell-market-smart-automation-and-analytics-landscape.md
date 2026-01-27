@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-test-fixture-fuel-cell-market-smart-automation-myonf/

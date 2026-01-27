@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-outlook-size-industry-trends-5u0hf/

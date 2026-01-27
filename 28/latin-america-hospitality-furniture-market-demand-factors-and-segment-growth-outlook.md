@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hospitality-furniture-market-demand-49gac/

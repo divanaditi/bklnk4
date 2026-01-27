@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-reinforced-digital-isolators-market-i3bhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-multichannel-inventory-management-software-professional-2r8qf/

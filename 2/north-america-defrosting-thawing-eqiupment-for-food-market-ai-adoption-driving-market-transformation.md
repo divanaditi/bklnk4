@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-defrosting-thawing-eqiupment-food-w5ecf/

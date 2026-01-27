@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-baby-straps-market-technology-intelligence-8db2f/

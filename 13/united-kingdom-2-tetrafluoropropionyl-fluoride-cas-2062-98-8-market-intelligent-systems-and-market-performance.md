@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-2-tetrafluoropropionyl-fluoride-cas-2062-98-8-yf6vf/

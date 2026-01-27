@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-motor-generator-manufacturing-market-wpq5f/

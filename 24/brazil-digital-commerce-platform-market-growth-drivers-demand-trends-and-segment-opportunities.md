@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-commerce-platform-market-growth-drivers-np0qf/

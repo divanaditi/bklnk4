@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cold-chain-tracking-monitoring-vaxkf/

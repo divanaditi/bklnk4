@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-online-trading-platform-market-segment-level-dcc5f/

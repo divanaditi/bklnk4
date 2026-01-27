@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-di-pentaerythritol-penta-market-yr84c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electrical-cad-market-digital-intelligence-future-txkjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ai-big-data-analytics-telecom-nyssf/

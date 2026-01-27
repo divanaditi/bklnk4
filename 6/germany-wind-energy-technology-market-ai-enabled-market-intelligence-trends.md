@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-wind-energy-technology-market-ai-enabled-srxnf/

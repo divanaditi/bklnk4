@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-below-500-kg-leo-satellite-market-digital-intelligence-7pz6f/

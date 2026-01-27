@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-customer-generated-content-cgc-platform-market-wcxjf/

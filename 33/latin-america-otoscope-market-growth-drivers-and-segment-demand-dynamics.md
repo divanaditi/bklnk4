@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-otoscope-market-growth-drivers-segment-k9qze/

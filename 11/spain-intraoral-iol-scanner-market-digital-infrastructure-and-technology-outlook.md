@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-intraoral-iol-scanner-market-digital-infrastructure-q3gff/

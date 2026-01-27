@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-household-appliances-market-segment-growth-outlook-dy61c/

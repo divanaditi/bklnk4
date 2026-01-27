@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-range-hood-cooktop-market-demand-drivers-9pvff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-12-dimethyl-1h-indole-3-carboxaldehyde-cas-dn3pf/

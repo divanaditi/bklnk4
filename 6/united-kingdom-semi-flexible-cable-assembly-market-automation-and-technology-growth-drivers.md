@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-semi-flexible-cable-assembly-market-zoc1f/

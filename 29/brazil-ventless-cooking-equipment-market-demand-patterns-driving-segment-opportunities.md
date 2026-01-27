@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ventless-cooking-equipment-market-demand-dal4f/

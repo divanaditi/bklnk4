@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coding-marking-system-market-ai-enabled-y7caf/

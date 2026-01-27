@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-aeroponics-farming-market-high-growth-yyroe/

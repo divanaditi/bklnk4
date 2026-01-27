@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-surgical-mallet-market-automation-kpjgf/

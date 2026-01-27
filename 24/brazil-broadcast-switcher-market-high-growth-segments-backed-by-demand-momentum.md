@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-broadcast-switcher-market-high-growth-segments-3dt2f/

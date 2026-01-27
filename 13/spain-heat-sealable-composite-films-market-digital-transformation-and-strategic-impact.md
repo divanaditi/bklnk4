@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-heat-sealable-composite-films-market-digital-transformation-zltzf/

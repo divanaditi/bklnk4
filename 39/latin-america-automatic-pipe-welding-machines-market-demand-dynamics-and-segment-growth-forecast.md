@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-pipe-welding-machines-56huf/

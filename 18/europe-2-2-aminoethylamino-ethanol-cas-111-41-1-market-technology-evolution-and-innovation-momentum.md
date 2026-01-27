@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-2-2-aminoethylaminoethanol-cas-111-41-1-b40wf/

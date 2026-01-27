@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shopping-bag-market-demand-trends-d6rhc/

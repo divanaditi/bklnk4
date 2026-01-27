@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-recycled-textiles-market-technology-mbv8f/

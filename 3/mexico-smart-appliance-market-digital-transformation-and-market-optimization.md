@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-smart-appliance-market-digital-transformation-optimization-p6d3f/

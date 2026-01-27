@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-feminine-hygiene-sales-market-digital-transformation-huvbf/

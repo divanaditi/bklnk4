@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vehicle-mounted-ni-mh-battery-market-digital-intelligence-hynjf/

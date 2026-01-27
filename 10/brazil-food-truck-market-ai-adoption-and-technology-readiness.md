@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-food-truck-market-ai-adoption-technology-readiness-6akmf/

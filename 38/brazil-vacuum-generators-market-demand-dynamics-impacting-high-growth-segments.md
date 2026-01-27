@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacuum-generators-market-demand-dynamics-g7szf/

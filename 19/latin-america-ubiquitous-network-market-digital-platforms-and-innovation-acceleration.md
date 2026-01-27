@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ubiquitous-network-market-digital-platforms-fooee/

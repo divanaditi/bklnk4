@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wearable-devices-sports-market-demand-z9ilf/

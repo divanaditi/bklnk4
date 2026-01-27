@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-refurbished-cell-phones-market-demand-evolution-hngrf/

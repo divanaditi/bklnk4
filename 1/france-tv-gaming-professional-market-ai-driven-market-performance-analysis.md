@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-tv-gaming-professional-market-ai-driven-tsbhf/

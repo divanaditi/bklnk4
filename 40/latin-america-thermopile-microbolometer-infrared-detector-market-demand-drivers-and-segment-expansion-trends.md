@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermopile-microbolometer-infrared-detector-bis1f/

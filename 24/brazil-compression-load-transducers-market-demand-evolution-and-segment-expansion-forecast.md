@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-compression-load-transducers-market-rhezf/

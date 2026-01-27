@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-body-shaping-fat-reduction-instrument-market-automation-hdwnf/

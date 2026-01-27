@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-35-dichlorophenyl-isocyanate-cas-34893-92-0-ocl6f/

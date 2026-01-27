@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mine-aerial-cable-locomotive-market-qve7f/

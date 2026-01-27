@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyethylene-pe-heat-shrink-ekief/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-polysilicon-chip-market-demand-trends-shaping-2womf/

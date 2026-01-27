@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-public-cloud-migration-professional-market-smart-fn4xf/

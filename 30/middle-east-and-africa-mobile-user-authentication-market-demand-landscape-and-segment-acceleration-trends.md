@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mobile-user-authentication-market-kop1f/

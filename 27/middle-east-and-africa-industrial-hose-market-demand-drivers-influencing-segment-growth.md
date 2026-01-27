@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-industrial-hose-market-demand-drivers-pv3qf/

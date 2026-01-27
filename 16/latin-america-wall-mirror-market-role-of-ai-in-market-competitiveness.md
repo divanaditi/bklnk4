@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wall-mirror-market-role-ai-competitiveness-qzcmf/

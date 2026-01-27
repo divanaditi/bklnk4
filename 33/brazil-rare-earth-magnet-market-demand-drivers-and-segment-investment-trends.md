@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rare-earth-magnet-market-demand-drivers-qw7ue/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-game-streaming-market-ai-technology-adoption-mlhmf/

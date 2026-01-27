@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-restaurant-delivery-takeout-software-coc9f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-marine-communication-systems-market-demand-ympre/

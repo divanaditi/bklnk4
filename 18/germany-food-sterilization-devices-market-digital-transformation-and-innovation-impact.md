@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-food-sterilization-devices-market-digital-transformation-ib3yf/

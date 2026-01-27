@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-car-telematics-wireless-m2m-market-growth-drivers-tyh5f/

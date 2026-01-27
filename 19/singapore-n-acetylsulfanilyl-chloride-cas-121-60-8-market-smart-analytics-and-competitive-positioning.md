@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-n-acetylsulfanilyl-chloride-cas-121-60-8-fj9be/

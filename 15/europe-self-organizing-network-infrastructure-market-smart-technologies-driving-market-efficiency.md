@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-self-organizing-network-infrastructure-market-vw5mf/

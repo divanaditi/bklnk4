@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-signature-pad-market-demand-outlook-segment-fg8sc/

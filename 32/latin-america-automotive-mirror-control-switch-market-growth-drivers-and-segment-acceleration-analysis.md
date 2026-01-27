@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-mirror-control-switch-market-r71xe/

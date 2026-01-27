@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-leather-handbag-market-demand-trends-high-growth-mnkif/

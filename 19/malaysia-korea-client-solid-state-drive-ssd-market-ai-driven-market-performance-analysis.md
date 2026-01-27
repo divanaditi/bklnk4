@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-client-solid-state-drive-ssd-market-v2ple/

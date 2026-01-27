@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-hospital-screen-market-zx3uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mexico-commercial-real-estate-market-gs0ue/

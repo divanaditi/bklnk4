@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wifi-residential-gateway-market-demand-qc6of/

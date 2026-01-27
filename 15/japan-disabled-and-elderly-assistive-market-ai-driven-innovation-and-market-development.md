@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-disabled-elderly-assistive-market-ai-driven-innovation-pajkf/

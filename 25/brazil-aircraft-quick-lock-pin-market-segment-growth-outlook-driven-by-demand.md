@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aircraft-quick-lock-pin-market-segment-88ztf/

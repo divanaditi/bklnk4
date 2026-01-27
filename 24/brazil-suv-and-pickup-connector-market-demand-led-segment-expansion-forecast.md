@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-suv-pickup-connector-market-demand-led-flw9f/

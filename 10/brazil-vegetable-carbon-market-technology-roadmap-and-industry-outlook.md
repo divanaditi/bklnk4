@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vegetable-carbon-market-technology-roadmap-i4etf/

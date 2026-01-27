@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-serial-nor-flash-memory-market-intelligent-sbogf/

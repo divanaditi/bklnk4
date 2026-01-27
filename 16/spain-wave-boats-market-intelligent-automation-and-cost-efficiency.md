@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-wave-boats-market-intelligent-automation-cost-sgpbf/

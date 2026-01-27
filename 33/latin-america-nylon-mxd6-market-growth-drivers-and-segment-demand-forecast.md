@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nylon-mxd6-market-growth-drivers-bxfxe/

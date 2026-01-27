@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-management-service-market-demand-patterns-ivfqc/

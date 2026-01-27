@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-can-bus-device-modules-market-technology-innovation-czujf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-foot-warmer-hot-water-bottle-market-l0ouc/

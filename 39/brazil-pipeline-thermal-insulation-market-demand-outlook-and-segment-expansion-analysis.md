@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pipeline-thermal-insulation-market-demand-outlook-odirf/

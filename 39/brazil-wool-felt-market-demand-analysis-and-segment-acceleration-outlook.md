@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wool-felt-market-demand-analysis-segment-acceleration-0wl3f/

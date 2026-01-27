@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-dodecahydrotriphenylene-cas-1610-39-5-market-9vu0f/

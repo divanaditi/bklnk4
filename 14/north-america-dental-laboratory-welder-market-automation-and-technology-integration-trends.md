@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-dental-laboratory-welder-market-automation-ua2of/

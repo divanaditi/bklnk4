@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-electric-adjustment-potentiometer-vm8gf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-meat-thermometer-market-i7kxf/

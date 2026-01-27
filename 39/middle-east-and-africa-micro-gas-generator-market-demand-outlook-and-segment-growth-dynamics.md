@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-gas-generator-market-demand-outlook-9l03f/

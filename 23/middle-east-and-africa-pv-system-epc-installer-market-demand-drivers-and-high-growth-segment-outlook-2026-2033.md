@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pv-system-epc-installer-market-hxxnf/

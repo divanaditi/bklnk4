@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-small-business-loan-market-demand-side-pnmsc/

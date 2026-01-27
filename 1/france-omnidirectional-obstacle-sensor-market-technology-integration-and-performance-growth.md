@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-omnidirectional-obstacle-sensor-market-technology-kbatf/

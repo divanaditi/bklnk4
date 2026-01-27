@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-signage-lighting-market-growth-drivers-demand-trends-o1kuf/

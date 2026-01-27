@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-portable-bathroom-trailer-rental-market-technology-led-hjgaf/

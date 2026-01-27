@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-skin-full-thickness-model-market-digital-transformation-lwgdf/

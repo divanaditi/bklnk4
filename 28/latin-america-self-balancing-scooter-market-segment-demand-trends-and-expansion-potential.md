@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-self-balancing-scooter-market-segment-irgbc/

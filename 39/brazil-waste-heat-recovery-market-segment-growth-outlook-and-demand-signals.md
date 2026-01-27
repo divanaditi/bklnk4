@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waste-heat-recovery-market-segment-growth-8abvf/

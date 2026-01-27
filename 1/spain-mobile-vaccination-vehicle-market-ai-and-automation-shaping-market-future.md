@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mobile-vaccination-vehicle-market-ai-automation-rniaf/

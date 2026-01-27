@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ship-spares-equipment-market-demand-analysis-lk7vf/

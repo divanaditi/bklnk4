@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pneumatic-grippers-market-demand-o9laf/

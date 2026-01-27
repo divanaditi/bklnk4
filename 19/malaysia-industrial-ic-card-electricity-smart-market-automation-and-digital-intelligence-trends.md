@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-ic-card-electricity-smart-ytwue/

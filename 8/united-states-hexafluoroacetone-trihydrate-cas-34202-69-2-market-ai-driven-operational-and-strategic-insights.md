@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-hexafluoroacetone-trihydrate-cas-34202-69-2-vbbif/

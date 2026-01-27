@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cmp-pad-market-demand-signals-segment-kjjqc/

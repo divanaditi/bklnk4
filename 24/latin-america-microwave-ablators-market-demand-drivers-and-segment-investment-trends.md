@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-microwave-ablators-market-demand-drivers-xpquc/

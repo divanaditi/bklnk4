@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-liner-less-lables-market-technology-adoption-ky7if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-world-oven-market-automation-analytics-yehtf/

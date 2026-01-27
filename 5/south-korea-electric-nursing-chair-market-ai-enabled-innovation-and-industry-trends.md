@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electric-nursing-chair-market-ai-enabled-jj4jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hematological-disorders-diagnostic-therapeutic-yh4rf/

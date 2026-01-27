@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digitized-logistics-market-demand-outlook-segment-59hpf/

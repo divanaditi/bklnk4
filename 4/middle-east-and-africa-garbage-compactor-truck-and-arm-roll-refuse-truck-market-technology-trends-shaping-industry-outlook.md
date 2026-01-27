@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-garbage-compactor-truck-arm-roll-1fyif/

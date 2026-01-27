@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-out-of-home-coffee-market-ai-trends-0d50f/

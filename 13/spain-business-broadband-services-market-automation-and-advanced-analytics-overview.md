@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-business-broadband-services-market-automation-dj4gf/

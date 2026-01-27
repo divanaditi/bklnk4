@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thioglycolic-acid-market-segment-growth-en3uf/

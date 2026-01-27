@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-payment-services-market-high-growth-segments-yhe7f/

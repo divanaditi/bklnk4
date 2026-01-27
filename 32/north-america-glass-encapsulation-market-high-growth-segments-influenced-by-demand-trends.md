@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-glass-encapsulation-market-high-growth-yxkrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flat-sewing-machine-market-demand-idqpf/

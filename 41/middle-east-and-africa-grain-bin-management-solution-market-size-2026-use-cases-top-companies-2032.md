@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-grain-bin-management-fwr8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-maual-stretch-film-market-ai-emerging-ibznf/

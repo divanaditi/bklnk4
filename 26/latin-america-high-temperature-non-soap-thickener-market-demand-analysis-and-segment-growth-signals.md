@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-high-temperature-non-soap-thickener-pqtvc/

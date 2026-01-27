@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ac-dc-current-sensor-market-digital-transformation-eptbf/

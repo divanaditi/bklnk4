@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pos-systems-software-market-technology-eeawf/

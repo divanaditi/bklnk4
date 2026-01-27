@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-salmon-jerky-market-technology-led-efficiency-niuec/

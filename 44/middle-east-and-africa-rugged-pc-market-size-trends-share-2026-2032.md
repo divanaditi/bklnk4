@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rugged-pc-market-size-trends-share-7druf/

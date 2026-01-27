@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-personnel-carrier-electric-market-cloud-ai-hd1yc/

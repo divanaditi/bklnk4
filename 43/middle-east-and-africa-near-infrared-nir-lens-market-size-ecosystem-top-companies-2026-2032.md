@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-near-infrared-nir-lens-market-size-ecosystem-cfnxc/

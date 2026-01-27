@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-warehouse-storage-professional-market-eatzc/

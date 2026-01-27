@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-iot-security-solution-encryption-market-demand-q0zyc/

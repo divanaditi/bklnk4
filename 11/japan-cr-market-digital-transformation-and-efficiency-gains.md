@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cr-market-digital-transformation-efficiency-gains-dn0of/

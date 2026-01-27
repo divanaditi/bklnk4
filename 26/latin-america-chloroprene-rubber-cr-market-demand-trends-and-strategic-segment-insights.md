@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chloroprene-rubber-cr-market-0xa0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-quick-dry-towels-market-size-ucxgf/

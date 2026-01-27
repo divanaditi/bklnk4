@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-quick-service-restaurants-furniture-market-a2fif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-fluorobenzenesulfonylacetonitrile-cas-32083-66-2-vrf3f/

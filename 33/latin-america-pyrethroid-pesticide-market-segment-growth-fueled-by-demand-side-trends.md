@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pyrethroid-pesticide-market-segment-growth-vqo2e/

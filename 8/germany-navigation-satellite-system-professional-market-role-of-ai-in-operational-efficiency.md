@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-navigation-satellite-system-professional-85pwf/

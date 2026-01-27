@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-high-dynamic-range-hdr-tvs-market-demand-xcznc/

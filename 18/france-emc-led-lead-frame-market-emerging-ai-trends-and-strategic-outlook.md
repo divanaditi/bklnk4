@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-emc-led-lead-frame-market-emerging-ai-trends-ili6f/

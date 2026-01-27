@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cutting-machine-wood-market-digital-capabilities-fpytf/

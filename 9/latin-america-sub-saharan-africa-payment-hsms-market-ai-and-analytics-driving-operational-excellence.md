@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sub-saharan-africa-payment-hsms-7uw5f/

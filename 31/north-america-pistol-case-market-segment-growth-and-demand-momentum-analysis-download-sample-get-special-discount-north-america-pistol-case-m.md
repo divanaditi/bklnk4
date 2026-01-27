@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-pistol-case-market-segment-growth-demand-momentum-scflf/

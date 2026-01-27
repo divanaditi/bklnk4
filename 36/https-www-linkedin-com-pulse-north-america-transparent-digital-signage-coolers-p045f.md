@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-transparent-digital-signage-coolers-p045f/

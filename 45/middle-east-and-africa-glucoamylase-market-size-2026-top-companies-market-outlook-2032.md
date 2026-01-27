@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-glucoamylase-market-size-2026-top-companies-ntlpc/

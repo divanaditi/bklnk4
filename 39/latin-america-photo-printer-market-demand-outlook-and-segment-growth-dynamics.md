@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-photo-printer-market-demand-tt4vf/

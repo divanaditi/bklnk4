@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-din-rail-sensor-switch-market-advanced-digital-i910f/

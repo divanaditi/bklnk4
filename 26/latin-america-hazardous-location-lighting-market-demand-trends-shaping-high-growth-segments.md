@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hazardous-location-lighting-market-demand-trends-siuzc/

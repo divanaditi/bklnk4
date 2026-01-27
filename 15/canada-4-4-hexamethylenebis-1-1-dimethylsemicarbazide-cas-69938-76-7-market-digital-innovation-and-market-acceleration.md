@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-44-hexamethylenebis11-dimethylsemicarbazide-ym5gf/

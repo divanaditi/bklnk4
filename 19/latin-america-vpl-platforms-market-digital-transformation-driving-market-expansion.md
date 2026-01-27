@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vpl-platforms-market-digital-transformation-xeije/

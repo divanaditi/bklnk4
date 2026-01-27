@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-metal-inductor-automotive-market-smart-e7zwf/

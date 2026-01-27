@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-portable-hba1c-analyzers-market-demand-rrfxe/

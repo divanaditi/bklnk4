@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mobile-safety-laser-scanner-market-segment-bj86e/

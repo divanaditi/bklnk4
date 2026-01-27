@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-octanal-dimethyl-acetal-market-intelligent-cw08c/

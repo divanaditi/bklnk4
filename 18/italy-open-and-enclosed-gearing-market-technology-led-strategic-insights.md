@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-open-enclosed-gearing-market-technology-led-strategic-pgizf/

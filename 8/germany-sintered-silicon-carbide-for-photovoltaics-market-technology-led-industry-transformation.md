@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-sintered-silicon-carbide-photovoltaics-e3gwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-5-chloro-2-methyl-4-isothiazolin-3-one-cas-26172-55-4-k0gif/

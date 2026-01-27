@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-air-borne-wind-turbine-market-size-yqk0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-safety-goggle-market-smart-technologies-1rruf/

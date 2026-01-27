@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-jewelry-inventory-software-market-hj2kf/

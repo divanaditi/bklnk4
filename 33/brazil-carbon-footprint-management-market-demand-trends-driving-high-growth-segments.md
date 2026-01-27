@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-carbon-footprint-management-market-demand-iofse/

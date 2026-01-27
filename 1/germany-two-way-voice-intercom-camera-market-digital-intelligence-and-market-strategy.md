@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-two-way-voice-intercom-camera-market-digital-zxudf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shift-detents-market-high-growth-segments-jnpwf/

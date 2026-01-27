@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-battery-testing-equipment-market-strategic-demand-drivers-ynmqf/

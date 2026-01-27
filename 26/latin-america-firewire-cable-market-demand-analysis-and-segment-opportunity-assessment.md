@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-firewire-cable-market-demand-analysis-6lloc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-specialty-blood-pressure-cuffs-market-demand-outlook-ume4f/

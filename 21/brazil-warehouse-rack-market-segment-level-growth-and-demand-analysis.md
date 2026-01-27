@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-warehouse-rack-market-segment-level-growth-y9scf/

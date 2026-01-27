@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-reporting-tools-professional-market-ai-led-digital-bprwc/

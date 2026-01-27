@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-airport-resource-management-system-rms-market-tl5rf/

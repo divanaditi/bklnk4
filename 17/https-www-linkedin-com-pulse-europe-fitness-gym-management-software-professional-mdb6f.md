@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-fitness-gym-management-software-professional-mdb6f/

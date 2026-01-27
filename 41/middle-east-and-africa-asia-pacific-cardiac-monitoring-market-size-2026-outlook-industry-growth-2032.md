@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-asia-pacific-cardiac-monitoring-ger2f/

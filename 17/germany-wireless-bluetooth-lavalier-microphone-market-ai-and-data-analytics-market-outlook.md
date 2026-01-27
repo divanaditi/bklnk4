@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-wireless-bluetooth-lavalier-microphone-market-jalvf/

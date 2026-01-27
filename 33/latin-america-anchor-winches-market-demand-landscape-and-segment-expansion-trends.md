@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anchor-winches-market-demand-landscape-xqzke/

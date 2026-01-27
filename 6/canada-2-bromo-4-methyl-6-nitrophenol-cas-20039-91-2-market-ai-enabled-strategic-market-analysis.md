@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-4-methyl-6-nitrophenol-cas-20039-91-2-dbg5f/

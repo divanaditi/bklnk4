@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cardiovascular-training-equipment-market-demand-jqn3f/

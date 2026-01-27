@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-football-sports-market-digital-platforms-innovation-hfcyf/

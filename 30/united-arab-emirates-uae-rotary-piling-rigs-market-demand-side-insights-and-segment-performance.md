@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-rotary-piling-rigs-market-demand-side-bade-1ka9f/

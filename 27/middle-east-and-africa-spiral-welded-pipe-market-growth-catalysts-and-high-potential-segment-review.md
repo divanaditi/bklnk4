@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-spiral-welded-pipe-market-growth-do9ef/

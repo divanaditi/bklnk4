@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-solar-salt-professional-market-technology-jxztf/

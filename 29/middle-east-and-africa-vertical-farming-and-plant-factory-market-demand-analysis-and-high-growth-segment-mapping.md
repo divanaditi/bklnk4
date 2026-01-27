@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vertical-farming-plant-factory-ut7gf/

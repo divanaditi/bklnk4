@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vehicle-electrification-market-demand-analysis-qx0ue/

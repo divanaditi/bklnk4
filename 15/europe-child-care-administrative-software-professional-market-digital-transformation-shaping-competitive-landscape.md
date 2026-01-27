@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-child-care-administrative-software-professional-ja10f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thermal-analyzer-market-demand-6nf2f/

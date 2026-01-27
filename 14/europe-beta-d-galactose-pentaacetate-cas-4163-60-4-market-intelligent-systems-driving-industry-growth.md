@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-beta-d-galactose-pentaacetate-cas-4163-60-4-market-yldzf/

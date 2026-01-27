@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-split-type-hollow-photovoltaic-junction-z4yvf/

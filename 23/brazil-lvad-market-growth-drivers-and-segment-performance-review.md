@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lvad-market-growth-drivers-segment-performance-du0uf/

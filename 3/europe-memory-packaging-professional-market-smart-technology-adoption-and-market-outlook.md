@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-memory-packaging-professional-market-smart-vftlf/

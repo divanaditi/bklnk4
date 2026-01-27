@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automatic-watches-professional-market-automation-0amkf/

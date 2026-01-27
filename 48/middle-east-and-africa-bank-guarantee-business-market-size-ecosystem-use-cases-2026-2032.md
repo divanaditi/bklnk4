@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bank-guarantee-business-market-x9rjf/

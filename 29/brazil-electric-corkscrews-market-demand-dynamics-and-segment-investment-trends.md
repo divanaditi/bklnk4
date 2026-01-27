@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electric-corkscrews-market-demand-dynamics-3luyf/

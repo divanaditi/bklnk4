@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-off-grid-inverters-market-technology-hr1bf/

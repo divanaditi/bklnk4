@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-software-defined-vehicle-sdv-market-technology-n5ssf/

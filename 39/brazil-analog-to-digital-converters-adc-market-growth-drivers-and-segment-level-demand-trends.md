@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-analog-to-digital-convertersadc-market-odgaf/

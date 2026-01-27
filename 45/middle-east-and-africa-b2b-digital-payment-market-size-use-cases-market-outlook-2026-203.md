@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-b2b-digital-payment-market-6fgof/

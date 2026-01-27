@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-machine-vision-market-demand-signals-2mtwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-hair-wax-stick-market-technology-innovation-odsic/

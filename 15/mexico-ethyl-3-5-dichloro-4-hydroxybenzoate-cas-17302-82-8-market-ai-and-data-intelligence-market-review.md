@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-ethyl-35-dichloro-4-hydroxybenzoate-cas-17302-82-8-mhjnf/

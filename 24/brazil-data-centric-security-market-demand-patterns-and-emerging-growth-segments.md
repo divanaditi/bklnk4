@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-data-centric-security-market-demand-patterns-5ppbf/

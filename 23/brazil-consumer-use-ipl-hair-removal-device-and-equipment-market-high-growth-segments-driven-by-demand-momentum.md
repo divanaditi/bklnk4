@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-consumer-use-ipl-hair-removal-device-equipment-eeqgf/

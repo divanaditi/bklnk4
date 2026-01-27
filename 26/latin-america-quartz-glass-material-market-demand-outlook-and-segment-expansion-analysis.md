@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-quartz-glass-material-market-demand-outlook-m2zgc/

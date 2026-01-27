@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-inadequately-controlled-type-ii-diabetes-egqzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-hot-yoga-studios-market-impact-ai-digital-pzsdf/

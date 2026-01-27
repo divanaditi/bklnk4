@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lbo-bbo-crystal-market-ai-digital-ecosystem-f2i7c/

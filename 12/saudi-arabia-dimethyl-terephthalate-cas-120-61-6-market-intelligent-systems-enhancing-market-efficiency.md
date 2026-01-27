@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-dimethyl-terephthalate-cas-120-61-6-market-1mzjc/

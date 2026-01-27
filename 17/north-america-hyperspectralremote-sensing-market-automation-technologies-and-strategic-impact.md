@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hyperspectralremote-sensing-market-automation-xtqbc/

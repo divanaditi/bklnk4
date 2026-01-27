@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hunting-gloves-market-demand-landscape-v4i2f/

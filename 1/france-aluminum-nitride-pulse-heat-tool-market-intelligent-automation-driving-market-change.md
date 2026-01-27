@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-aluminum-nitride-pulse-heat-tool-market-intelligent-clvgf/

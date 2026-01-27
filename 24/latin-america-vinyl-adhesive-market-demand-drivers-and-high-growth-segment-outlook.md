@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vinyl-adhesive-market-demand-drivers-4hcwc/

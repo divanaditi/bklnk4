@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-s-ampa-cas-83643-88-3-market-ai-automation-4wdnc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-data-annotation-collection-services-market-qcnpf/

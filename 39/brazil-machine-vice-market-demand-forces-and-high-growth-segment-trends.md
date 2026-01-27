@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-machine-vice-market-demand-forces-high-growth-o98mf/

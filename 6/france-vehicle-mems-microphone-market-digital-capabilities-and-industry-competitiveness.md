@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vehicle-mems-microphone-market-digital-capabilities-tdxlf/

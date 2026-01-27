@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-critical-national-infrastructure-cyber-security-zpnre/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-lutetium-chloride-hexahydrate-cas-15230-79-2-g0lyf/

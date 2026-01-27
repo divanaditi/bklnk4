@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-7-chloro-1-cyclopropyl-6-fluoro-14-dihydro-4-oxoquinoline-3-carboxylic-4aecf/

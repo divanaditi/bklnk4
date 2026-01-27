@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-church-accounting-software-market-xb4lc/

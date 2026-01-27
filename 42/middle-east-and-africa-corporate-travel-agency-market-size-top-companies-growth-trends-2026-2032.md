@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-corporate-travel-agency-market-6wajc/

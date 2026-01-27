@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pump-turbine-pat-market-size-tvfvf/

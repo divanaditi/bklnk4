@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-gaas-image-sensors-market-demand-analysis-wxrke/

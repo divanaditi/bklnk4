@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-desktop-cardiotocography-device-market-digital-transformation-lcuuf/

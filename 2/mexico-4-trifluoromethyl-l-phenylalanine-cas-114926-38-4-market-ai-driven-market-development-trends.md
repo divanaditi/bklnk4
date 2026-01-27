@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-trifluoromethyl-l-phenylalanine-cas-114926-38-4-csluf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-iron-ore-pellets-market-demand-trends-ytmef/

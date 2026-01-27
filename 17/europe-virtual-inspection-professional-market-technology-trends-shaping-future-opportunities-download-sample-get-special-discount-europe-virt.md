@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-virtual-inspection-professional-market-s7r0f/

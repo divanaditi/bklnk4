@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-5-bromo-2-chlorophenol-cas-183802-98-4-qzalc/

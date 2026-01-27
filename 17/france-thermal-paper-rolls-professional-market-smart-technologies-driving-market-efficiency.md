@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-thermal-paper-rolls-professional-market-smart-technologies-mpuzf/

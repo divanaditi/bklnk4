@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-bus-switch-ic-market-technology-dco4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-data-catalog-software-market-technology-led-intelligence-0nrqf/

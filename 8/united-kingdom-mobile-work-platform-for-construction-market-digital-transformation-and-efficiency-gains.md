@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-mobile-work-platform-construction-v7sef/

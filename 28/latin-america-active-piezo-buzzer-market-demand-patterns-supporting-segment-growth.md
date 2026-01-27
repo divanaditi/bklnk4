@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-active-piezo-buzzer-market-demand-patterns-zifoc/

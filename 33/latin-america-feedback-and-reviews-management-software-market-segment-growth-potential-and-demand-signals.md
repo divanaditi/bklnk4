@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-feedback-reviews-management-software-7zmee/

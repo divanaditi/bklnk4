@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ultra-light-folding-electric-wheelchair-market-8twsf/

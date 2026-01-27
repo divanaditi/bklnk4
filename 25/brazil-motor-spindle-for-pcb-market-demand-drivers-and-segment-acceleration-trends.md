@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-motor-spindle-pcb-market-demand-cwdhf/

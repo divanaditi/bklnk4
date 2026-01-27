@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-assistant-ear-based-device-market-rpalf/

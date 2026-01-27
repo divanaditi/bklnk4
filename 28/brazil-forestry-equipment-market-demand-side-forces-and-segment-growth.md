@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-forestry-equipment-market-demand-side-g0xkc/

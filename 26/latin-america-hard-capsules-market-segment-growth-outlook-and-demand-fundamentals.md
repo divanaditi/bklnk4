@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hard-capsules-market-segment-growth-outlook-vflwc/

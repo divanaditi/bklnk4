@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-drug-desensitization-market-technology-led-intelligence-74t7f/

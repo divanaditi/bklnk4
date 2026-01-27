@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-testing-inspection-certification-tic-agriculture-hzegf/

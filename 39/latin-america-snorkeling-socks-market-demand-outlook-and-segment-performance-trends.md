@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-snorkeling-socks-market-demand-outlook-zljff/

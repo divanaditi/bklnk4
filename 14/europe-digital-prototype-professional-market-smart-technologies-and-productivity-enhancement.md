@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-prototype-professional-market-6kitc/

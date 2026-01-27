@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-nursing-care-simulator-market-automation-ai-1pr1f/

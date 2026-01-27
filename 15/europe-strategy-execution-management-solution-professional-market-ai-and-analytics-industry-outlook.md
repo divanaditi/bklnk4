@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-strategy-execution-management-solution-professional-1nw3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-wall-mounted-infrared-patio-heaters-market-ai-adoption-fii4f/

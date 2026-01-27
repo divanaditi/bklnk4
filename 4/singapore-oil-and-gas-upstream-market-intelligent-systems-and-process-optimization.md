@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oil-gas-upstream-market-intelligent-systems-process-esmhc/

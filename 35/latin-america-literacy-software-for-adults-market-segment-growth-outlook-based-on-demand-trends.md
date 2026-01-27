@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-literacy-software-adults-market-b3oyf/

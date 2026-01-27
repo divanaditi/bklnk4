@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-data-collection-labeling-market-automation-technology-zumuc/

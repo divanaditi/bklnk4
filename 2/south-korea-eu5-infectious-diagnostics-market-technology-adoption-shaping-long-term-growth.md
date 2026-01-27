@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-eu5-infectious-diagnostics-market-technology-3fpnc/

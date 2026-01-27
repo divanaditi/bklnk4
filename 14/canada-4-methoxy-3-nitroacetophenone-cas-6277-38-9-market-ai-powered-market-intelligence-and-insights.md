@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-methoxy-3-nitroacetophenone-cas-6277-38-9-bz1cc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-products-market-ai-enabled-efficiency-arrcf/

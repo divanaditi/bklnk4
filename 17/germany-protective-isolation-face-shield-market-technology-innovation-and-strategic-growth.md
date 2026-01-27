@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-protective-isolation-face-shield-market-tilwf/

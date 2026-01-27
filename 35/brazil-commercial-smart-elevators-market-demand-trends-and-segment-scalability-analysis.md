@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-smart-elevators-market-demand-trends-qqp7f/

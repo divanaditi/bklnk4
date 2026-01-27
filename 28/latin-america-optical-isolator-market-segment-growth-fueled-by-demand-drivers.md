@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-optical-isolator-market-segment-ibl5c/

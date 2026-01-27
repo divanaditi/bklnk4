@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-salon-cosmetics-market-demand-outlook-6vksc/

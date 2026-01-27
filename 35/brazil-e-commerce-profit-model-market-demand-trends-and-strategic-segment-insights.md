@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-e-commerce-profit-model-market-demand-trends-jjatf/

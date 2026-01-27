@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coagulation-hemostasis-analyzer-market-demand-dynamics-fsptf/

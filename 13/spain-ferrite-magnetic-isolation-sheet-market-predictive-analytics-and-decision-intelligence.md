@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ferrite-magnetic-isolation-sheet-market-predictive-lg4yf/

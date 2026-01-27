@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ostomy-bags-market-demand-trends-segment-performance-kdjmf/

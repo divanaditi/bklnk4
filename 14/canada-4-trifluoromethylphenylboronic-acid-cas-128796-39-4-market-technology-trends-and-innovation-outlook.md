@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-trifluoromethylphenylboronic-acid-cas-7cxlf/

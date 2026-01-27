@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-luxury-purchases-market-demand-patterns-5i1kf/

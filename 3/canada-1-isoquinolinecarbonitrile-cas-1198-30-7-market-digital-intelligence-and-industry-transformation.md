@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-isoquinolinecarbonitrile-cas-1198-30-7-sgeaf/

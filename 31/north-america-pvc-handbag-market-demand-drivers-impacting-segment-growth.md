@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-pvc-handbag-market-demand-drivers-impacting-xyk6f/

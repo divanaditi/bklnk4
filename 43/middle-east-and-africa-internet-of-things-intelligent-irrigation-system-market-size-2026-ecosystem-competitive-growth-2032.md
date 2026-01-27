@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-internet-things-intelligent-sxm3f/

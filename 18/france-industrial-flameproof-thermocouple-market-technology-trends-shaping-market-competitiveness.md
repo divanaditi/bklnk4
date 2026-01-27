@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-flameproof-thermocouple-market-technology-0e8hf/

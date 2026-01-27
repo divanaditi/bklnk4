@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-guaranteed-asset-protection-gap-insurance-wwfvf/

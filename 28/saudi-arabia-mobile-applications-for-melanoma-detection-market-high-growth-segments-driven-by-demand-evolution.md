@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mobile-applications-melanoma-detection-market-ea5zf/

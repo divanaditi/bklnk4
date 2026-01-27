@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cloud-supply-chain-management-software-market-automation-aqj9f/

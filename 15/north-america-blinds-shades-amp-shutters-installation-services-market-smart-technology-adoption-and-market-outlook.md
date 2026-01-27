@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-blinds-shades-amp-shutters-installation-njkof/

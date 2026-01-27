@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-grade-usb-flash-drive-market-intelligent-uumrf/

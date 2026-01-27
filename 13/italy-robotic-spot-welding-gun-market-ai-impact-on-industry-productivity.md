@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-robotic-spot-welding-gun-market-ai-impact-industry-yojsf/

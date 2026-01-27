@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waterproof-drone-market-automation-digital-ze4vf/

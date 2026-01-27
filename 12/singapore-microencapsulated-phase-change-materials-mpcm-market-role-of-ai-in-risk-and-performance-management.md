@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microencapsulated-phase-change-materials-5uwmf/

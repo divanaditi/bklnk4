@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-virtual-power-plant-vpp-system-software-msqqc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-study-off-street-parking-management-pvn7c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-legal-technology-market-size-outlook-0hvvf/

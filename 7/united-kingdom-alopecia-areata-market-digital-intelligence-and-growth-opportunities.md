@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-alopecia-areata-market-digital-6w3xf/

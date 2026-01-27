@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gravity-drop-metal-detector-market-ai-enabled-dkkgf/

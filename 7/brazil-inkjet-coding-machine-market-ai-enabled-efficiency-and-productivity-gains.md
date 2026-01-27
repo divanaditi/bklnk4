@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-inkjet-coding-machine-market-ai-enabled-psjmf/

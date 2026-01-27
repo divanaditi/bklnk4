@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fuselage-frame-market-technology-disruption-nnnyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-labels-market-outlook-size-trends-maw9f/

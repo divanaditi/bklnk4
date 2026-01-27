@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-file-rename-software-market-ai-adoption-trends-n2vvf/

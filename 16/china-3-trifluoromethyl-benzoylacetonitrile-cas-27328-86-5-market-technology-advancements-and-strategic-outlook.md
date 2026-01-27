@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-3-trifluoromethylbenzoylacetonitrile-cas-27328-86-5-xfxnf/

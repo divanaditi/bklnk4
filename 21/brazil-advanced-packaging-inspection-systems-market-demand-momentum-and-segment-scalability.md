@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-advanced-packaging-inspection-systems-market-1vp3f/

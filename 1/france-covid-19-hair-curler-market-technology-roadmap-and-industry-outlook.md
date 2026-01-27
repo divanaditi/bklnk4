@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-covid-19-hair-curler-market-technology-roadmap-eesbf/

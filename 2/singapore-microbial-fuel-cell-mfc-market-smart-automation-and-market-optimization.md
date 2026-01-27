@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microbial-fuel-cell-mfc-market-smart-vtonc/

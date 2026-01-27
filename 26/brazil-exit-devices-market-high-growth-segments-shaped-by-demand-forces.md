@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-exit-devices-market-high-growth-segments-shaped-sjquc/

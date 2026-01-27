@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yoga-studio-management-scheduling-software-market-automation-zumxf/

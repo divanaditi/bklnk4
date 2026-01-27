@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hipaa-compliant-messaging-software-sdqzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-closure-market-technology-evolution-growth-3icec/

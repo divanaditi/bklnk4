@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-handheld-digital-battery-testers-market-j8ixf/

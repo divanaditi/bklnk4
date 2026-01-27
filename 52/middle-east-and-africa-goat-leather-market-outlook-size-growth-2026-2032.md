@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-goat-leather-market-outlook-size-growth-elmae/

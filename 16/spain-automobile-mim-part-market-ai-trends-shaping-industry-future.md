@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automobile-mim-part-market-ai-trends-shaping-5dcof/

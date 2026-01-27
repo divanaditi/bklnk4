@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-forest-wildfire-detection-system-market-3vf9f/

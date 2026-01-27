@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-7-aminoheptanoic-acid-cas-929-17-9-market-technology-gou0f/

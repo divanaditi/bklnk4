@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-capacitive-bars-sensor-market-ai-digital-transformation-mtbrf/

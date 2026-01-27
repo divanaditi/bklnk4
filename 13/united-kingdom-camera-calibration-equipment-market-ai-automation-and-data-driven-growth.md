@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-camera-calibration-equipment-market-3imnf/

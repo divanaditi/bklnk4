@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gas-barrier-membranes-market-size-96ktf/

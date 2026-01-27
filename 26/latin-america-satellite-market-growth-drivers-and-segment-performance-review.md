@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-satellite-market-growth-drivers-segment-1ujfc/

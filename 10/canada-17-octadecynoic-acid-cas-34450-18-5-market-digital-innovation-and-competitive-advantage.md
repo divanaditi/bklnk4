@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-17-octadecynoic-acid-cas-34450-18-5-market-s7fof/

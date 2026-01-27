@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-carbon-monoxide-alarms-market-segment-thijf/

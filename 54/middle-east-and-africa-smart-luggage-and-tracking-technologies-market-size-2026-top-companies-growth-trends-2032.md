@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-luggage-tracking-technologies-rbs7f/

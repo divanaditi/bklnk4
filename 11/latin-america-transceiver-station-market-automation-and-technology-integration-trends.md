@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-transceiver-station-market-automation-cytfc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-battery-management-systems-consumer-electronics-1klpf/

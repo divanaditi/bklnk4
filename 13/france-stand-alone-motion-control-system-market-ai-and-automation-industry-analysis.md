@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-stand-alone-motion-control-system-market-ai-automation-pfbpf/

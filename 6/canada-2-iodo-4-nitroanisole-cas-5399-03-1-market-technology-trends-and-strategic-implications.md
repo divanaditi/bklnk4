@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-iodo-4-nitroanisole-cas-5399-03-1-market-rebuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-suspension-by-wire-sales-market-role-automation-mjtcf/

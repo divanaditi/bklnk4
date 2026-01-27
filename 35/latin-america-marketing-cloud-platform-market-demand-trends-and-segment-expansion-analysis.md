@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-marketing-cloud-platform-market-demand-pxlcf/

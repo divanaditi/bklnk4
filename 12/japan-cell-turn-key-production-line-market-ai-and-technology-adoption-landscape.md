@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cell-turn-key-production-line-market-ai-technology-uj0rf/

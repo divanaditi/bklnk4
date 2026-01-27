@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mobile-laboratory-market-size-2026-dhppc/

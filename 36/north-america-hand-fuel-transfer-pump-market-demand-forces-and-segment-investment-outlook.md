@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hand-fuel-transfer-pump-market-demand-ukkvf/

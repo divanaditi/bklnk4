@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-phone-adapter-market-technology-76lhf/

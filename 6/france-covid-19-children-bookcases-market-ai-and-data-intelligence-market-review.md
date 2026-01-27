@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-covid-19-children-bookcases-market-ai-data-4swhf/

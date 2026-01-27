@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-sports-market-automation-technology-integration-aiabf/

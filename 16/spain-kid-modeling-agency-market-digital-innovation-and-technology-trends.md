@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-kid-modeling-agency-market-digital-innovation-zl5tf/

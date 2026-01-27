@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bronze-market-demand-forces-f6mjf/

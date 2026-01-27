@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-medical-logistics-professional-market-digital-yzkxf/

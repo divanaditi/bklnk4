@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-commerce-software-market-demand-dynamics-rvfif/

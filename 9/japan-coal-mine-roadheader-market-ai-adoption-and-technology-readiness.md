@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coal-mine-roadheader-market-ai-adoption-aut3f/

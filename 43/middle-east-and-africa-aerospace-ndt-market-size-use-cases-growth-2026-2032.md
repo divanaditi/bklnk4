@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerospace-ndt-market-size-use-cases-a0kic/

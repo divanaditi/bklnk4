@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-glyceryl-caprylate-market-demand-analysis-iizwf/

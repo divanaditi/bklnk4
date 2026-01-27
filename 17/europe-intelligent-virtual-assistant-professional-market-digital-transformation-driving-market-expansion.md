@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-intelligent-virtual-assistant-professional-jyqsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-utility-lte-platforms-market-ai-adoption-across-j9hac/

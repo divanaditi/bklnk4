@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-solar-sensor-market-tw9kc/

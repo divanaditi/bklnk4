@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-fenipentol-cas-583-03-9-market-ai-adoption-f5ioc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-magnetic-resonance-imaging-system-metal-detector-9se5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-technology-platforms-market-automation-pb1mf/

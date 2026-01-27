@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-drill-market-demand-outlook-k8n3f/

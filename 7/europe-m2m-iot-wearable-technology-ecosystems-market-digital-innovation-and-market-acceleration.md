@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-m2m-iot-wearable-technology-ecosystems-wsn4f/

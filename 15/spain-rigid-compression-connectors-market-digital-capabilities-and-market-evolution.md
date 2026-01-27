@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-rigid-compression-connectors-market-digital-vewkf/

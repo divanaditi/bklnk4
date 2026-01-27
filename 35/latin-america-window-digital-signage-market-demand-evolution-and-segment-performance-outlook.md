@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-window-digital-signage-market-demand-evolution-cx8cf/

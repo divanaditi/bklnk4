@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-diaper-messenger-bag-market-ai-automation-enhancing-n7nhf/

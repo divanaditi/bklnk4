@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-diisostearyl-malate-market-demand-l0yec/

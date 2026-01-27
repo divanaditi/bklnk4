@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electrocardiogram-paper-market-high-growth-yzhue/

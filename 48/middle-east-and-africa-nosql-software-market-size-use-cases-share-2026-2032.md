@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nosql-software-market-size-use-cases-share-l8vwf/

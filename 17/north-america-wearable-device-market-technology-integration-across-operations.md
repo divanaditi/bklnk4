@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wearable-device-market-technology-integration-ajsvc/

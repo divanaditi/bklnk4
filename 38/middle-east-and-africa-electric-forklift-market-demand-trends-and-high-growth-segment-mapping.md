@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-forklift-market-demand-8u91f/

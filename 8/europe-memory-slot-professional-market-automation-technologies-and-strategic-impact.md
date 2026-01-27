@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-memory-slot-professional-market-automation-technologies-cgowf/

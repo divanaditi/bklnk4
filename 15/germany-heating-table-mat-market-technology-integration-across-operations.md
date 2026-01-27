@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-heating-table-mat-market-technology-integration-nokxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-artificial-intelligence-platform-service-tpdtc/

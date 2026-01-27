@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-solar-panel-cleaning-drone-market-technology-kcszf/

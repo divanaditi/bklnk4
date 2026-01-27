@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-twins-market-demand-forces-driving-qjxnf/

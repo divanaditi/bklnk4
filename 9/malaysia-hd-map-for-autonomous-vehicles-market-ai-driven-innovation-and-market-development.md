@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hd-map-autonomous-vehicles-market-ai-driven-9yvzf/

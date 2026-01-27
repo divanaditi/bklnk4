@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-4-trifluoromethylbenzenesulfonamide-cas-830-43-3-tfrjf/

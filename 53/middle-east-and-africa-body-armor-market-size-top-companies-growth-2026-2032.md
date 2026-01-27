@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-body-armor-market-size-top-companies-l4iae/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-ethyl-vinyl-acetate-eva-market-digital-itdzf/

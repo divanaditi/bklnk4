@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-speech-recognition-ai-artificial-xhxzf/

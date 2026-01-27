@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mission-critical-communication-l86cf/

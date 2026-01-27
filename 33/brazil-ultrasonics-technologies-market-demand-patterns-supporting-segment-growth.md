@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultrasonics-technologies-market-demand-patterns-hl86e/

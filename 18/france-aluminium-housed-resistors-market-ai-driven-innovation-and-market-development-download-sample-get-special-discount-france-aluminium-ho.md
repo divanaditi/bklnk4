@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-aluminium-housed-resistors-market-ai-driven-e1exf/

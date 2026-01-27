@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-strength-training-device-market-ja7ic/

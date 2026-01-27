@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-online-search-ad-market-demand-side-forces-zwe8f/

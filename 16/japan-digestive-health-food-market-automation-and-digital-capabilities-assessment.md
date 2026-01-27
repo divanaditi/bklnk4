@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digestive-health-food-market-automation-digital-7fulf/

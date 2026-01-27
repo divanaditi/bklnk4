@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fetal-activity-monitor-market-demand-factors-rstpc/

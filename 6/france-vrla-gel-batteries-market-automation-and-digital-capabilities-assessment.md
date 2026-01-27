@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vrla-gel-batteries-market-automation-digital-tbt1f/

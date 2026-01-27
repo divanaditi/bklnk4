@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-wicker-chairs-market-demand-ig7gf/

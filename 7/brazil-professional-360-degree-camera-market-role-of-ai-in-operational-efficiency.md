@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-professional-360-degree-camera-market-x3rmf/

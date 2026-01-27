@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-moisture-proof-pad-sales-market-ai-automation-data-driven-tbdlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-seat-track-position-sensors-market-segment-qgy2f/

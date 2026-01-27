@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-residential-furniture-market-ai-driven-ur6bf/

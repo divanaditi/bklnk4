@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-light-towers-market-size-it73f/

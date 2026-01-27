@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-building-automation-systems-market-demand-evolution-wlt7f/

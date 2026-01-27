@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-pressure-ulcer-pad-market-digital-innovation-heecf/

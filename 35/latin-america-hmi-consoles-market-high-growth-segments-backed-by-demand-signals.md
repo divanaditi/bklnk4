@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hmi-consoles-market-high-growth-segments-aylgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-triethylene-glycol-monomethyl-ether-cas-112-35-6-hde3c/

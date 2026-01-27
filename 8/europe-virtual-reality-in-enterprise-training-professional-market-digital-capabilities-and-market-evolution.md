@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-virtual-reality-enterprise-training-professional-nq6qf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-consumer-grade-inkjet-printer-market-demand-landscape-bxhmf/

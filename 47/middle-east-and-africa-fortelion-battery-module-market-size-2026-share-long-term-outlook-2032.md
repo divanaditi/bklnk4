@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fortelion-battery-module-market-ka7qf/

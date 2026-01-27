@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-4-fluoro-2-iodobenzoic-acid-cas-56096-89-0-uqfrc/

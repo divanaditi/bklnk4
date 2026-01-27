@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-self-paced-e-learning-market-size-ory6f/

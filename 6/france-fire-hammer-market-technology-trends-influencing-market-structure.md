@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fire-hammer-market-technology-trends-influencing-g5kdf/

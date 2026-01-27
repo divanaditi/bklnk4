@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-finger-jointed-boards-market-cloud-ai-digital-6kpfc/

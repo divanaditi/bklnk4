@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-logging-crane-market-digital-transformation-i8igf/

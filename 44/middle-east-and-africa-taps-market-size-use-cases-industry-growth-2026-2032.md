@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-taps-market-size-use-cases-wp37c/

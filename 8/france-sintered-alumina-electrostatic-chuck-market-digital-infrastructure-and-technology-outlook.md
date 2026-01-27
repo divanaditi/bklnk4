@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-sintered-alumina-electrostatic-chuck-market-kna1f/

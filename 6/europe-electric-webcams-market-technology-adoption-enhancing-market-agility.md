@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electric-webcams-market-technology-oi1vf/

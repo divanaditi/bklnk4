@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-amino-pyridine-4-carbaldehyde-cas-55279-29-3-market-dz8af/

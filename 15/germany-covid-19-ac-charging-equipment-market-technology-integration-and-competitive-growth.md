@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-covid-19-ac-charging-equipment-market-technology-xn2yf/

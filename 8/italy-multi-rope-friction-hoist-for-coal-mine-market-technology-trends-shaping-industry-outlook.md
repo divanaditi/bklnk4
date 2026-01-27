@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-multi-rope-friction-hoist-coal-mine-market-technology-akf2f/

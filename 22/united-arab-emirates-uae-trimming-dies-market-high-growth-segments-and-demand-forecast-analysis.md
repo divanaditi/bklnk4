@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-trimming-dies-market-high-growth-a48ff/

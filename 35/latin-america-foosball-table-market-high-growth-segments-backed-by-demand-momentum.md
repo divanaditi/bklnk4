@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-foosball-table-market-high-growth-1immf/

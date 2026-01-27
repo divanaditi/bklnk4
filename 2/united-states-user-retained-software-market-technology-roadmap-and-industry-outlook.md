@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-user-retained-software-market-technology-ldh9f/

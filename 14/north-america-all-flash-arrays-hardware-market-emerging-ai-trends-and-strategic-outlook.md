@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-all-flash-arrays-hardware-market-d6k4c/

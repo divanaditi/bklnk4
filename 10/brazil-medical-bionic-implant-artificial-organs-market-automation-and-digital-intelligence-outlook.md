@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-bionic-implantartificial-organs-q69uf/

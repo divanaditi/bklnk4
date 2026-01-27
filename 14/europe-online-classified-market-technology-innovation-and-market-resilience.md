@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-online-classified-market-technology-innovation-resilience-idyhc/

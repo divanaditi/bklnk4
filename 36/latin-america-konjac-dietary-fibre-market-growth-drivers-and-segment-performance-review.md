@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-konjac-dietary-fibre-market-growth-xns1f/

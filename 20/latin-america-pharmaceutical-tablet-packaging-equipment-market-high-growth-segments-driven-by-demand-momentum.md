@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pharmaceutical-tablet-packaging-equipment-lm7cf/

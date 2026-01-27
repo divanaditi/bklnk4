@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-financial-research-software-professional-kpzsc/

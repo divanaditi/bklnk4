@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-portable-trichosopes-market-demand-outlook-segment-hh8rf/

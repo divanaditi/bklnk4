@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-reactive-power-compensation-device-professional-pcl1f/

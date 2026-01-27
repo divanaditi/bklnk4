@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-digital-genome-market-jt4cf/

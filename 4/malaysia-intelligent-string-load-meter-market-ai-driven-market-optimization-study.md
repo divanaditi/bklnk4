@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-intelligent-string-load-meter-market-ai-driven-p6koc/

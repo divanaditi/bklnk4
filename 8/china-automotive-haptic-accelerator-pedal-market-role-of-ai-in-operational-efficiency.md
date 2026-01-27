@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automotive-haptic-accelerator-pedal-market-role-gjtof/

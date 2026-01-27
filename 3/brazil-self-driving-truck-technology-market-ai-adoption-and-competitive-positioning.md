@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-self-driving-truck-technology-market-ai-adoption-qqhif/

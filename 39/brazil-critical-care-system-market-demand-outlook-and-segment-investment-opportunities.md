@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-critical-care-system-market-demand-outlook-segment-6kluf/

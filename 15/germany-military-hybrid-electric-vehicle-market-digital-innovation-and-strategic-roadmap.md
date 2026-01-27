@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-military-hybrid-electric-vehicle-market-lgxpf/

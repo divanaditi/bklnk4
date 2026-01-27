@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-3d-surface-metrology-market-segment-5oqcf/

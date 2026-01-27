@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-current-shunt-new-energy-vehicles-market-ai-ukehf/

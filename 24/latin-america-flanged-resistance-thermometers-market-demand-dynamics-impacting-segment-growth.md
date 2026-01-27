@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flanged-resistance-thermometers-market-jipyc/

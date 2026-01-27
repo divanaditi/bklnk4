@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-liquid-crystal-polymer-market-high-growth-kjduf/

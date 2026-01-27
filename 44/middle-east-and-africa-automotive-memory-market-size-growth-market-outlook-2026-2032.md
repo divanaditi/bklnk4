@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-memory-market-size-growth-outlook-6kvnf/

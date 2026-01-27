@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-corporate-lms-professional-market-technology-integration-eihac/

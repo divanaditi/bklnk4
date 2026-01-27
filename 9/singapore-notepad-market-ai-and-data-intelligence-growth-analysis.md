@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-notepad-market-ai-data-intelligence-growth-r9thf/

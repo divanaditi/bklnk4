@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-final-expense-insurance-professional-market-hlyyf/

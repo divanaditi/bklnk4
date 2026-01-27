@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yacht-coatings-market-demand-drivers-segment-zkate/

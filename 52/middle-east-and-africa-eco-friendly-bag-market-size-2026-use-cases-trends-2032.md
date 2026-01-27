@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-eco-friendly-bag-market-size-0dohe/

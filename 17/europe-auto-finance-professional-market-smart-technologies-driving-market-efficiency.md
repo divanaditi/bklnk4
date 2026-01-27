@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-auto-finance-professional-market-smart-technologies-g3ftf/

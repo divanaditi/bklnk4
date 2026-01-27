@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-content-analytic-market-ai-enabled-competitive-y9xmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-quantum-computing-healthcare-gnl2f/

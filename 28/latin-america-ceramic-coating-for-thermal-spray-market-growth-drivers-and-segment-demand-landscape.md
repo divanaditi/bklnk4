@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ceramic-coating-thermal-spray-a4gsc/

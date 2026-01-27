@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-gate-market-segment-growth-hfmbf/

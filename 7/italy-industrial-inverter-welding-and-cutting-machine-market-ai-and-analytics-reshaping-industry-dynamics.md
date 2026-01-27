@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-industrial-inverter-welding-cutting-machine-gvljf/

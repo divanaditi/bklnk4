@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-career-training-market-segment-growth-outlook-tyidf/

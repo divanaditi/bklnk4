@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-lending-market-size-2026-share-ebc4f/

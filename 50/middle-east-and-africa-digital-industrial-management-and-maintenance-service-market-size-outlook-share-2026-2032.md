@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-digital-industrial-management-2xx1f/

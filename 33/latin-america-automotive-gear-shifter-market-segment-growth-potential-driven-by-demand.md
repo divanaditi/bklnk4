@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-gear-shifter-market-segment-otd3e/

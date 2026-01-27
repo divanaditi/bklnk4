@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-standalone-mounted-video-encoders-shr1c/

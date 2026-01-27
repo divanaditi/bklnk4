@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-speed-enforcement-cameras-app-market-digital-ddwkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-bore-gauges-market-technology-trends-bykof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-self-monitoring-blood-glucose-system-nxdzf/

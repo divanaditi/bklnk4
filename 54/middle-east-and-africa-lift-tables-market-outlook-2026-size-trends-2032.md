@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lift-tables-market-outlook-2026-2hdff/

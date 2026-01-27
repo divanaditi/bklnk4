@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-khat-plant-market-size-growth-wwxff/

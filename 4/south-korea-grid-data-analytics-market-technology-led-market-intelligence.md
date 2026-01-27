@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-grid-data-analytics-market-technology-led-l1x3c/

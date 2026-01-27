@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fresh-product-electronic-commerce-market-demand-outlook-7rsef/

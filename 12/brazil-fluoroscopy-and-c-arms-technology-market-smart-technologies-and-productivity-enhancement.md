@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fluoroscopy-c-arms-technology-market-smart-technologies-qdioc/

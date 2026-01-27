@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-escalators-moving-walkways-market-demand-dqlqf/

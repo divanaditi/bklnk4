@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-air-conditioning-hoses-market-digital-transformation-wcuuf/

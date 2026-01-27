@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-paper-wet-strength-resin-market-u87kc/

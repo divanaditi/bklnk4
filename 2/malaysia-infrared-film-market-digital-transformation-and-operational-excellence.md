@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-infrared-film-market-digital-transformation-2rjtc/

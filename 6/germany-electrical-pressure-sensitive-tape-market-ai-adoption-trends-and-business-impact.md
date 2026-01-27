@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electrical-pressure-sensitive-tape-market-bnisf/

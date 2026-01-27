@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-virtual-reality-retail-cpg-companies-professional-pshof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mold-temperature-market-digital-transformation-fzmnc/

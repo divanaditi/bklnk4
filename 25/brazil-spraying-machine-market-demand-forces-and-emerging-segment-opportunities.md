@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-spraying-machine-market-demand-forces-emerging-awmsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-x-ray-ndt-equipment-market-digital-9lqhf/

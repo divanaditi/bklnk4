@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-farro-professional-market-digital-transformation-ed9yf/

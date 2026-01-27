@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quick-freeze-thaw-test-machine-market-technology-kg39e/

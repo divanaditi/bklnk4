@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-data-mining-modeling-professional-market-ai-ouqsf/

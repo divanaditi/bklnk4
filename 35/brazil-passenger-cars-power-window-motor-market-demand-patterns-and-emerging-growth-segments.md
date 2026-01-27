@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-passenger-cars-power-window-motor-market-demand-swx3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-electronic-article-surveillance-eas-arl9f/

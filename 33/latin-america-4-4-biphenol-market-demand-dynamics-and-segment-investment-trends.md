@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-4-4-biphenol-market-demand-dynamics-segment-t4wge/

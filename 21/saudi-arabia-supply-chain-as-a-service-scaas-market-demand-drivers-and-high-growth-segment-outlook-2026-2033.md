@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-supply-chain-service-scaas-market-demand-6gigf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-fasteners-market-demand-patterns-8h7if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-neopentyl-glycol-diisostearate-market-high-growth-f1caf/

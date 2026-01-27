@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shawarma-machines-market-demand-supported-ltwbf/

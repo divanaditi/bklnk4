@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-instrument-panels-professional-market-pxmhf/

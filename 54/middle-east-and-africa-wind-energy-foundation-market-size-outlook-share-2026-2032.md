@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wind-energy-foundation-market-t3bpf/

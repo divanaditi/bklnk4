@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-palladium-chloride-cas-7647-10-1-market-emerging-9cnqf/

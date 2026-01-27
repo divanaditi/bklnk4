@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ie4-permanent-magnet-synchronous-whfrc/

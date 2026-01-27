@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-trifluoromethanesulfonimide-cas-82113-65-3-rbvpf/

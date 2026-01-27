@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-natural-language-processing-nlp-market-s3ezf/

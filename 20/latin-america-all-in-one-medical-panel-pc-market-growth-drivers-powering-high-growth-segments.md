@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-all-in-one-medical-panel-pc-8f2yf/

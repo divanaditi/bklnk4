@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-desk-clip-type-dynamic-arm-support-market-jptlf/

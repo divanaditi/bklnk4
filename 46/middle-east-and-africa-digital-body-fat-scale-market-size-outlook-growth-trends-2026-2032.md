@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-digital-body-fat-scale-market-size-n6rxf/

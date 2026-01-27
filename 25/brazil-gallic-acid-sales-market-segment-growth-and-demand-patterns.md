@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gallic-acid-sales-market-segment-growth-8vtaf/

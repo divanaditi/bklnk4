@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-mapping-system-market-advanced-oiq1c/

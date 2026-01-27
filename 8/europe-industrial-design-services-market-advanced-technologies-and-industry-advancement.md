@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-industrial-design-services-market-advanced-technologies-bdc0f/

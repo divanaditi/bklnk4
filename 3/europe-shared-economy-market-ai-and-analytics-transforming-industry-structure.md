@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-shared-economy-market-ai-analytics-transforming-briyf/

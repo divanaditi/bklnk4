@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-indexable-cutting-tools-professional-market-technology-bmztf/

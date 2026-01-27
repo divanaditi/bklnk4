@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cognitive-process-automation-market-demand-vkyef/

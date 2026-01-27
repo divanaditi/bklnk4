@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-building-integrated-photovoltaic-skylights-76dcf/

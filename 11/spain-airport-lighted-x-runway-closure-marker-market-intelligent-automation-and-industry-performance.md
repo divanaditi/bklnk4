@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-airport-lighted-x-runway-closure-marker-1r4xf/

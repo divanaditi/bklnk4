@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-short-circuit-earth-fault-indicator-i4olf/

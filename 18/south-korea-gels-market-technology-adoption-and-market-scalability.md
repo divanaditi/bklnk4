@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gels-market-technology-adoption-scalability-fydpf/

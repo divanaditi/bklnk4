@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-inspection-market-high-growth-co0pc/

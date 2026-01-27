@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-narrow-viewing-angle-thermopile-market-dkwsf/

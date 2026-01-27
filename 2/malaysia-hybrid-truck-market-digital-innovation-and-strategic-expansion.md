@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hybrid-truck-market-digital-innovation-plogc/

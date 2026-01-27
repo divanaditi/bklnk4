@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pickup-connector-market-demand-drivers-y5gjf/

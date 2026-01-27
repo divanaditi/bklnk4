@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-turning-tools-market-digital-transformation-industry-dpsaf/

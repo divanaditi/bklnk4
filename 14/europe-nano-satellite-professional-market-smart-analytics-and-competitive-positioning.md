@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-nano-satellite-professional-market-smart-aqdxc/

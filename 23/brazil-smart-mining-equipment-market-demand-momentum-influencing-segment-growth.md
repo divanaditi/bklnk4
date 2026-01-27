@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-mining-equipment-market-demand-tclsf/

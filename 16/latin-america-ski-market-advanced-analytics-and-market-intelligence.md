@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ski-market-advanced-analytics-intelligence-lmljf/

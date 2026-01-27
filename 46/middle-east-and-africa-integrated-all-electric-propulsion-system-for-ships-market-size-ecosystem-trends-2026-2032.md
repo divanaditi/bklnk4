@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-integrated-all-electric-propulsion-ope7f/

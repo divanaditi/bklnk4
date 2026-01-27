@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-self-service-business-intelligence-vqivf/

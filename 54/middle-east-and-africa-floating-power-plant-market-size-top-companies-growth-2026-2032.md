@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-floating-power-plant-market-size-n8z4f/

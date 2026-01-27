@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-gate-openers-market-d8kwf/

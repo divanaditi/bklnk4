@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pitch-propeller-market-demand-trends-qqwwf/

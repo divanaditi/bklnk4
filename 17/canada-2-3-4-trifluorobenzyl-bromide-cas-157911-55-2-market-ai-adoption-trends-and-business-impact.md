@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-234-trifluorobenzyl-bromide-cas-157911-55-2-ptdic/

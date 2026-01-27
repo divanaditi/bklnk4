@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-social-crm-software-professional-market-ai-analytics-wddcf/

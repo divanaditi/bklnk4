@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medical-sealing-tape-market-ai-adoption-across-ybrlf/

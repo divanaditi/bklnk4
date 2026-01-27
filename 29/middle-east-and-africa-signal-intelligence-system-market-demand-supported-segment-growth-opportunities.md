@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-signal-intelligence-8m7zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gaming-desktop-market-demand-landscape-segment-growth-loxsf/

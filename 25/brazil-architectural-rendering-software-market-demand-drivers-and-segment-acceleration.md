@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-architectural-rendering-software-market-ekpwf/

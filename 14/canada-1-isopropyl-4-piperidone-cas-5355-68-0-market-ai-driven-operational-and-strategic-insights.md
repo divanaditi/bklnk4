@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-isopropyl-4-piperidone-cas-5355-68-0-fq9mc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-travel-lift-market-demand-evolution-rgnac/

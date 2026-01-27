@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medium-heavy-duty-truck-leasing-market-digital-innovation-znhrf/

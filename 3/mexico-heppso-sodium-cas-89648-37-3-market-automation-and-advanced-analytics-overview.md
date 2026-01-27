@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-heppso-sodium-cas-89648-37-3-market-automation-g9kaf/

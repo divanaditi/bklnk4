@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-beef-concentrate-market-demand-side-ubrre/

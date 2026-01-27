@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-blood-lines-hemodialysis-market-technology-icuyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-charging-pile-market-demand-yhcrf/

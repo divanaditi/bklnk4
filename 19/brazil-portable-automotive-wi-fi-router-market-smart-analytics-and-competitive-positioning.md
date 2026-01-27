@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-automotive-wi-fi-router-market-vdpge/

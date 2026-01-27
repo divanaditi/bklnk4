@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-online-payment-gateway-market-demand-q318f/

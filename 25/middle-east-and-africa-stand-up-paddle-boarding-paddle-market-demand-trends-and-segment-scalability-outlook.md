@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stand-up-paddle-boarding-35qrf/

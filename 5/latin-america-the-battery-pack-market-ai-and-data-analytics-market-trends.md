@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-battery-pack-market-ai-data-analytics-jtlnc/

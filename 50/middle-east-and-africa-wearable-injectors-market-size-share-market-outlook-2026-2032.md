@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wearable-injectors-market-size-share-fsqkf/

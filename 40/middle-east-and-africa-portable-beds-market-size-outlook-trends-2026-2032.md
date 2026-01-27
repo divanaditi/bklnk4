@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-beds-market-size-outlook-trends-qem3f/

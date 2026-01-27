@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-payment-kiosk-market-size-ecosystem-hr8rf/

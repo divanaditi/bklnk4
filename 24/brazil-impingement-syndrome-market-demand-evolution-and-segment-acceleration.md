@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-impingement-syndrome-market-demand-evolution-jtkjf/

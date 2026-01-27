@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-supermarket-smart-cart-market-digital-intelligence-6w17f/

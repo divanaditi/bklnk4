@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-tpv-market-demand-trends-high-growth-rnumf/

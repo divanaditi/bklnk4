@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-speed-camera-market-high-growth-segments-z2mtf/

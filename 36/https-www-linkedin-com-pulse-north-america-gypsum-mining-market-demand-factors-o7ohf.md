@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gypsum-mining-market-demand-factors-o7ohf/

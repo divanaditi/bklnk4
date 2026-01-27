@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-nano-itla-market-automation-technologies-growth-i2vkf/

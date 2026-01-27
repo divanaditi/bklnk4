@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-camping-equipmemt-rental-market-ai-driven-forecast-jjhdf/

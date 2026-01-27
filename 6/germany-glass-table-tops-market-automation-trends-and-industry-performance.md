@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-glass-table-tops-market-automation-trends-qhmnf/

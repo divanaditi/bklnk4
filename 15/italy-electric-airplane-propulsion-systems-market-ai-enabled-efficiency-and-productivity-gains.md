@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-electric-airplane-propulsion-systems-market-z2dvf/

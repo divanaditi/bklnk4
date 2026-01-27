@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-commercial-property-management-software-3tuoc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-snow-ski-goggle-market-technology-driven-operational-4pugf/

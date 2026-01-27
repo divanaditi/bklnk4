@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-d-proline-market-intelligent-automation-industry-3sqrf/

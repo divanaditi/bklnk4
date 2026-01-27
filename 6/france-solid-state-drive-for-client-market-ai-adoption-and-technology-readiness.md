@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-solid-state-drive-client-market-ai-adoption-a5czf/

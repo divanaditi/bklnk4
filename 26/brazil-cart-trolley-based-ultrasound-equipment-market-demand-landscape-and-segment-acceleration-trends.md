@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cart-trolley-based-ultrasound-equipment-6tqzc/

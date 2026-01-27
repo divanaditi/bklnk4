@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-financial-planning-software-market-demand-jh4le/

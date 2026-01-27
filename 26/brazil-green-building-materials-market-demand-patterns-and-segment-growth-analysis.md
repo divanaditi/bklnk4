@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-green-building-materials-market-demand-patterns-btgjc/

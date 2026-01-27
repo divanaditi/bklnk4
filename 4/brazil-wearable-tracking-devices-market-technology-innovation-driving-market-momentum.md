@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-tracking-devices-market-technology-8qkrf/

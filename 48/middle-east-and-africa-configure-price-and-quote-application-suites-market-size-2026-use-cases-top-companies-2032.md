@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-configure-price-quote-application-suites-yti5f/

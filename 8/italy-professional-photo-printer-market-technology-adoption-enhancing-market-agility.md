@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-professional-photo-printer-market-technology-l4njf/

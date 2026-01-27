@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-free-flight-camera-market-demand-indicators-qiajf/

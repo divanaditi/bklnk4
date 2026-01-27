@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-grid-security-market-demand-gvt5f/

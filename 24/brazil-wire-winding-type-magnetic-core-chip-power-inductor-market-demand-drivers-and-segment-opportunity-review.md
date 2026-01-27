@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-winding-type-magnetic-core-chip-power-inductor-uacuf/

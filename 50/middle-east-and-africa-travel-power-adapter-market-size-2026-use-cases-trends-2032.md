@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-travel-power-adapter-market-size-xaaff/

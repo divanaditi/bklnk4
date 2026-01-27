@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gold-jewelry-market-size-use-cases-r5bvf/

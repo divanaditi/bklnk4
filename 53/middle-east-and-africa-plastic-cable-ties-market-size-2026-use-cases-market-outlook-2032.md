@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-plastic-cable-ties-market-oo3rf/

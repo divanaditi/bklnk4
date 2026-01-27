@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-short-radar-system-market-segment-growth-8dc3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-discrete-transistor-market-size-rqnhf/

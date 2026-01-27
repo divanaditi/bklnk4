@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-steel-strapping-product-market-demand-outlook-ftlnc/

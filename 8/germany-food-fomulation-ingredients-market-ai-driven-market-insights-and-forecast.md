@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-food-fomulation-ingredients-market-ai-driven-qi8yf/

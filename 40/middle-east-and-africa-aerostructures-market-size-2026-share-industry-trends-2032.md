@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerostructures-market-size-2026-k5kkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-task-trainers-market-demand-side-forces-segment-ic8qf/

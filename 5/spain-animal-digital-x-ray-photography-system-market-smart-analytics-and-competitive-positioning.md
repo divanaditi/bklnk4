@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-animal-digital-x-ray-photography-system-xcevf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gyms-market-ai-smart-technology-zzcdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-palletizing-systems-market-automation-digital-intelligence-qlyef/

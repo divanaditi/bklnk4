@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-satellite-direct-connection-market-role-ai-product-oms0f/

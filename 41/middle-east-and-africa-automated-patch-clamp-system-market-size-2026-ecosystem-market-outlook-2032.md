@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automated-patch-clamp-system-market-z9g7f/

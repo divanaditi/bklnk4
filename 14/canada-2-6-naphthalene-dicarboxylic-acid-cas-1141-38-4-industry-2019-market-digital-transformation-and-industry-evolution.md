@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-6-naphthalene-dicarboxylic-acid-cas-1141-38-4-caqmf/

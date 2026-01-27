@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fire-assay-crucible-market-size-2026-hbsec/

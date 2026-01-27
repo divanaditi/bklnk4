@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bariatric-walker-market-demand-drivers-74bec/

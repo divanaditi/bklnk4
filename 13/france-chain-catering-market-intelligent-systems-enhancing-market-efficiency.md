@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-chain-catering-market-intelligent-systems-kfhef/

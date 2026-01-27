@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-surgical-light-video-camera-market-digital-transformation-uletf/

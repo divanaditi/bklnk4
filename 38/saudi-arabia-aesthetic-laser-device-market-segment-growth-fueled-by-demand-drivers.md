@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-aesthetic-laser-device-market-segment-o3pdc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1h1h7h-dodecafluoroheptyl-acrylate-cas-2993-85-3-oivyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ellipticals-cross-trainer-market-demand-3nrgc/

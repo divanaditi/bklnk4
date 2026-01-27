@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-retinol-palmitate-cas-79-81-2-market-ai-driven-zllbf/

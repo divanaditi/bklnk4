@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dinocap-cas-39300-45-3-market-advanced-analytics-pennf/

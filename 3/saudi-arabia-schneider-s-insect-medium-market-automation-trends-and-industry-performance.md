@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-schneiders-insect-medium-market-automation-a2kuf/

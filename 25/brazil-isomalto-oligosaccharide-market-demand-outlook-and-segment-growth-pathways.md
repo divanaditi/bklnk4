@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-isomalto-oligosaccharide-market-demand-outlook-s17af/

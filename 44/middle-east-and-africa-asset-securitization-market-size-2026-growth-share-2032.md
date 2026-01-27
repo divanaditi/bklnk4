@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-asset-securitization-market-size-faw7f/

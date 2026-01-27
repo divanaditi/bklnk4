@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-4-hydroxy-3-methoxyphenyl-2-nitroethene-cas-lojcc/

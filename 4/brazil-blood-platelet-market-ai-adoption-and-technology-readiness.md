@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blood-platelet-market-ai-adoption-technology-n7ycf/

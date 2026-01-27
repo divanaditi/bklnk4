@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ecosystem-size-long-term-trends-2026-2032-1vjrc/

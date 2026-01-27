@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-barbell-sales-market-smart-technologies-fkd8f/

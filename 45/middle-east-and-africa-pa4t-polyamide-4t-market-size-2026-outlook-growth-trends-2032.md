@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pa4t-polyamide-4t-market-size-ahalc/

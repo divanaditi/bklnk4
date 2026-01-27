@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-video-analytics-artificial-intelligence-market-cinlc/

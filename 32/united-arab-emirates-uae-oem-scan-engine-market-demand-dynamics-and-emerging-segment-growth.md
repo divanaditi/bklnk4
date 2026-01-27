@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-oem-scan-engine-market-demand-epvtf/

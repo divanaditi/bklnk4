@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-marine-big-data-market-demand-drivers-influencing-kqcie/

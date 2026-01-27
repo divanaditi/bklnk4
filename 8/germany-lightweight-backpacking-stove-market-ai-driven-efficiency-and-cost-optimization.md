@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lightweight-backpacking-stove-market-z0jbf/

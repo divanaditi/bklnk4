@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-violas-professional-market-impact-ai-digital-1eimf/

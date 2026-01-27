@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electronics-agv-market-technology-roadmap-cezxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-insulating-concrete-form-icf-market-hj7lf/

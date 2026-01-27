@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-acdc-adapter-market-ai-driven-wykef/

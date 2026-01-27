@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-moving-bed-bioreactor-mbbr-market-segment-v16pf/

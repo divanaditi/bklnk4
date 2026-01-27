@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laser-navigation-agv-market-demand-h2plf/

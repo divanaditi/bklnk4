@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-facial-recognition-market-demand-analysis-segment-jatif/

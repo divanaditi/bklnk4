@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-switchable-smart-glass-partitioning-system-a7s5c/

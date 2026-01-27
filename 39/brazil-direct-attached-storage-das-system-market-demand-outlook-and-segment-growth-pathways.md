@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-direct-attached-storage-das-system-market-demand-z96qf/

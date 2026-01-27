@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-15-phenylpentadecanoic-acid-cas-40228-93-1-market-niqsf/

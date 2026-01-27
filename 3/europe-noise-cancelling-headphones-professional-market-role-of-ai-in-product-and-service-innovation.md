@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-noise-cancelling-headphones-professional-market-ocpqf/

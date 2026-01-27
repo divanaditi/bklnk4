@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-epichlorohydrin-cas-106-89-8-hpsaf/

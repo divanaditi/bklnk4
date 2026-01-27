@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hardware-in-loop-testing-automotive-market-yutef/

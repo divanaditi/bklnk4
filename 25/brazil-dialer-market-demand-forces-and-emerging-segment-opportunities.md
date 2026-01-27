@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dialer-market-demand-forces-emerging-segment-opportunities-ca7nf/

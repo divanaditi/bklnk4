@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-cognitive-analysis-market-automation-digital-vyhhf/

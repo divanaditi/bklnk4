@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compression-pants-shorts-market-ud2df/

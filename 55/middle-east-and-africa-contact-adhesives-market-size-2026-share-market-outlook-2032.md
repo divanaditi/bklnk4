@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-contact-adhesives-market-size-2026-kg7xf/

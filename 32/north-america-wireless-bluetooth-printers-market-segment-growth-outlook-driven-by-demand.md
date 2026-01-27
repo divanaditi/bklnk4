@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-bluetooth-printers-market-segment-gfdrf/

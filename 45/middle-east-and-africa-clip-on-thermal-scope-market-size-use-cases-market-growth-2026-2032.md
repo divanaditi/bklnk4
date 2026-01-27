@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-clip-thermal-scope-22zrf/

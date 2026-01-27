@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-construction-vehicles-market-demand-analysis-v8nue/

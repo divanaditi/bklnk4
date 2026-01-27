@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-pump-boats-market-demand-patterns-segment-owjff/

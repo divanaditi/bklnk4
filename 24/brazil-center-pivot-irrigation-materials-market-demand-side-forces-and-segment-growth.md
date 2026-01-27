@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-center-pivot-irrigation-materials-market-demand-side-qa2if/

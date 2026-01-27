@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drone-service-market-automation-technologies-dtxqc/

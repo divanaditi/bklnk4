@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rca-wet-cleaning-equipment-market-digital-l2k6f/

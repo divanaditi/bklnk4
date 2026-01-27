@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-mobile-satellite-service-market-f8phc/

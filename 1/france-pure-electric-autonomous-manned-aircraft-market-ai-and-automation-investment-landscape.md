@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pure-electric-autonomous-manned-aircraft-market-e66lf/

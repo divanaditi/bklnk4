@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-e-commerce-consumer-electronics-products-j2qnf/

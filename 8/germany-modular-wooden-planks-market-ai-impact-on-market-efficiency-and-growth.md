@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-modular-wooden-planks-market-ai-impact-efficiency-kktbf/

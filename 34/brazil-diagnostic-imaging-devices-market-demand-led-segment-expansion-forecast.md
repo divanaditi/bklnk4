@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diagnostic-imaging-devices-market-demand-led-pasif/

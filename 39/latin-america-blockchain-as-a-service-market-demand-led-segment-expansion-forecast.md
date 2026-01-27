@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-blockchain-service-market-demand-led-ognef/

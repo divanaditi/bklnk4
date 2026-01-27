@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-construction-design-app-market-technology-innovation-p7nhf/

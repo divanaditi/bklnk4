@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-employee-advocacy-software-professional-market-x3evf/

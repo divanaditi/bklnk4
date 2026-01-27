@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-credit-risk-management-software-banks-market-31nwf/

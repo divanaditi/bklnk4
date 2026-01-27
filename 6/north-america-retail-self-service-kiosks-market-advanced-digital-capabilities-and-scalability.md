@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-retail-self-service-kiosks-market-2ed1f/

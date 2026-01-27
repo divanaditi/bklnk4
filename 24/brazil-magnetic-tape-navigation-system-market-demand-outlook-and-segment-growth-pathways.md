@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-magnetic-tape-navigation-system-market-demand-n8bgf/

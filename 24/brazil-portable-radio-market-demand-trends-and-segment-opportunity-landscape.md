@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-radio-market-demand-trends-segment-sonkf/

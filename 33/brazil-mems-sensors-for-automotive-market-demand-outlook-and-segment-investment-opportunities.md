@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mems-sensors-automotive-market-demand-outlook-segment-gqwlf/

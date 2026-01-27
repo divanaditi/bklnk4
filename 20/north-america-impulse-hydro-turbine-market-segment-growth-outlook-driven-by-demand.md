@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-impulse-hydro-turbine-market-segment-raglf/

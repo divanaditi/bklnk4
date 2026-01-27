@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-poly-butylene-terephthalate-pbt-resin-1j2gc/

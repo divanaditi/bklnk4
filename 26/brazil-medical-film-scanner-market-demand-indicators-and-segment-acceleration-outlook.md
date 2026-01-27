@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-film-scanner-market-demand-indicators-6h9oc/

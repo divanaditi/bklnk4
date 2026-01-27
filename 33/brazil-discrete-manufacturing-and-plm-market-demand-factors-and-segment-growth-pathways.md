@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-discrete-manufacturing-plm-market-demand-factors-jyuce/

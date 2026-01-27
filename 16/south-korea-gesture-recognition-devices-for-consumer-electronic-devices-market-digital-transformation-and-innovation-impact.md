@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gesture-recognition-devices-consumer-electronic-ebxef/

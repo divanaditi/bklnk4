@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-white-ptfe-tape-market-ai-enabled-strategic-fx3ef/

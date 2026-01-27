@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-synthetic-quartz-crucible-market-ai-driven-oz2ge/

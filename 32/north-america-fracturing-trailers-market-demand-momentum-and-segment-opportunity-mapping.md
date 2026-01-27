@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fracturing-trailers-market-demand-momentum-jnxvf/

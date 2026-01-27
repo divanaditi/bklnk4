@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-birch-plywood-market-size-2026-jazzf/

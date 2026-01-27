@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-healthcare-medical-simulation-market-kd1ef/

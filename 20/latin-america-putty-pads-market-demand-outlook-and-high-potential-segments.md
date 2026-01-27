@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-putty-pads-market-demand-outlook-high-potential-v03kf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-kitesurfing-traction-belt-market-ai-powered-kup2f/

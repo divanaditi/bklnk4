@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rapid-deployment-shelters-s3ate/

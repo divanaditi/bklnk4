@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-contact-center-service-ccaas-market-emerging-z0umf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gypsum-board-market-size-2026-outlook-8joif/

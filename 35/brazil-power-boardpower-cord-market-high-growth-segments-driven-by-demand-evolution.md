@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-power-boardpower-cord-market-high-growth-segments-sjtzf/

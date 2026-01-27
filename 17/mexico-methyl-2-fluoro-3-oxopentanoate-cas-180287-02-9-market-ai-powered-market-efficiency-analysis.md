@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-methyl-2-fluoro-3-oxopentanoate-cas-180287-02-9-jrr8c/

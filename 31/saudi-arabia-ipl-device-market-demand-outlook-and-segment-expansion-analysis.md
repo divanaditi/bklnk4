@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ipl-device-market-demand-outlook-buevf/

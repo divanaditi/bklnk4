@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nylon-6-market-demand-led-segment-74pmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-forklift-automated-guided-vehicles-o6jdf/

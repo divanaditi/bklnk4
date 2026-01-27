@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-multi-band-gnss-timing-module-market-technology-1iz4f/

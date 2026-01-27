@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-purity-quartz-market-segment-growth-p5uxe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thermal-conduction-tape-market-ud7sf/

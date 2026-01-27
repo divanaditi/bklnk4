@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-captive-power-plant-professional-market-technology-gnhzf/

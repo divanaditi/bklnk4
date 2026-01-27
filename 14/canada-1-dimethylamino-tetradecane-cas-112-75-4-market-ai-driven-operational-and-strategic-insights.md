@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-dimethylaminotetradecane-cas-112-75-4-vvwlc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-r-2-amino-12-diphenyl-1-propanol-cas-78603-93-7-dt9bf/

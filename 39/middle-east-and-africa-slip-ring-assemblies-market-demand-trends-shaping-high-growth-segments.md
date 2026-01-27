@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-slip-ring-assemblies-market-demand-trends-6vpif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-sink-professional-market-technology-adoption-expansion-oknxf/

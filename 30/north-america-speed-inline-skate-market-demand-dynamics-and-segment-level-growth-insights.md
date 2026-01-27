@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-speed-inline-skate-market-demand-zblsf/

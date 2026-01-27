@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-bromo-2-fluorobenzyl-chloride-cas-85510-82-3-dlwlc/

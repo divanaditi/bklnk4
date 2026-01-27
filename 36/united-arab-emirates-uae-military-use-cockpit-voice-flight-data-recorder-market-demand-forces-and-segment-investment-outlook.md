@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-military-use-cockpit-voice-flight-5zwjf/

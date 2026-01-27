@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-safety-warning-sign-market-demand-trends-qytmc/

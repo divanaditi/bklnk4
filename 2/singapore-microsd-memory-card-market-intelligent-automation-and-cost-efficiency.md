@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microsd-memory-card-market-intelligent-automation-b1ojc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aviation-electric-test-equipment-market-technology-led-gxtnf/

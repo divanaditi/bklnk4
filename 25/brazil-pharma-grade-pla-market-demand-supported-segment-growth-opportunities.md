@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pharma-grade-pla-market-demand-supported-k8qef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-57-bistrifluoromethyl-3-cyano-2-methylthiopyrazolo15-apyrimidine-lokcc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-weeders-market-technology-adoption-z5vfe/

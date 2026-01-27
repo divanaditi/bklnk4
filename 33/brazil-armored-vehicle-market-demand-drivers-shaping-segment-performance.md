@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-armored-vehicle-market-demand-drivers-shaping-0apqe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-integrated-playout-platform-professional-lvjzf/

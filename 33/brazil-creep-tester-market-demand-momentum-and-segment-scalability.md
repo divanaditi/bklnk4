@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-creep-tester-market-demand-momentum-segment-xsg1e/

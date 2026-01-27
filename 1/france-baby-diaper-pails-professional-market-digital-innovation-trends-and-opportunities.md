@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-baby-diaper-pails-professional-market-3yd2f/

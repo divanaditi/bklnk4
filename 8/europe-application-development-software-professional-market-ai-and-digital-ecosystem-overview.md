@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-application-development-software-professional-kca1f/

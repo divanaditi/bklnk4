@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-4-6-inches-n-type-silicon-carbide-substrate-rehof/

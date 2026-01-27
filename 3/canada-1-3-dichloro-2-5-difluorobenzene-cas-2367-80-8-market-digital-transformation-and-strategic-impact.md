@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-13-dichloro-25-difluorobenzene-cas-2367-80-8-market-1vb5f/

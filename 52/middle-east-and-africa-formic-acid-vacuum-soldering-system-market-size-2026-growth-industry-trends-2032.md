@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-formic-acid-vacuum-soldering-33pje/

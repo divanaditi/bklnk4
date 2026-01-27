@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-security-revolving-door-market-hx4we/

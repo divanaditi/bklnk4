@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-polyquaternium-market-demand-forces-emerging-segment-drnpf/

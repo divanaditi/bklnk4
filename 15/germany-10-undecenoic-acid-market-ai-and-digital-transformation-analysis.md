@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-10-undecenoic-acid-market-ai-digital-transformation-fe11f/

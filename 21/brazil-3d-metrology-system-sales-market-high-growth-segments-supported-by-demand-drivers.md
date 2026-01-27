@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-3d-metrology-system-sales-market-high-growth-tvocf/

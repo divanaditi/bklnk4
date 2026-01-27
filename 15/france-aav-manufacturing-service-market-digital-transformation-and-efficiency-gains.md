@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-aav-manufacturing-service-market-digital-j5jnf/

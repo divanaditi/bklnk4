@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-fingerprint-lifting-tape-market-advanced-wc2vf/

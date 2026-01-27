@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-marine-adhesive-sealant-market-demand-yzowf/

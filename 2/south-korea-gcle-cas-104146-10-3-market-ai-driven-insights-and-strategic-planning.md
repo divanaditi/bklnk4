@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcle-cas-104146-10-3-market-ai-driven-1fbqc/

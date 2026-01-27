@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-connecting-rod-assembly-professional-kaynf/

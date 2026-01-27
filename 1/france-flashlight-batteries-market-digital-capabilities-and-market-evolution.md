@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-flashlight-batteries-market-digital-capabilities-kkogf/

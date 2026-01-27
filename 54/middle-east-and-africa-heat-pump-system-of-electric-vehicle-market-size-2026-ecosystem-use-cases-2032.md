@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heat-pump-system-electric-sik1f/

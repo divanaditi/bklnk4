@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-indicator-panels-incorporating-liquid-crystal-alb3e/

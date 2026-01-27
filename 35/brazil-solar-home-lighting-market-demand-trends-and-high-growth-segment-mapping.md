@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-home-lighting-market-demand-trends-high-growth-lbdzf/

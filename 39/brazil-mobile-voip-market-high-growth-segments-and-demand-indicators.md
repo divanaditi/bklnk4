@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-voip-market-high-growth-segments-demand-0mhhf/

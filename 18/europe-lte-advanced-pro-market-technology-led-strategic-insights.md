@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-lte-advanced-pro-market-technology-led-strategic-p3cgf/

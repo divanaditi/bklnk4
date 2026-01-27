@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wireless-power-solutions-market-emerging-16hzf/

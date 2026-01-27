@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-van-insurance-market-demand-landscape-rw33c/

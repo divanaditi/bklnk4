@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-a-si-x-ray-flat-panel-detectors-hq9nf/

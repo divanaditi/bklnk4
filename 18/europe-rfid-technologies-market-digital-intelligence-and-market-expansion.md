@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-rfid-technologies-market-digital-intelligence-expansion-cfkbf/

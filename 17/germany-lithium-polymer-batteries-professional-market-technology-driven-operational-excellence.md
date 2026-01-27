@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lithium-polymer-batteries-professional-market-3qynf/

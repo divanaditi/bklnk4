@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-fully-automatic-sensor-faucet-market-gohbf/

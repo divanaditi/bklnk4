@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-golf-management-software-market-intelligent-tcujc/

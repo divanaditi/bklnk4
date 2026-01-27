@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-rain-apparel-market-demand-analysis-ruzsf/

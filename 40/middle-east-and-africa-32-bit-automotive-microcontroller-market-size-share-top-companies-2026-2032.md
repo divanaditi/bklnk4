@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-32-bit-automotive-microcontroller-market-hostf/

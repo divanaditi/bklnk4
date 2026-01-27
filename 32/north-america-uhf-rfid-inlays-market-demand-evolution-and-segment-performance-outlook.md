@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-uhf-rfid-inlays-market-demand-evolution-wjfbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-disposable-inactivated-virus-sampling-tube-xa4of/

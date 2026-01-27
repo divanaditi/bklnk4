@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hand-dryer-market-high-growth-segments-supported-7eycf/

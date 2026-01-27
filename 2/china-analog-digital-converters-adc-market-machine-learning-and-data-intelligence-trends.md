@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-analog-digital-converters-adc-market-machine-qyefc/

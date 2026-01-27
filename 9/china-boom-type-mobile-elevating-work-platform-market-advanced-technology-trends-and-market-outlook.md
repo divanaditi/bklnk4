@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-boom-type-mobile-elevating-work-platform-market-i8smf/

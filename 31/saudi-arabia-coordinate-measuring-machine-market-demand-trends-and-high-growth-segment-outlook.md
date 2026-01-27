@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-coordinate-measuring-machine-market-demand-m2vxf/

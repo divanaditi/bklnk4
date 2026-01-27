@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-pigment-red-8-cas-6410-30-6-market-a9fcf/

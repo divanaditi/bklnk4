@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fertility-test-market-size-outlook-rqnmf/

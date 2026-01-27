@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-hpl-boards-market-technology-integration-r9xxc/

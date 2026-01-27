@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-kgd-test-sorting-machine-market-technology-led-d3gqf/

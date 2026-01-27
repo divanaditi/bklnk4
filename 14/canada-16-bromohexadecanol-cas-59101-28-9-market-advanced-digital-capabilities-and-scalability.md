@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-16-bromohexadecanol-cas-59101-28-9-market-cfsvc/

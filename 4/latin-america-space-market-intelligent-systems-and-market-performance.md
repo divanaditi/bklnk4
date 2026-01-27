@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-space-market-intelligent-systems-performance-wx3wf/

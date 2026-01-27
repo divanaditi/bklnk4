@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pivalamide-cas-754-10-9-market-ai-automation-rx1xf/

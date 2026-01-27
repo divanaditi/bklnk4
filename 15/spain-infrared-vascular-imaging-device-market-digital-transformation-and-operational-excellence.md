@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-infrared-vascular-imaging-device-market-digital-g709f/

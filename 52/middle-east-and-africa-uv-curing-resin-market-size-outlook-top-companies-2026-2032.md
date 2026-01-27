@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uv-curing-resin-market-size-outlook-szpze/

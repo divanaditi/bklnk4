@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electromagnetic-ndt-market-ai-driven-tc0nf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fitness-monitor-market-role-ai-3apnc/

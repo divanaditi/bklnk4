@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-resistance-spot-welding-machines-market-ovdae/

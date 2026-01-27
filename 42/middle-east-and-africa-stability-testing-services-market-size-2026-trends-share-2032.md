@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stability-testing-services-market-zmr2f/

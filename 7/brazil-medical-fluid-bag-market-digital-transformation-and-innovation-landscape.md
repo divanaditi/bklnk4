@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-fluid-bag-market-digital-transformation-jiy0f/

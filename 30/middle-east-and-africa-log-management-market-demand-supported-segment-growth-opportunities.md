@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-log-management-market-demand-supported-ps76f/

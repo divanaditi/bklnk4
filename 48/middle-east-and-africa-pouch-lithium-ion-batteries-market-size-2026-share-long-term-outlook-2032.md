@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pouch-lithium-ion-batteries-market-428pf/

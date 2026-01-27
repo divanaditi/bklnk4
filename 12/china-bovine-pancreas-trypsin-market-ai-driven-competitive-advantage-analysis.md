@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bovine-pancreas-trypsin-market-ai-driven-ismkf/

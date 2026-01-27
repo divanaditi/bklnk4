@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-spectrometer-market-high-growth-segments-fueled-cnsmf/

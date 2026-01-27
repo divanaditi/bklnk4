@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-asset-management-itam-software-professional-zgr2f/

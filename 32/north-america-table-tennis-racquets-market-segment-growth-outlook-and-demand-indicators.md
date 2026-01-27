@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-table-tennis-racquets-market-segment-t6hkf/

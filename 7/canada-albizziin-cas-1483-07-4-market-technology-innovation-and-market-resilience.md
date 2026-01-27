@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-albizziin-cas-1483-07-4-market-technology-0vx7f/

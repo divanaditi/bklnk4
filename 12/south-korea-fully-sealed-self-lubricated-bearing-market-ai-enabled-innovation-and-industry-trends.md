@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fully-sealed-self-lubricated-bearing-tkraf/

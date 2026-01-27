@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-deep-sea-mining-equipment-technologies-market-8r6qf/

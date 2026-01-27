@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-augmented-reality-virtual-market-growth-vyric/

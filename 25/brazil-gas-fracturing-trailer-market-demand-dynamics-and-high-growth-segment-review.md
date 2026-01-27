@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gas-fracturing-trailer-market-demand-dynamics-dyqgf/

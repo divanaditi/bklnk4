@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cardiac-imaging-software-market-ktg9c/

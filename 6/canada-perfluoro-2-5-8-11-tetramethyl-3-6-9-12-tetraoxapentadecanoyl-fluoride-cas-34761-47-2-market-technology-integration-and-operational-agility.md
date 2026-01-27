@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-perfluoro-25811-tetramethyl-36912-tetraoxapentadecanoyl-z0awf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-contract-bridge-club-market-ai-impact-industry-ahujf/

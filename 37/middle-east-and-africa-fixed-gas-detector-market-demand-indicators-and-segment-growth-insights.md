@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fixed-gas-detector-market-demand-h9eme/

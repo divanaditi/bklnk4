@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rooftop-hybrid-solar-panels-market-smart-automation-ga60f/

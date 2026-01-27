@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dac-active-copper-cable-market-automation-technology-i2daf/

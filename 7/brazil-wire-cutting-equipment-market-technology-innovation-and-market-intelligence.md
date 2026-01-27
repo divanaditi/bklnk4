@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-cutting-equipment-market-technology-innovation-q1fxf/

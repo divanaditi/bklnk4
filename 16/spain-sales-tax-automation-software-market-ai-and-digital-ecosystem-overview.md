@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-sales-tax-automation-software-market-ai-digital-r1ggf/

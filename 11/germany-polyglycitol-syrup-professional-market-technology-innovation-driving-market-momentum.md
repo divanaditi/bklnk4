@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-polyglycitol-syrup-professional-market-alyxc/

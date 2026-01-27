@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-manufacturing-operations-management-solution-ooxvf/

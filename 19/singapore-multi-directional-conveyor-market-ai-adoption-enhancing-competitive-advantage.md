@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-multi-directional-conveyor-market-ai-adoption-wwmte/

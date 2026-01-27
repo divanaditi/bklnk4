@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-narrowband-iot-nb-iot-chipset-market-nl9de/

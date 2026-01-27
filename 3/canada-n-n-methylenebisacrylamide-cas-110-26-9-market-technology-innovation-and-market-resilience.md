@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-nn-methylenebisacrylamide-cas-110-26-9-market-technology-y2n1f/

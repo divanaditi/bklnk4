@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-skating-shoes-market-high-growth-segments-h7cgf/

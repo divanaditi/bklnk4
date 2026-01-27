@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-transformer-monitoring-market-size-070wf/

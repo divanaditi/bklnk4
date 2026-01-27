@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-penthiopyrad-cas-183675-82-3-market-demand-rimzc/

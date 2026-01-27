@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ski-equipment-market-high-growth-7iugf/

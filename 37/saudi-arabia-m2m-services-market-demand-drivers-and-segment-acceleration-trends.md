@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-m2m-services-market-demand-drivers-mdspf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-explosion-proof-transport-vehicle-market-digital-nfulf/

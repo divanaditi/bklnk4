@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6r7r-7-2e-2-2-amino-13-thiazol-4-yl-2-methoxyiminoacetylamino-3-2-methyl-56-dioxo-1h-124-triazin-3-ylsulfanylmethyl-8-oxo-5--vqmxc/

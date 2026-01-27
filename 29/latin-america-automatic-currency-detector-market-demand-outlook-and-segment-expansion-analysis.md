@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-currency-detector-market-demand-5u6lc/

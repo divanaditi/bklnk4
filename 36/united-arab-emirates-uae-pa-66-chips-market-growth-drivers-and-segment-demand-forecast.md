@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-pa-66-chips-market-growth-drivers-a2upf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gan-hemt-market-size-2026-trends-xi3bf/

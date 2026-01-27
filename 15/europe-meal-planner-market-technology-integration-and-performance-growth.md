@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-meal-planner-market-technology-integration-iv0uf/

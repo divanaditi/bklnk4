@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-microscope-slide-scanner-market-demand-uh3he/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-double-glazed-swing-window-market-demand-ebmzf/

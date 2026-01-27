@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-heaters-market-size-2026-ztinf/

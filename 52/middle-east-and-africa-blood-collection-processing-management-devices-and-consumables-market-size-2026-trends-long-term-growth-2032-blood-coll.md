@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-blood-collection-processing-bg4rf/

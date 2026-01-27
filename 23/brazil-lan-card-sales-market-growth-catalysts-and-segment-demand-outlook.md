@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lan-card-sales-market-growth-catalysts-segment-pzvif/

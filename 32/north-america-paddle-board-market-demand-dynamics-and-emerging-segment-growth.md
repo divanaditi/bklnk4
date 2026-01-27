@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-paddle-board-market-demand-dynamics-rxsmf/

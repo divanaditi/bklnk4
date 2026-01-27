@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-usb-c-port-hub-market-technology-innovation-ek4rf/

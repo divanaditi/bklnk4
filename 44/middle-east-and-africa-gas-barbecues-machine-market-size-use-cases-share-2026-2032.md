@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gas-barbecues-machine-market-0iznc/

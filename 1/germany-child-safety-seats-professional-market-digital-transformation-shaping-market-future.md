@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-child-safety-seats-professional-market-nckyf/

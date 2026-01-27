@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-public-relation-robots-market-automation-technology-qdd9c/

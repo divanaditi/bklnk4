@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sensors-internet-things-iot-market-demand-3pvse/

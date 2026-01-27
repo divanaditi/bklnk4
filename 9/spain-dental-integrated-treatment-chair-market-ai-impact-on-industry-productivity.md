@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dental-integrated-treatment-chair-market-r0uqf/

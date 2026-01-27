@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lithium-batteries-construction-machinery-551lf/

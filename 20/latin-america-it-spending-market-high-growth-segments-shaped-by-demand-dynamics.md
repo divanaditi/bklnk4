@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spending-market-high-growth-segments-8lmtf/

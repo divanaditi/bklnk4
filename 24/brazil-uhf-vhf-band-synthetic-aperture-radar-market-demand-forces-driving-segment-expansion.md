@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-uhfvhf-band-synthetic-aperture-radar-market-ltlvf/

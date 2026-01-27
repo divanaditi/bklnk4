@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-next-generation-network-market-demand-1dgjf/

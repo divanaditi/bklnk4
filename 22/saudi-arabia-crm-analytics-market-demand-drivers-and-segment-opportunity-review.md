@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-crm-analytics-market-demand-drivers-segment-b1xvf/

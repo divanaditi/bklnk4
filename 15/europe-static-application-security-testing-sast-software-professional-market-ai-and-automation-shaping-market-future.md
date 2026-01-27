@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-static-application-security-testing-sast-software-8hsrf/

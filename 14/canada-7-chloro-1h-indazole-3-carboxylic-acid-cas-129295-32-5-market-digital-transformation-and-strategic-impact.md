@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-7-chloro-1h-indazole-3-carboxylic-acid-cas-129295-32-5-z7jbc/

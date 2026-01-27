@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-4-fluorobiphenyl-cas-398-21-0-mnpif/

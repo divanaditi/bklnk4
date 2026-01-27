@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-virtualization-hypervisor-market-eswcf/

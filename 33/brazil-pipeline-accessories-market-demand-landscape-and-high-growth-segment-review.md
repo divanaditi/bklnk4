@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pipeline-accessories-market-demand-landscape-qxeze/

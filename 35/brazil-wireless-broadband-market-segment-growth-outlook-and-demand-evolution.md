@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-broadband-market-segment-growth-q68lf/

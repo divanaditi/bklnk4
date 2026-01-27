@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-center-pivot-irrigation-system-market-digital-6ogwf/

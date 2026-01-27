@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-high-performance-soles-market-digital-transformation-rf9if/

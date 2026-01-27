@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-friction-stir-welding-tools-market-segment-hgknf/

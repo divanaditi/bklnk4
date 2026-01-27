@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-light-switches-connected-homes-market-automation-digital-hzbrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-heat-sealers-market-growth-drivers-segment-2kr7f/

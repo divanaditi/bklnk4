@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wifi-chipsets-market-role-ai-product-service-hnkqf/

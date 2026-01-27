@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-lab-automation-software-market-segment-growth-2h9nc/

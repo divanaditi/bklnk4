@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gps-market-size-trends-long-term-cxk2f/

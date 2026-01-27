@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-static-code-analysis-software-market-dofdf/

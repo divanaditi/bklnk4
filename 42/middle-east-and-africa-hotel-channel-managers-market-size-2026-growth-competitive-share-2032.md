@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hotel-channel-managers-market-size-lvg5c/

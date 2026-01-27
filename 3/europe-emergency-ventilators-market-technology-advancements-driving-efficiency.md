@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-emergency-ventilators-market-technology-advancements-hgg5f/

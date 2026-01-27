@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mbs-resin-market-demand-outlook-m3erf/

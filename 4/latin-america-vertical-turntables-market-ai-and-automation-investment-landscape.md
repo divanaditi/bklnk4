@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vertical-turntables-market-ai-automation-vyuef/

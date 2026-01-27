@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-phenolic-resin-friction-materials-myfnf/

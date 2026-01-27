@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-15-pentanediol-pdo-market-segment-demand-dygqf/

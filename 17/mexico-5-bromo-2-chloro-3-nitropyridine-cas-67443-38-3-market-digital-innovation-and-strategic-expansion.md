@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-5-bromo-2-chloro-3-nitropyridine-cas-67443-38-3-wjurf/

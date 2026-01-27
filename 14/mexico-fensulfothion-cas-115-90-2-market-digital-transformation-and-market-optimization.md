@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-fensulfothion-cas-115-90-2-market-digital-transformation-ytonc/

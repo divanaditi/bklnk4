@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-purse-card-market-smart-technologies-zgfzf/

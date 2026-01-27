@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-embedded-non-volatile-memory-envm-ojhof/

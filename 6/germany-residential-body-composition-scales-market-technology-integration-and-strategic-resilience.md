@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-residential-body-composition-scales-market-g8yvf/

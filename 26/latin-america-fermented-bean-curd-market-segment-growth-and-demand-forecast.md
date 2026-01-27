@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fermented-bean-curd-market-segment-nuvsc/

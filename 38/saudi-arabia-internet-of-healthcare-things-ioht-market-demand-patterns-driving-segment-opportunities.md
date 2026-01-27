@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-internet-healthcare-things-ioht-r1fjc/

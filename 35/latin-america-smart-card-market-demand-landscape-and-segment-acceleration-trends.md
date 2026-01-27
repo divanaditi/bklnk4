@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-card-market-demand-landscape-cu1gf/

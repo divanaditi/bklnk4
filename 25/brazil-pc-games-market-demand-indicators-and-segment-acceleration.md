@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pc-games-market-demand-indicators-segment-acceleration-6fief/

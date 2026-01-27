@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-organic-zinc-rich-primer-market-demand-xlz4f/

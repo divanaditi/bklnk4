@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-medical-imaging-diagnostic-equipments-zd9yf/

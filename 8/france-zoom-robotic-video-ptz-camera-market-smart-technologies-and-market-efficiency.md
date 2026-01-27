@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-zoom-robotic-video-ptz-camera-market-smart-kw32f/

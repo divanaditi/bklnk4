@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ice-cream-machine-professional-market-pnmgf/

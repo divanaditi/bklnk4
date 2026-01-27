@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-caralluma-extract-market-technology-led-strategic-octwf/

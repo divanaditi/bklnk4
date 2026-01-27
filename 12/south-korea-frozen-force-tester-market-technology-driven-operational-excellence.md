@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-frozen-force-tester-market-technology-driven-esjrf/

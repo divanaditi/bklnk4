@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-machine-learning-artificial-intelligence-zog9c/

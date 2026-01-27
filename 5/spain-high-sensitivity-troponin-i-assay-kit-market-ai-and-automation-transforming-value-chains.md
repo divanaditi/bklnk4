@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-high-sensitivity-troponin-i-assay-kit-market-ai-ihjff/

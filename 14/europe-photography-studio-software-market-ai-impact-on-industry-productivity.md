@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-photography-studio-software-market-hoxhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-machine-guarding-fence-market-ai-impact-ttgpf/

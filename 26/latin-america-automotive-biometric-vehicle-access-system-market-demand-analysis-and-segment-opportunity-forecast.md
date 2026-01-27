@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-biometric-vehicle-access-1xrbc/

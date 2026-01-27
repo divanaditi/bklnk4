@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermal-conductivity-detectors-tcd-market-high-growth-eauzf/

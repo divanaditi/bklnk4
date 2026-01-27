@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-defense-spending-market-size-growth-yjwif/

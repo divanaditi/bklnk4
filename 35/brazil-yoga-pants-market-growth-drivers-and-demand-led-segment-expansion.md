@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yoga-pants-market-growth-drivers-demand-led-segment-cy6gf/

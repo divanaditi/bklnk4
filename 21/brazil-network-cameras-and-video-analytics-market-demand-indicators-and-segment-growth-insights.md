@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-network-cameras-video-analytics-market-wkzlf/

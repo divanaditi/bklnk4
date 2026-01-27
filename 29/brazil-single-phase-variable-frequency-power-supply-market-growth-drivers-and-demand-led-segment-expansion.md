@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-single-phase-variable-frequency-power-supply-8836f/

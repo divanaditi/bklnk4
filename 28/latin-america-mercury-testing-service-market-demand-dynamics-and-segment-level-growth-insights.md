@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mercury-testing-service-market-demand-kwz1c/

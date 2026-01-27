@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drone-telematics-market-size-outlook-dio7f/

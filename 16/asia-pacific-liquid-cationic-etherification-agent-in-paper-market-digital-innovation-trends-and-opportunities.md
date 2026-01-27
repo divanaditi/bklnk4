@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-liquid-cationic-etherification-agent-paper-w0n5f/

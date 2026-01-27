@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-food-warmer-showcase-market-demand-patterns-s92wf/

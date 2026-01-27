@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fall-arrest-equipment-professional-market-obclc/

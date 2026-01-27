@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ultrasonic-scalpel-market-intelligent-5xuif/

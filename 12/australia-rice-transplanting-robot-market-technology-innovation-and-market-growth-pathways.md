@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rice-transplanting-robot-market-technology-innovation-gcakc/

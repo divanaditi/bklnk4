@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vector-magnetometer-market-smart-analytics-kds4f/

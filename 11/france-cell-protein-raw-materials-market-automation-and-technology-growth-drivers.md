@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cell-protein-raw-materials-market-automation-technology-ym1rc/

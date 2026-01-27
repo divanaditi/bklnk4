@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-analog-digital-crosspoint-ic-market-48jbc/

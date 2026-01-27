@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-direct-thermal-labels-market-demand-mqvrf/

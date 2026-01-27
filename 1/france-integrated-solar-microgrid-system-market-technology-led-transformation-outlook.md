@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-integrated-solar-microgrid-system-market-technology-led-olcwf/

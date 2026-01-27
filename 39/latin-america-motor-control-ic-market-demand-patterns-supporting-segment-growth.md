@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-motor-control-ic-market-demand-patterns-1v6zf/

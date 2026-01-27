@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-walkie-pallet-stacker-market-ai-adoption-across-ecosystems-njzwf/

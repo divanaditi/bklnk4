@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-solid-vending-machine-market-f45jf/

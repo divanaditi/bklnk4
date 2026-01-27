@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-scholarship-management-software-market-digital-gnyjf/

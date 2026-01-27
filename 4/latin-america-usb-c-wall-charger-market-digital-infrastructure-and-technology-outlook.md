@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-usb-c-wall-charger-market-digital-infrastructure-jvaqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-magnetic-core-plane-market-ai-driven-fskgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-decision-making-software-dm-market-demand-u3gof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-23-dichlorophenyl-isocyanate-cas-41195-90-8-weiyf/

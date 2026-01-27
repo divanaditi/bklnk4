@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cross-border-e-commerce-live-streaming-platform-gxkpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-computer-graphics-application-software-market-m4yuf/

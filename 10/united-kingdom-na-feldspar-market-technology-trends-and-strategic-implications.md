@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-na-feldspar-market-technology-trends-hcqrf/

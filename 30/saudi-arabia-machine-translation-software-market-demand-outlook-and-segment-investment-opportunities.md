@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-machine-translation-software-market-demand-ruk6f/

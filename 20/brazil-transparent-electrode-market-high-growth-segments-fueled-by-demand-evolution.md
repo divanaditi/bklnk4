@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transparent-electrode-market-high-growth-segments-fueled-tdgif/

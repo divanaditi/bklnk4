@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flash-disk-market-demand-side-vfg0e/

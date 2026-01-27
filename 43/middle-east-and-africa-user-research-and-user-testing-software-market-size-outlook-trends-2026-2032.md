@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-user-research-testing-software-market-pqbtf/

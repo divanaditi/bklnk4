@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-surgical-mobile-o-arm-ct-market-automation-d2m1f/

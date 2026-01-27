@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-door-sensors-professional-market-technology-led-qvc5f/

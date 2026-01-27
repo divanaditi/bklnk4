@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-weight-lifting-platforms-market-segment-growth-p5l8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-welding-controllers-market-demand-drivers-jp2zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-spicy-trip-market-demand-drivers-segment-wpvaf/

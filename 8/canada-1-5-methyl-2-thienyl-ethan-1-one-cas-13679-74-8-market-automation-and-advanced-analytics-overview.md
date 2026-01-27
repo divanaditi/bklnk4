@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-5-methyl-2-thienylethan-1-one-cas-13679-74-8-rdyuf/

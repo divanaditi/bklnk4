@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-customer-data-platform-cdp-software-market-gbvyc/

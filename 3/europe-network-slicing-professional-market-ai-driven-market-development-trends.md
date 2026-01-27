@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-network-slicing-professional-market-ai-driven-97whf/

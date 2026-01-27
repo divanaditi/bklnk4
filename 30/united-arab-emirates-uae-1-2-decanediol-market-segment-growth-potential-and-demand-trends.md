@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-12-decanediol-market-segment-growth-owtcf/

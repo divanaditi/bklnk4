@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-eas-based-saas-solutions-market-smart-gtmhc/

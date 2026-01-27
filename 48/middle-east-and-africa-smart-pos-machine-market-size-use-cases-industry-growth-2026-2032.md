@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-pos-machine-market-size-use-cases-cws5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-bionematicides-professional-market-ai-bmygf/

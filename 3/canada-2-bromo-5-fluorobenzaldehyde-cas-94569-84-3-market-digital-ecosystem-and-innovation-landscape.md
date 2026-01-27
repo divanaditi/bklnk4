@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-5-fluorobenzaldehyde-cas-94569-84-3-6hvjf/

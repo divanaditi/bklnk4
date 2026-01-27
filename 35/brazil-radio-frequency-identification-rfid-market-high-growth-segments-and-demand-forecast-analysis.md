@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radio-frequency-identification-rfid-market-high-growth-p18sf/

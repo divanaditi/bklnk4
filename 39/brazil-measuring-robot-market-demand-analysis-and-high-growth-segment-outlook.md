@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-measuring-robot-market-demand-analysis-high-growth-4kizf/

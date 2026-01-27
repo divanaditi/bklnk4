@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-transdermal-patch-womens-health-market-xwnfe/

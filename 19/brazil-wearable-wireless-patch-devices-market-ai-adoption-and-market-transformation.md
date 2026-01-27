@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-wireless-patch-devices-market-ai-adoption-1ch1e/

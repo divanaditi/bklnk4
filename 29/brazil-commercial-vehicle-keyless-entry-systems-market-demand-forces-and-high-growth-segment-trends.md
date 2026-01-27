@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-vehicle-keyless-entry-systems-vahxf/

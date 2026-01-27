@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-edge-ai-hardware-market-size-sdshc/

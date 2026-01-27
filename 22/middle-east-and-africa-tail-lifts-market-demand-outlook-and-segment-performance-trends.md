@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tail-lifts-market-demand-outlook-6yqhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flat-magnet-wire-market-size-jfwcf/

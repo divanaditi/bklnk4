@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-solar-carport-bracket-system-market-culhf/

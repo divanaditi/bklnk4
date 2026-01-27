@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-laser-welding-machinery-professional-market-ai-data-z6uxf/

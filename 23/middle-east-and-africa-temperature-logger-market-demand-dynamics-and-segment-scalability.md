@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-temperature-logger-market-demand-dynamics-wqdnf/

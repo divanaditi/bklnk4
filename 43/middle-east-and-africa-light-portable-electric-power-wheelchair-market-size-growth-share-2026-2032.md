@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-light-portable-electric-power-b64pf/

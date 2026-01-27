@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-machines-banking-market-digital-intelligence-btk0f/

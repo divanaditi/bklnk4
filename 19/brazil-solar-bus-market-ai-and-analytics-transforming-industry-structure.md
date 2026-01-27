@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-bus-market-ai-analytics-transforming-mem5e/

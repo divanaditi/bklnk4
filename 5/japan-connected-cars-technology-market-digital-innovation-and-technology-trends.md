@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-connected-cars-technology-market-ymusf/

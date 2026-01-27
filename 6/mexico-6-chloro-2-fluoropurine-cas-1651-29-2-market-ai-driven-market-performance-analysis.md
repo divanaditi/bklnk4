@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-6-chloro-2-fluoropurine-cas-1651-29-2-b7e1f/

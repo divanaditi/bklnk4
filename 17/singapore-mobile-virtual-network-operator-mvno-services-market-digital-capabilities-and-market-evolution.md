@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-virtual-network-operator-x5lsf/

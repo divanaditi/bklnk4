@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-s-trityl-glycidyl-ether-cas-129940-50-7-u2apf/

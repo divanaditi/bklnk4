@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-bluetooth-low-energyble-beacon-market-nvtjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-connected-enterprise-video-surveillance-solutions-h1yef/

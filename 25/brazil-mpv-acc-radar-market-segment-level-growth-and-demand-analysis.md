@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mpv-acc-radar-market-segment-level-growth-pxbyf/

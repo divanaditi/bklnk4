@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-music-microphone-outboard-gear-professional-kwa9f/

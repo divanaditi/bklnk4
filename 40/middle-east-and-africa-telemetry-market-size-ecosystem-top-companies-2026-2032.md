@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telemetry-market-size-ecosystem-top-pq65f/

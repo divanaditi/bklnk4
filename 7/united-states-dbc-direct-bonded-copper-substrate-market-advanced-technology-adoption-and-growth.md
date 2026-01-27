@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-dbc-direct-bonded-copper-substrate-xnfkf/

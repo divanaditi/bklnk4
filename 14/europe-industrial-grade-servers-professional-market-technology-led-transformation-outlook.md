@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-industrial-grade-servers-professional-market-lst6c/

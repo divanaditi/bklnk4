@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-enterprise-big-data-platform-market-ai-automation-xfhof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tekturna-api-market-role-ai-product-zgkhe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-fluoro-2-methoxybenzonitrile-cas-189628-38-4-f1bgf/

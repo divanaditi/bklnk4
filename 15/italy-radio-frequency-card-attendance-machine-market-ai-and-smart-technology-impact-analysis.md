@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-radio-frequency-card-attendance-machine-market-h3o3f/

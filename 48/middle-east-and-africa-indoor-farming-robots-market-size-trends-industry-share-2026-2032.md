@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-indoor-farming-robots-market-size-lwgef/

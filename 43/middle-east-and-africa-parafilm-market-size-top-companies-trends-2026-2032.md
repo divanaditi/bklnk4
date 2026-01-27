@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-parafilm-market-size-top-companies-7dfcf/

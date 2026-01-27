@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-logistics-automation-b2b-apparel-market-ai-enabled-mtdzf/

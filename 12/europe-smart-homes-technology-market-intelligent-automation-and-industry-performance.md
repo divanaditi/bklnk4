@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smart-homes-technology-market-intelligent-automation-mde9c/

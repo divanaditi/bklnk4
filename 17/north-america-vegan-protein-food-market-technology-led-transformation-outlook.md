@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-vegan-protein-food-market-technology-led-cwxvc/

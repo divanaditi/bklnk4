@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-temperature-resistant-ntc-thermistor-ot8sf/

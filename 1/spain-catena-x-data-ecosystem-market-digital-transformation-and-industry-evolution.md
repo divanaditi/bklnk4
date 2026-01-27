@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-catena-x-data-ecosystem-market-digital-transformation-qhrtf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-laser-projection-market-size-ow16f/

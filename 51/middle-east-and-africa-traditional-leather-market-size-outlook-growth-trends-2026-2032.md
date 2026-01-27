@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-traditional-leather-market-size-outlook-di3mc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultrasonic-show-b-diagnostic-equipment-market-h18uc/

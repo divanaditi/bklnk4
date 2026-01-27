@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-user-research-testing-software-market-auzff/

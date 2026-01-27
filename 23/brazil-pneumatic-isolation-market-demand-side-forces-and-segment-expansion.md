@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pneumatic-isolation-market-demand-side-forces-g6myf/

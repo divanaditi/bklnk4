@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-carbon-fiber-jet-board-market-digital-transformation-vzzef/

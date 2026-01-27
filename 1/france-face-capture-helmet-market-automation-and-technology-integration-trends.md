@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-face-capture-helmet-market-automation-rdvzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electromagnetic-stirrer-market-demand-patterns-i0rif/

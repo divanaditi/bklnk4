@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-eprodisate-cas-21668-77-9-market-ai-impact-0cpjf/

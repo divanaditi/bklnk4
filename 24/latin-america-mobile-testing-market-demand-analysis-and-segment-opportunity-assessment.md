@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mobile-testing-market-demand-analysis-mmi6c/

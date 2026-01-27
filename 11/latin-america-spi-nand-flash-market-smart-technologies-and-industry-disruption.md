@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spi-nand-flash-market-smart-technologies-96qpc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hot-stamping-foils-market-segment-nknef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pp-reusable-bag-professional-market-ai-impact-scalability-cgtaf/

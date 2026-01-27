@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-real-estate-property-management-software-pqptf/

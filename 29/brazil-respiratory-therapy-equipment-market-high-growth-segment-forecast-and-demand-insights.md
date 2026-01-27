@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-respiratory-therapy-equipment-market-high-growth-a0i2c/

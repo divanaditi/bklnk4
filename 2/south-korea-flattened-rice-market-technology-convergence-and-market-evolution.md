@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-flattened-rice-market-technology-convergence-evolution-0dwvc/

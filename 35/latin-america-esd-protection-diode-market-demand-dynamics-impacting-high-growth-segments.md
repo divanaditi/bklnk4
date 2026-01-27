@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-esd-protection-diode-market-demand-dynamics-0obaf/

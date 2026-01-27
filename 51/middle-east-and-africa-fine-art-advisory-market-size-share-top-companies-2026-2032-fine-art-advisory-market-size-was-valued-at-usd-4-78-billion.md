@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fine-art-advisory-market-po40c/

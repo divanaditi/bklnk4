@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-machine-vision-solutions-industry-40-gpqmf/

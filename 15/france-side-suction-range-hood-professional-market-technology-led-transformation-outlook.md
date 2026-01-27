@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-side-suction-range-hood-professional-market-technology-led-63vzf/

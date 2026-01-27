@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-enterprise-very-small-aperture-terminal-nsnkc/

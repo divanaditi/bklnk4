@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heat-resistant-phenolic-molding-compound-hm1yf/

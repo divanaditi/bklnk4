@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-point-care-testing-poct-market-rzm7c/

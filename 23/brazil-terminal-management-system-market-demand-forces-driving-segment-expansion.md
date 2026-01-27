@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-terminal-management-system-market-demand-ebmof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-digital-conductivity-testers-market-transformation-m8wif/

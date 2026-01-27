@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-deprodone-cas-20423-99-8-market-ai-6y8mc/

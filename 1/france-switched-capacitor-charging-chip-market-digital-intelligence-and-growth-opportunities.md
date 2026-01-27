@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-switched-capacitor-charging-chip-market-digital-intelligence-acx1f/

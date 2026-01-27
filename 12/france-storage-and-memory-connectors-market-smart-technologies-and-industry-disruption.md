@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-storage-memory-connectors-market-smart-technologies-shjdc/

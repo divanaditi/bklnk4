@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wifi-tablet-pc-market-demand-factors-q7jff/

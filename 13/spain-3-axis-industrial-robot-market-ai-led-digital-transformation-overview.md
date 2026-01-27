@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-3-axis-industrial-robot-market-ai-led-digital-zg16f/

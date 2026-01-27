@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mealworms-market-size-top-companies-wro1e/

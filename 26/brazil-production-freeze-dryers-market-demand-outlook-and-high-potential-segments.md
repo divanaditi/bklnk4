@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-production-freeze-dryers-market-demand-outlook-high-potential-1fmkc/

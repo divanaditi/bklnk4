@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-s-2-amino-4-pentenoic-acid-cas-16338-48-0-iwvrf/

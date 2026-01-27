@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-14-dibromo-1122-tetrafluorobutane-cas-18599-20-7-jbmif/

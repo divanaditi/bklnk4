@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shoe-polish-market-technology-trends-influencing-structure-fvpsf/

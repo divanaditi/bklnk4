@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-software-defined-infrastructure-market-ai-nlqxf/

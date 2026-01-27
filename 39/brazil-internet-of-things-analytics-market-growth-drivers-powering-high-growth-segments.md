@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-internet-things-analytics-market-growth-ymh8f/

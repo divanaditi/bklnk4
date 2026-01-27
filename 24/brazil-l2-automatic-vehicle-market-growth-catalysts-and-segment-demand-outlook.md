@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-l2-automatic-vehicle-market-growth-catalysts-kckwf/

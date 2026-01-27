@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-edible-insect-market-intelligent-systems-tiy1f/

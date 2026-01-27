@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-tws-earphone-battery-market-intelligent-1y4wf/

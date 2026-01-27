@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-inducitive-proximity-sensors-market-digital-vr2tf/

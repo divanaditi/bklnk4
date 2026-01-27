@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-financial-crime-fraud-management-5ggxc/

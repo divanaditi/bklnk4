@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-backhoe-bucket-market-demand-outlook-q5fye/

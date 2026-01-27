@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gantry-cartesian-robots-market-ai-automation-tolxf/

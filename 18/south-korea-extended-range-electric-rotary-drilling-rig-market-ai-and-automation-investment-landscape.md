@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-extended-range-electric-rotary-drilling-tkjff/

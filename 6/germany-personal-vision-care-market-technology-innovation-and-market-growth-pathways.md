@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-personal-vision-care-market-technology-nwa8f/

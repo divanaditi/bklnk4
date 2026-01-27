@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-golf-shoes-professional-market-automation-digital-nxm2f/

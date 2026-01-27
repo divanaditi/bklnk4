@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-electric-rope-balancer-market-technology-innovation-7oxlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-game-localization-services-7w2fe/

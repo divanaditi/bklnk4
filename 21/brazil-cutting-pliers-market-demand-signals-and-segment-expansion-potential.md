@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cutting-pliers-market-demand-signals-ictof/

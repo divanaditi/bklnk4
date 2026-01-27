@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-amino-5-chlorothiazole-hydrochloride-cas-guxof/

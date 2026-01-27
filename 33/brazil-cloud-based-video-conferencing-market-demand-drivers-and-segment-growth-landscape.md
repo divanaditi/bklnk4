@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-based-video-conferencing-market-demand-s4xxe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fishing-reel-professional-market-ai-automation-enhancing-5ksqf/

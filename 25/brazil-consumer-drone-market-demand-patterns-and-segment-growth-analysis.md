@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-consumer-drone-market-demand-patterns-segment-jiuqf/

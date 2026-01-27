@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-naval-vessels-surface-combatants-vd0ff/

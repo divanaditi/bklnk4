@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyurethane-adhesives-market-size-tp1vf/

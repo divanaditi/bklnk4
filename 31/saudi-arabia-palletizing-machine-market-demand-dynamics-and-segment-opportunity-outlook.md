@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-palletizing-machine-market-demand-n1l1f/

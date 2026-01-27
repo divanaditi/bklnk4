@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-at-home-use-intense-pulsed-light-hair-removal-z0ctf/

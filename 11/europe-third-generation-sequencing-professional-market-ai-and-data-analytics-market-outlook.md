@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-third-generation-sequencing-professional-market-2vv2c/

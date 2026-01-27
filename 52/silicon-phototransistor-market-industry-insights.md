@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/silicon-phototransistor-market-industry-insights-auroraflux-design-jj46c/

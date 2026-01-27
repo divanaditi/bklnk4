@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automatic-through-hole-pin-insertion-machines-svykf/

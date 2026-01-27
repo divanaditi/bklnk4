@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-retractable-clothesline-market-segment-ywkxc/

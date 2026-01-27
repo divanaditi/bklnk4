@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-racks-market-digital-transformation-o7she/

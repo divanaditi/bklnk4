@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-25-bistrifluoromethyl-134-oxadiazole-cas-1868-48-0-murwf/

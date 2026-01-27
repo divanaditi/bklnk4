@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-soft-skills-management-professional-market-zi4rf/

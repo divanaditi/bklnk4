@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-weightlifting-frame-market-demand-side-l8xhf/

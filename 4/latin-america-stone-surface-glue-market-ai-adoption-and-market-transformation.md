@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stone-surface-glue-market-ai-adoption-transformation-hi1if/

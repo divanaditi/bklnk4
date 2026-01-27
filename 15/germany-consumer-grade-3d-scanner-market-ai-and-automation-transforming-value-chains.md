@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-consumer-grade-3d-scanner-market-ai-automation-un4cf/

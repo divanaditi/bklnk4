@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-boats-yacht-insurance-market-size-ecosystem-us4ec/

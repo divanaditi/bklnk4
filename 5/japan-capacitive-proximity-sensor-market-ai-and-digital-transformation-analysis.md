@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-capacitive-proximity-sensor-market-ai-digital-transformation-wxyef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-cell-paste-market-demand-supported-segment-pimuf/

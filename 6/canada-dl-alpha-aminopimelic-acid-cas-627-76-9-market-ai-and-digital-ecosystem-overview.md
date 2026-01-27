@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dl-alpha-aminopimelic-acid-cas-627-76-9-cjipf/

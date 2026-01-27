@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-mountain-rockfall-active-protection-net-market-zeq4f/

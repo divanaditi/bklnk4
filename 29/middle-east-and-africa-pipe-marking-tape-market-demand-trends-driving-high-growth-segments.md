@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pipe-marking-tape-market-demand-g8jnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-pull-over-life-jacket-market-digital-transformation-qvxjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pull-rod-type-force-sensor-market-technology-trends-rblzf/

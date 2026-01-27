@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-che-mensuo-market-ai-driven-operational-strategic-eoemc/

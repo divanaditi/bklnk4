@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smart-workplace-professional-market-technology-led-am9zc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-universal-serial-bus-usb-battery-chargers-zrvmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-portable-power-station-camping-home-market-ai-impact-wcdzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-magnetic-resonance-imaging-mri-apparatus-sutzf/

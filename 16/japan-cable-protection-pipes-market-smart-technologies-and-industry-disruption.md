@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cable-protection-pipes-market-smart-technologies-industry-1wl4f/

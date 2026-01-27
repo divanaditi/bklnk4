@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-indexing-plate-market-high-growth-segments-influenced-8hybf/

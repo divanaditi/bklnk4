@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fishing-wader-market-ai-impact-industry-9sqzf/

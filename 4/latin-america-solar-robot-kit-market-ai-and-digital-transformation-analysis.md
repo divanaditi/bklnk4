@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-robot-kit-market-ai-digital-transformation-do7df/

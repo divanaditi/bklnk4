@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-glass-antenna-professional-market-digital-afm3f/

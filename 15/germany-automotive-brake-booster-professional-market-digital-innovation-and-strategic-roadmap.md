@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-brake-booster-professional-market-bt7uf/

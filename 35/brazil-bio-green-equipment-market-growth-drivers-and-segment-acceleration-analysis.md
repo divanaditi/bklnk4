@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bio-green-equipment-market-growth-drivers-segment-7d1uf/

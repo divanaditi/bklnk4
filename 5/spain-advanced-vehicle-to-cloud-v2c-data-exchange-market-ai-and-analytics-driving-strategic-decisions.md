@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-advanced-vehicle-to-cloud-v2c-data-exchange-x143f/

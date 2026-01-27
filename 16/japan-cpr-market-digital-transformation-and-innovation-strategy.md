@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cpr-market-digital-transformation-innovation-t7m2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-soil-aerator-market-intelligent-automation-qnihf/

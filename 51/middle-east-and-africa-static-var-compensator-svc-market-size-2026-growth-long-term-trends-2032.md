@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-static-var-compensator-9y6oc/

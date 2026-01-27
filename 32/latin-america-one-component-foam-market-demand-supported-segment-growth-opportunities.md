@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-one-component-foam-market-demand-supported-a9lqe/

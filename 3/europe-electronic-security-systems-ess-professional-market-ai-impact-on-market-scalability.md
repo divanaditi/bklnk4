@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electronic-security-systems-ess-professional-esqaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-holiday-home-market-size-2026-outlook-7fjif/

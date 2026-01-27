@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-biometric-scan-software-market-high-growth-paaef/

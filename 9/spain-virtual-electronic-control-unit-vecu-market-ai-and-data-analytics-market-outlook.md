@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-virtual-electronic-control-unit-vecu-market-rjeef/

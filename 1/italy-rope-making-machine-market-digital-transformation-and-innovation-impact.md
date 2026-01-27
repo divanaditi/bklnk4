@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-rope-making-machine-market-digital-sbv0f/

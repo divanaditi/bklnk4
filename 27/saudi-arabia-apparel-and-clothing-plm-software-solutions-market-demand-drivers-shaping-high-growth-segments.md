@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-apparel-clothing-plm-software-solutions-uwnlf/

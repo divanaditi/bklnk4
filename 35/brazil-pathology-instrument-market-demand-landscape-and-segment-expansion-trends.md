@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pathology-instrument-market-demand-landscape-5twff/

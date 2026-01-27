@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pneumonia-market-demand-evolution-segment-growth-d1qvc/

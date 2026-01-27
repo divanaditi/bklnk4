@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sketchbox-easel-market-high-growth-dmwpf/

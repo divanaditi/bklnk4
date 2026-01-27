@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hand-wash-station-market-technology-resilience-xwrsf/

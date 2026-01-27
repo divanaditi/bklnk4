@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-nn-bissalicylidene-12-propanediamine-cas-94-91-7-h0wbf/

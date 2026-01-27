@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waveguide-connectors-market-demand-trends-segment-rpcuf/

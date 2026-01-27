@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-manual-total-station-market-demand-trends-zn44c/

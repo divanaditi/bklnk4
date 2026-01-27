@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-relocation-mortgage-market-ai-driven-innovation-5dvyc/

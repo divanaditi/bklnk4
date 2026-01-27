@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ice-melter-market-demand-evolution-m36ef/

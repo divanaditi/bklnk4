@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-induction-heating-quenching-market-ai-driven-pyeaf/

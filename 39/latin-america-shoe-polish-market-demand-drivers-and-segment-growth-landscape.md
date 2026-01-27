@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shoe-polish-market-demand-drivers-segment-0rf4f/

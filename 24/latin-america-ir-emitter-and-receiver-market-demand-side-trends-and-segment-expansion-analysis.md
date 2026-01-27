@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ir-emitter-receiver-market-demand-side-pcocc/

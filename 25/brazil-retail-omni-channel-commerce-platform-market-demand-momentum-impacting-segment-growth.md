@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-retail-omni-channel-commerce-platform-f6kpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-night-vision-clip-on-systems-pg1sf/

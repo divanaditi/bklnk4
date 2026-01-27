@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-rugged-computer-market-technology-jrx4f/

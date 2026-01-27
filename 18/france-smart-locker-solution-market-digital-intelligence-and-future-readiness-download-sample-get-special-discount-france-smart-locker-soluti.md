@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-locker-solution-market-digital-n5m7f/

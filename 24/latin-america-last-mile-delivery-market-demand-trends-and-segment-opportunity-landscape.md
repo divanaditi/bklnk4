@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-last-mile-delivery-market-demand-trends-ptvlc/

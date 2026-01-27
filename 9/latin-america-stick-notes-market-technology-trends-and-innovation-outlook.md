@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stick-notes-market-technology-trends-8ypff/

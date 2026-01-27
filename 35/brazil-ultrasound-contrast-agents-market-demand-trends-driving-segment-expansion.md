@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultrasound-contrast-agents-market-demand-trends-09xbf/

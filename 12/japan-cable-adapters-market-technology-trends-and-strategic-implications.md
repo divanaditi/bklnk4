@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cable-adapters-market-technology-4penf/

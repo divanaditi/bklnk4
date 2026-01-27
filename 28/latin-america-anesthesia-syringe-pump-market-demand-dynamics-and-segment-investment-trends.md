@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anesthesia-syringe-pump-iqbec/

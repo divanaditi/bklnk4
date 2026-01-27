@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-intelligent-dosimetry-equipment-market-demand-jilrf/

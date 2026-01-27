@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-cloud-transformer-market-technology-evolution-1hqzf/

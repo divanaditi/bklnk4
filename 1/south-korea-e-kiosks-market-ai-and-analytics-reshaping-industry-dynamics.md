@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-e-kiosks-market-ai-analytics-reshaping-rxtmc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-immunoassay-analyzers-market-demand-indicators-xqxnf/

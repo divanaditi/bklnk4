@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-infant-radiant-warmer-market-demand-side-sofqe/

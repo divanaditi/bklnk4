@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-factory-automation-platform-market-technology-7uudf/

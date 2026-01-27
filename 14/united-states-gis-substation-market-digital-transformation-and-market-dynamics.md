@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-gis-substation-market-digital-transformation-fbgec/

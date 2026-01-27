@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-enterprise-collaboration-software-professional-dwgjc/

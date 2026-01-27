@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plasma-quick-frozen-machine-market-growth-3folf/

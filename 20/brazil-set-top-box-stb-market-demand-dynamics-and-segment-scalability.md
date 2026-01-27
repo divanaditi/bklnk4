@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-set-top-box-stb-market-demand-dynamics-ouyef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aerospace-defence-elastomers-market-demand-osouf/

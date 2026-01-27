@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-work-order-software-professional-market-technology-zbref/

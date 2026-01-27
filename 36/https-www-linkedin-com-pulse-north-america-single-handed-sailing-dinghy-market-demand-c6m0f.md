@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-single-handed-sailing-dinghy-market-demand-c6m0f/

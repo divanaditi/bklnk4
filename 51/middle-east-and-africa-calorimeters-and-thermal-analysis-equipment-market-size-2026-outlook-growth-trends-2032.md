@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-calorimeters-thermal-analysis-equipment-eo9wc/

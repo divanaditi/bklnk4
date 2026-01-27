@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-phenyl-2-pyridylacetamide-cas-7251-52-7-market-technology-hvugf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-green-diode-lasers-market-ai-adoption-5rbwf/

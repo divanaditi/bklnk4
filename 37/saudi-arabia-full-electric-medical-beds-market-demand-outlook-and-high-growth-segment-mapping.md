@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-full-electric-medical-beds-market-demand-vyhhc/

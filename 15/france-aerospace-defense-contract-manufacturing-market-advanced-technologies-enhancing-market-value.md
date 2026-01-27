@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-aerospace-defense-contract-manufacturing-market-advanced-ep5zf/

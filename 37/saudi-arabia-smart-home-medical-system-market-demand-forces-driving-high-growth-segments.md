@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-smart-home-medical-system-market-demand-i2xhc/

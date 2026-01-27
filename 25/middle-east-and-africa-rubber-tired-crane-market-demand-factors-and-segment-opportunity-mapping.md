@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rubber-tired-crane-market-co3vf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-oil-gas-pipeline-market-demand-patterns-segment-mmuhf/

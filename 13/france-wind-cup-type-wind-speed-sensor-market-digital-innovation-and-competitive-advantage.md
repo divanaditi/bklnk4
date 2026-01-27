@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wind-cup-type-speed-sensor-market-digital-mhdcf/

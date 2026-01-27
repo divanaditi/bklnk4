@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-beauty-blender-market-size-2026-ecosystem-ybffc/

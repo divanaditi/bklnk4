@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-structured-trade-finance-energy-sector-market-technology-zl6hf/

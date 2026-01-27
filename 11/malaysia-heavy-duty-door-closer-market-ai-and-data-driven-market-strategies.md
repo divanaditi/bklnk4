@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heavy-duty-door-closer-market-ai-data-driven-wcmjf/

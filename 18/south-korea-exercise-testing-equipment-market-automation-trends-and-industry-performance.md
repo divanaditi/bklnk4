@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-exercise-testing-equipment-market-automation-gc5vf/

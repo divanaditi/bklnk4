@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cbr-testing-machine-market-technology-integration-hb9vc/

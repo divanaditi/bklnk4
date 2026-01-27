@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-infrastructure-service-iaas-market-high-growth-egrkf/

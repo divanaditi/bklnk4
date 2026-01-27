@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-handheld-device-golf-gps-market-segment-demand-iztwf/

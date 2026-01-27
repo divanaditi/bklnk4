@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-narrowband-iot-nb-iot-professional-market-ai-analytics-x4h9c/

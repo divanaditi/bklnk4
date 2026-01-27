@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-thermal-imaging-technology-0juhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-anemometers-market-demand-momentum-segment-growth-bl9if/

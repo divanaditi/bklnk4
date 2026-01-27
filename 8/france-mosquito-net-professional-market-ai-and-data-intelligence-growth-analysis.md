@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mosquito-net-professional-market-ai-data-d9wlf/

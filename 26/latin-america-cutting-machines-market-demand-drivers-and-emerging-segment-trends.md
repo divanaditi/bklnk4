@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cutting-machines-market-demand-crfsc/

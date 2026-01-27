@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-emergency-mass-notification-service-market-rcgkf/

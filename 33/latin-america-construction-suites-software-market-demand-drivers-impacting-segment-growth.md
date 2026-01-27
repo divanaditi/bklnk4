@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-construction-suites-software-market-demand-95uxe/

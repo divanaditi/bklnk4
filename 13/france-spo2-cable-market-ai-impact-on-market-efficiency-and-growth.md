@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-spo2-cable-market-ai-impact-efficiency-fbqjf/

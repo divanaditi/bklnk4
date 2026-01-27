@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-virtual-reality-medical-simulation-zz6hf/

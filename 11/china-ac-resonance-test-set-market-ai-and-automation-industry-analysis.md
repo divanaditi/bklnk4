@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-ac-resonance-test-set-market-ai-automation-l4ekf/

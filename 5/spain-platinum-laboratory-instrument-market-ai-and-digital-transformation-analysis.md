@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-platinum-laboratory-instrument-market-ai-digital-i68mf/

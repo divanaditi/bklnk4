@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lithium-nickel-manganese-oxygen-battery-market-auvlc/

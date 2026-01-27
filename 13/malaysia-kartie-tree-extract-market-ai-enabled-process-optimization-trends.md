@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-kartie-tree-extract-market-ai-enabled-fqkdf/

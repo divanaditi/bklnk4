@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-womens-beachwear-professional-market-ai-nz45f/

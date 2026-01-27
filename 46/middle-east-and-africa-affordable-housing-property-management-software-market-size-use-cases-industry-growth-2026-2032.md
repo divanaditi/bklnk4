@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-affordable-housing-property-management-ns8uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-alternative-powertrains-market-demand-outlook-nbntf/

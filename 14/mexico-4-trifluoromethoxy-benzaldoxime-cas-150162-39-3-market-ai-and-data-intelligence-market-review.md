@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-trifluoromethoxybenzaldoxime-cas-150162-39-3-fv5xc/

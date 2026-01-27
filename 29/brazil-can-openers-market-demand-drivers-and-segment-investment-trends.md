@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-can-openers-market-demand-drivers-segment-hk8mf/

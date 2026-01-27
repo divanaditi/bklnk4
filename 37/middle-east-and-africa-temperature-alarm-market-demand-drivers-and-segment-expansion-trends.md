@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-temperature-alarm-market-demand-drivers-r2yie/

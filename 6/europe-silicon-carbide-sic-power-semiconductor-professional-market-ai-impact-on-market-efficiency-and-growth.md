@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-silicon-carbide-sic-power-semiconductor-professional-0xlaf/

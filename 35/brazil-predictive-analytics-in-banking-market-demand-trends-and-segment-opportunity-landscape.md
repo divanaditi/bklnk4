@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-predictive-analytics-banking-market-demand-xbanf/

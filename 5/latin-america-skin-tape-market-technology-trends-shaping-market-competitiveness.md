@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-skin-tape-market-technology-mu1lc/

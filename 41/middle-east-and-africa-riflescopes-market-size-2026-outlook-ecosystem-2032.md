@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-riflescopes-market-size-2026-hvo7f/

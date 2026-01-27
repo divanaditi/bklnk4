@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-n-2-methoxyphenylacetamide-cas-93-26-5-lvd1f/

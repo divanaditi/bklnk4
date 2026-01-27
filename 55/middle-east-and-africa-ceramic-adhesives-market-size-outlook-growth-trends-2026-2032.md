@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ceramic-adhesives-market-size-outlook-jkyif/

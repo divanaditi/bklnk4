@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-surgical-patties-strips-market-technology-led-w4nof/

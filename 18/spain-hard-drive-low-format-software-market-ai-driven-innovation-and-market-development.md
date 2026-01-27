@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-hard-drive-low-format-software-market-ai-driven-y8ojf/

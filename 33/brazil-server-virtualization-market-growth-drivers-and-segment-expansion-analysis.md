@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-server-virtualization-market-growth-7zcae/

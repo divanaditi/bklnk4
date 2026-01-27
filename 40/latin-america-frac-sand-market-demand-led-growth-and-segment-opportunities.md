@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-frac-sand-market-demand-led-growth-d7tkf/

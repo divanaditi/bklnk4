@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-computed-radiography-market-ai-analytics-reshaping-2c1kf/

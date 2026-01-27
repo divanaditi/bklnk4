@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-antimicrobial-paint-market-demand-k5juc/

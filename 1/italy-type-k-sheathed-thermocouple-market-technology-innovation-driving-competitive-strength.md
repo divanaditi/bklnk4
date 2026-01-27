@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-type-k-sheathed-thermocouple-market-0binf/

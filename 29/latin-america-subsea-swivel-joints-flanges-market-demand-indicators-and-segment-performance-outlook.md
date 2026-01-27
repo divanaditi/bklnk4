@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-subsea-swivel-joints-flanges-market-demand-mn0nc/

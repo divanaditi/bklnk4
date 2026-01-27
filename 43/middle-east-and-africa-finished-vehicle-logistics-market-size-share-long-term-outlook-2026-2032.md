@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-finished-vehicle-logistics-yu6hf/

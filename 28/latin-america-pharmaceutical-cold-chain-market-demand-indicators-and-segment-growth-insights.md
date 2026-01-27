@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pharmaceutical-cold-chain-market-demand-qacmc/

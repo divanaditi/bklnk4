@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-robotic-automatic-fruit-picker-market-ai-enabled-ygduf/

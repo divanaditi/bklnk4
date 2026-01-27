@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-dodecanoic-acid-market-size-2026-7cvyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mounted-points-market-segment-growth-prhec/

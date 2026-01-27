@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-seat-belt-height-adjuster-g5ekc/

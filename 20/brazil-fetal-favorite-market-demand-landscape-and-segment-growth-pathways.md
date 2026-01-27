@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fetal-favorite-market-demand-landscape-tjyqf/

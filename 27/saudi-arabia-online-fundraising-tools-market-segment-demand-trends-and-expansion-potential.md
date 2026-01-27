@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-online-fundraising-tools-market-segment-x0d3f/

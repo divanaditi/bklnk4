@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-autoinjectors-market-technology-adoption-f52vf/

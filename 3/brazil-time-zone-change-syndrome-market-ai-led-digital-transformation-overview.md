@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-time-zone-change-syndrome-market-ai-led-6ku2f/

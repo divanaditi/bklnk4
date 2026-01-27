@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-geomembrane-welder-market-demand-outlook-flwbf/

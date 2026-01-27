@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lightweight-machine-lwm2m-market-pijle/

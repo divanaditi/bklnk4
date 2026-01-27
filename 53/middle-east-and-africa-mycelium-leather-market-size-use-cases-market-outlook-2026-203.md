@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mycelium-leather-market-size-use-qfmme/

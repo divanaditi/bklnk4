@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-truck-freight-forwarding-professional-market-ai-10crf/

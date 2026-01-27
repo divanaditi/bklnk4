@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vocal-processors-market-demand-trends-strategic-uxm5f/

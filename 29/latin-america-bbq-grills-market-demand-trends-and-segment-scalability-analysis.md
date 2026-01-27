@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bbq-grills-market-demand-trends-syhkc/

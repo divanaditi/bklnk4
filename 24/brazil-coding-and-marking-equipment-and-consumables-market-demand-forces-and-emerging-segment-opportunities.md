@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coding-marking-equipment-consumables-market-roc5f/

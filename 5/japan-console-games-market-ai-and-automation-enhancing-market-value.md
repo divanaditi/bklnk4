@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-console-games-market-ai-automation-ccyyf/

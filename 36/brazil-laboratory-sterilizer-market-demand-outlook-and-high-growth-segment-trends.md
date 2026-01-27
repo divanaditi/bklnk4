@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-laboratory-sterilizer-market-demand-outlook-nfa1e/

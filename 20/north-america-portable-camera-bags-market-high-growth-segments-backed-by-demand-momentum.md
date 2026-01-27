@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-portable-camera-bags-market-high-growth-7dcpf/

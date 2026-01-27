@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-scrap-grabs-market-size-2026-ecosystem-mlrff/

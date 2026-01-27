@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cosmetics-bags-market-ai-adoption-enhancing-1bq4f/

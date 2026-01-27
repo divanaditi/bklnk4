@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-identity-security-posture-management-u2uef/

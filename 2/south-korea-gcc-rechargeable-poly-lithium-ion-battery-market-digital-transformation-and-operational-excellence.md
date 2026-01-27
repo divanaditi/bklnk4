@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-rechargeable-poly-lithium-ion-battery-vmyic/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-spermidine-market-size-2026-zazec/

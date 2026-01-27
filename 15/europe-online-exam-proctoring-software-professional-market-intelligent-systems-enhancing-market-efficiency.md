@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-online-exam-proctoring-software-professional-r2hgf/

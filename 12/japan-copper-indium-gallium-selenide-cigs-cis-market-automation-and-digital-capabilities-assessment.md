@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-copper-indium-gallium-selenide-cigscis-market-automation-42xzf/

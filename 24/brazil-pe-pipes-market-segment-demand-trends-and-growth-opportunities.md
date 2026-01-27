@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pe-pipes-market-segment-demand-trends-growth-renaf/

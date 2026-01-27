@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-energy-storage-battery-management-s2fgf/

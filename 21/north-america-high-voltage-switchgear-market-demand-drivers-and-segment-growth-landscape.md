@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-voltage-switchgear-market-demand-a13rf/

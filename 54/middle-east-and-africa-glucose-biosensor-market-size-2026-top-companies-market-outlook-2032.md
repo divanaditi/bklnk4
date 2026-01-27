@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-glucose-biosensor-market-size-2026-x6bxf/

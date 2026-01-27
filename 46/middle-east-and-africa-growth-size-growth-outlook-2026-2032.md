@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-growth-size-outlook-k4a3f/

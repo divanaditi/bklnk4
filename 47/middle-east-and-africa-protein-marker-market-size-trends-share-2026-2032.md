@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-protein-marker-market-size-k8raf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-test-point-market-digital-intelligence-3u2nf/

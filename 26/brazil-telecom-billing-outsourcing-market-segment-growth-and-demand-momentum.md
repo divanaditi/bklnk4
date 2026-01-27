@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-telecom-billing-outsourcing-market-segment-mtaqc/

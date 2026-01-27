@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-enterprise-lbs-professional-market-role-ai-1rdvc/

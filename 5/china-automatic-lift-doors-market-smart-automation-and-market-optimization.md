@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automatic-lift-doors-market-smart-qn1jf/

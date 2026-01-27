@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-europe-automotive-electric-1acyc/

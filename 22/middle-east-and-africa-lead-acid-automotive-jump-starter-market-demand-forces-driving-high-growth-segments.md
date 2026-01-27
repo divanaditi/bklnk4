@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lead-acid-automotive-jump-rd4kf/

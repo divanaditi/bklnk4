@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-tosufloxacin-tosilate-cas-107097-79-0-wm2bf/

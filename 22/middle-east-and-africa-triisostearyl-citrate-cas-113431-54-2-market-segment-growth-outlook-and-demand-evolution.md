@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-triisostearyl-citrate-cas-113431-54-2-hrc0f/

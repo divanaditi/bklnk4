@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-battery-management-systems-consumer-electronics-fj5tc/

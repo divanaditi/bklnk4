@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trends-size-competitive-outlook-2026-2032-1emlc/

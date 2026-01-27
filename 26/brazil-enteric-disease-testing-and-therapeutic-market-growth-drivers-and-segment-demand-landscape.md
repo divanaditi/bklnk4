@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enteric-disease-testing-therapeutic-market-sqwoc/

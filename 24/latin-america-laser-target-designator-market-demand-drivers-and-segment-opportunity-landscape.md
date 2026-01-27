@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laser-target-designator-market-demand-jf50c/

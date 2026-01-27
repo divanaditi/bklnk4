@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-polyphthalamide-resin-market-y5o7f/

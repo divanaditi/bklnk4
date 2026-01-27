@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-naphthol-phosphate-cas-13989-98-5-6v5gf/

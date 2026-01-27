@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dynamic-spect-market-growth-drivers-xkhhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-boutique-hotel-market-demand-forces-high-growth-w64pf/

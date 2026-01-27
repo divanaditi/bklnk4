@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-patterned-window-film-market-technology-resilience-rdnkf/

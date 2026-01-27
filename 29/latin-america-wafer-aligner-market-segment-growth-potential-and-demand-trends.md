@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wafer-aligner-market-segment-growth-qybyc/

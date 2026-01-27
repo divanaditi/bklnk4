@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-drop-zone-crash-pad-market-digital-capabilities-yaiuf/

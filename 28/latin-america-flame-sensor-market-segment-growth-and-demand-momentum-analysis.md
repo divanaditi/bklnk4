@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flame-sensor-market-segment-growth-t0ric/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-crystal-growing-equipment-market-dpn0c/

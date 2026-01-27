@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-bacterial-enzyme-market-technology-msu2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gallium-arsenide-solar-cell-market-advanced-yqu2f/

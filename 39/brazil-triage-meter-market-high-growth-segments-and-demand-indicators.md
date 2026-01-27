@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-triage-meter-market-high-growth-segments-demand-dhctf/

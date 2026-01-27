@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-automotive-x-by-wire-system-market-technology-jazyf/

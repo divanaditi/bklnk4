@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-intelligent-industrial-barcode-printer-market-ai-iostf/

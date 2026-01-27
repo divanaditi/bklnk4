@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vanadium-oxide-infrared-detectors-civilian-hbwkf/

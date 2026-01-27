@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cable-cutting-sripping-machine-market-91ipf/

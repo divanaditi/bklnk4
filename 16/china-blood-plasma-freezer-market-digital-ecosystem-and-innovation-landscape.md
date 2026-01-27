@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-blood-plasma-freezer-market-digital-ecosystem-uv7if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wind-farm-develop-market-size-2026-160sf/

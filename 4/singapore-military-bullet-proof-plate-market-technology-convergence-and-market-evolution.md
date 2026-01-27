@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-military-bullet-proof-plate-market-p9y0c/

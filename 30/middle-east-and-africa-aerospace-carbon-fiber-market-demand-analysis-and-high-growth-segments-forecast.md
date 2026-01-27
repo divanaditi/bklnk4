@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerospace-carbon-fiber-market-demand-5hhtf/

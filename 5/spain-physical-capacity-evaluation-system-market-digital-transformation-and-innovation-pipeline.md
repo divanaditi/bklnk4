@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-physical-capacity-evaluation-system-market-digital-oy1rf/

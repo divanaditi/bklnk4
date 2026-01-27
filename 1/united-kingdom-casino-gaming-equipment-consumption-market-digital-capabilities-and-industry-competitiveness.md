@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-casino-gaming-equipment-consumption-tg2hf/

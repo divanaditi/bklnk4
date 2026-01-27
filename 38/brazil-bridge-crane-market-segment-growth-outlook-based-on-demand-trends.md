@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bridge-crane-market-segment-growth-outlook-ksyyf/

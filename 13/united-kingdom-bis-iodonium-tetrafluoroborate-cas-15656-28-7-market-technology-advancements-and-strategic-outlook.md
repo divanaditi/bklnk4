@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-bis-iodonium-tetrafluoroborate-cas-15656-28-7-byncf/

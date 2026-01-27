@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ys-series-three-phase-asynchronous-motor-6btyf/

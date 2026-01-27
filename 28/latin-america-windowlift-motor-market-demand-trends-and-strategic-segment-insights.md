@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-windowlift-motor-market-demand-36tzc/

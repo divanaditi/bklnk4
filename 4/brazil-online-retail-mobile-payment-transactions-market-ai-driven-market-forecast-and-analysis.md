@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-online-retail-mobile-payment-transactions-grxef/

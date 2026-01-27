@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vanadium-market-demand-patterns-qjdbf/

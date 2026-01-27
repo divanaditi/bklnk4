@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vendor-management-software-market-high-growth-0fcuf/

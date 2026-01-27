@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-embedded-finance-market-size-ecosystem-z9zzf/

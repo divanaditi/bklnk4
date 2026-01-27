@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-leather-shoes-testing-equipment-market-ltthf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-outdoor-electric-travel-trailer-market-automation-atrhf/

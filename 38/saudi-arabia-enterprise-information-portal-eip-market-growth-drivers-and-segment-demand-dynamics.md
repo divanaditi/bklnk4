@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-enterprise-information-portal-eip-rkv7f/

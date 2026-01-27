@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-materials-need-5g-market-vosbf/

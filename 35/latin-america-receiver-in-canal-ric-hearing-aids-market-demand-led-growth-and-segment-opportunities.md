@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-receiver-in-canal-ric-hearing-aids-market-flxvf/

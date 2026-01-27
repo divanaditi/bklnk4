@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-megawatt-wind-turbine-blades-market-digital-platforms-8a19f/

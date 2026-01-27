@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-kraft-paper-bag-professional-market-technology-pa0hf/

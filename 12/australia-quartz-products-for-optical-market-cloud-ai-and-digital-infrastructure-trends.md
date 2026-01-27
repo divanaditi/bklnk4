@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quartz-products-optical-market-cloud-ai-digital-y0w4c/

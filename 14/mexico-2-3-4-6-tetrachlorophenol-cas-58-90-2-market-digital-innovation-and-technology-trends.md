@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2346-tetrachlorophenol-cas-58-90-2-market-foeoc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-biometric-system-market-5y6ff/

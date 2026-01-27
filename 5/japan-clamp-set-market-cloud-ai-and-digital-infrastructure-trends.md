@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-clamp-set-market-cloud-ai-digital-infrastructure-pv4ff/

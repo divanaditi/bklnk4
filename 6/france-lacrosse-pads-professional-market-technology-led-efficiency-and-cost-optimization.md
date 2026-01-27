@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lacrosse-pads-professional-market-technology-led-5i8pf/

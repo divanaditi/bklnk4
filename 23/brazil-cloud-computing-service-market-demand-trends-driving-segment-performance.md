@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-computing-service-market-demand-trends-gj5zf/

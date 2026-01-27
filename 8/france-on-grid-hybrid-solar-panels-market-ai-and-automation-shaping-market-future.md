@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-on-grid-hybrid-solar-panels-market-ai-automation-cioxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-jetted-tub-market-ai-driven-operational-strategic-3d3sc/

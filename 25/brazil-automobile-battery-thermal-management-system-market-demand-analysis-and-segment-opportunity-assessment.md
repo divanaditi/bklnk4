@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automobile-battery-thermal-management-erbmf/

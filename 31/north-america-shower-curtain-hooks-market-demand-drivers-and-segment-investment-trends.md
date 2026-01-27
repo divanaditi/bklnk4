@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-shower-curtain-hooks-market-demand-n0asf/

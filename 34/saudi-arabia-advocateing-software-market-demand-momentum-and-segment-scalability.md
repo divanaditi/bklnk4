@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-advocateing-software-market-demand-momentum-segment-cnf4f/

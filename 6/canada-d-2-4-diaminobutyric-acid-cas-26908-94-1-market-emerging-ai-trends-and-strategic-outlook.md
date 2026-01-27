@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-d-24-diaminobutyric-acid-cas-26908-94-1-1jgif/

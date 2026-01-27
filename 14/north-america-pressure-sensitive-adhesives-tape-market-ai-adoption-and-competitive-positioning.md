@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-pressure-sensitive-adhesives-tape-market-kwcgf/

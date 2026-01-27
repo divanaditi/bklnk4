@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-non-contact-3d-measurement-technologies-781zc/

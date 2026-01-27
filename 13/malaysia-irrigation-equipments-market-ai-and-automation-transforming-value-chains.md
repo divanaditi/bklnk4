@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-irrigation-equipments-market-ai-automation-5ysdf/

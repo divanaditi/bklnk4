@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fast-casual-restaurant-market-technology-led-0lbgf/

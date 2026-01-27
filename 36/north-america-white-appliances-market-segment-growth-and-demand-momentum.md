@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-white-appliances-market-segment-growth-tfzdf/

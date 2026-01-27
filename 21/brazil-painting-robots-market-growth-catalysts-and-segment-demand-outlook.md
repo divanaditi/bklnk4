@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-painting-robots-market-growth-catalysts-xwtnf/

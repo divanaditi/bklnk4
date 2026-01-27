@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-compensation-management-software-professional-rcusf/

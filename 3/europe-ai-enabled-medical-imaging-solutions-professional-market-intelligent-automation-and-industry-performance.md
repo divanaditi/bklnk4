@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ai-enabled-medical-imaging-solutions-professional-y1ptf/

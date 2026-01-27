@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-editorial-image-market-role-automation-kbzif/

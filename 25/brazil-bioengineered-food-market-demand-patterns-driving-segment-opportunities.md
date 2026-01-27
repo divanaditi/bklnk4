@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bioengineered-food-market-demand-patterns-rua0f/

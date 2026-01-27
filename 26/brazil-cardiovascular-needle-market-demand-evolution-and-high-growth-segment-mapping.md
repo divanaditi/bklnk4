@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cardiovascular-needle-market-demand-evolution-a6poc/

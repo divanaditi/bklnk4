@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-intelligent-waste-management-systems-to5wf/

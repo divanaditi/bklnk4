@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-gambling-games-equipment-market-ai-automation-uidpf/

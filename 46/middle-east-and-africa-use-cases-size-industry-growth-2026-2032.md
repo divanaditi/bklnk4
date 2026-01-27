@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-use-cases-size-industry-bui1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cloud-encryption-market-demand-6rhlf/

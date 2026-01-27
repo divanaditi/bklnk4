@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-x86-embedded-hypervisor-virtualization-market-oaukc/

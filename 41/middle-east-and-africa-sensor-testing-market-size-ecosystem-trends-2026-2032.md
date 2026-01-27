@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sensor-testing-market-size-ckf9f/

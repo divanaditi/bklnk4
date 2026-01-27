@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-microswitch-market-size-2026-share-qes0c/

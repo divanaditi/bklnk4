@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-dry-skin-hand-cream-products-professional-market-1q3df/

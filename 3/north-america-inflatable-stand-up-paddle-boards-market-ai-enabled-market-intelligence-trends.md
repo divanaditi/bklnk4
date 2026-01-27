@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-inflatable-stand-up-paddle-boards-market-tfpdf/

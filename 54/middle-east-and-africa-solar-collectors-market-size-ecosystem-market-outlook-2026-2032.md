@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-solar-collectors-market-size-ecosystem-j64kf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-point-multipoint-military-mobile-station-market-j01qc/

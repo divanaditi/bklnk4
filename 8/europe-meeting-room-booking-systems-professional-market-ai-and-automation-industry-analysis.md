@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-meeting-room-booking-systems-professional-2bunf/

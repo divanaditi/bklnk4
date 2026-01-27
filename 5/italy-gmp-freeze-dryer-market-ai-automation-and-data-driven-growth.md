@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-gmp-freeze-dryer-market-ai-automation-hebaf/

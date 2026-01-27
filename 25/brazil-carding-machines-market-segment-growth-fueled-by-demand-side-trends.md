@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-carding-machines-market-segment-growth-fueled-demand-side-3ffzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-body-worn-videobwv-market-ai-impact-1wu3c/

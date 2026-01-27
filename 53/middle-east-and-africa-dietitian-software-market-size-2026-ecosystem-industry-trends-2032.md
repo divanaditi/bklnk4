@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-dietitian-software-market-size-q6u2f/

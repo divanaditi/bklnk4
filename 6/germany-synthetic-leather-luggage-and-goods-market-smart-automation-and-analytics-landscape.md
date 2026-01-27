@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-synthetic-leather-luggage-goods-market-3mqqf/

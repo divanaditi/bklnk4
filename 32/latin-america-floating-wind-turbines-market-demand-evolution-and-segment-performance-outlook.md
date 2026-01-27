@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-floating-wind-turbines-market-demand-u5d8e/

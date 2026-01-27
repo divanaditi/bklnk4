@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-small-animal-imaging-in-vivo-market-demand-strength-kxrfe/

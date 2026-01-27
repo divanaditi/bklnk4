@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bathroom-exhaust-fan-market-growth-86lac/

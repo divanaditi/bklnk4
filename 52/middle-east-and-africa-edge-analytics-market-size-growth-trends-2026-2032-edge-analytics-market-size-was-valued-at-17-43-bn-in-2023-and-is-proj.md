@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-edge-analytics-market-size-growth-trends-prf2f/

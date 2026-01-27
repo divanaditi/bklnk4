@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-field-programmable-gate-array-market-g4ccf/

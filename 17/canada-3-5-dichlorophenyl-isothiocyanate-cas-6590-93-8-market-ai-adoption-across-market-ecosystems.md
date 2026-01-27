@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-35-dichlorophenyl-isothiocyanate-cas-6590-93-8-p33vc/

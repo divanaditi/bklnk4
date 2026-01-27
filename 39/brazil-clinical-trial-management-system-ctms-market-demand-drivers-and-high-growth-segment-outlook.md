@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clinical-trial-management-system-ctms-svdif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vehicle-inspection-software-market-ydw8c/

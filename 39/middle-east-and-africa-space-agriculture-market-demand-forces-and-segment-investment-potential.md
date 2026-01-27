@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-space-agriculture-market-demand-forces-esgzf/

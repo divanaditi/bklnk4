@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lauric-acid-market-high-growth-p09uc/

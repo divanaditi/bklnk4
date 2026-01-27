@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-keyword-research-tools-professional-market-wp6cf/

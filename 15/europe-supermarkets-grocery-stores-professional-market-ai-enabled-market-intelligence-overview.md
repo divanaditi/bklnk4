@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-supermarkets-grocery-stores-professional-market-ryoif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-in-vehicle-central-control-soc-chips-market-ohbhf/

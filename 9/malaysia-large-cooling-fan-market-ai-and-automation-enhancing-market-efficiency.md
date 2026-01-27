@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-large-cooling-fan-market-ai-automation-qqg1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-wifi-6-panel-wireless-ap-market-role-ai-risk-lyzff/

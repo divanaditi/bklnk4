@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-orthopedic-insole-market-impact-ai-digital-8aqnf/

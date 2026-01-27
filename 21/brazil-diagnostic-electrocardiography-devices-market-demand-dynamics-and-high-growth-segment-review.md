@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diagnostic-electrocardiography-devices-market-qzm1f/

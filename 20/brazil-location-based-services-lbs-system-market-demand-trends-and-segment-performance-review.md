@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-location-based-services-lbs-system-dfv1f/

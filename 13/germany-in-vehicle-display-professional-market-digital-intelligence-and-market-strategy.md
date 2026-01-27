@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-in-vehicle-display-professional-market-da5vf/

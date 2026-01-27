@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-n-trimethoxysilylpropyl-nnn-trimethylammonium-cau5f/

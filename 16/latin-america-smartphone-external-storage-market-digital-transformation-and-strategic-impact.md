@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smartphone-external-storage-f7qhf/

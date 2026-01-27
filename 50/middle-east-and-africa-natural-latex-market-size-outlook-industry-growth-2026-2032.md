@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-natural-latex-market-size-outlook-orv7f/

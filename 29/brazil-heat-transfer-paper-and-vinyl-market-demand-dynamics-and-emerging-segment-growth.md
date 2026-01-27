@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heat-transfer-paper-vinyl-market-demand-m3hdf/

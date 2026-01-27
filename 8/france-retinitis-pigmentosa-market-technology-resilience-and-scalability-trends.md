@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-retinitis-pigmentosa-market-technology-resilience-pqxkf/

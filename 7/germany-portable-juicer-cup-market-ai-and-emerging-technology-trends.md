@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-portable-juicer-cup-market-ai-emerging-wd81f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-guidance-barriers-market-demand-indicators-y5nde/

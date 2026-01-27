@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-gan-charging-head-market-automation-technology-vfaaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-batteries-market-demand-trends-segment-expansion-yeatf/

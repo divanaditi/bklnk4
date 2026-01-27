@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-ethernet-switches-market-advanced-8yw5c/

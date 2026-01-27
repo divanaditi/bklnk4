@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-healthcare-m2m-market-high-growth-segments-vejvf/

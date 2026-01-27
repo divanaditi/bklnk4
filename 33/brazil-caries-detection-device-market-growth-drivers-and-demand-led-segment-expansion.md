@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-caries-detection-device-market-growth-absse/

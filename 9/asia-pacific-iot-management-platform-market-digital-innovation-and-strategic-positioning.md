@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-iot-management-platform-market-digital-innovation-rd81f/

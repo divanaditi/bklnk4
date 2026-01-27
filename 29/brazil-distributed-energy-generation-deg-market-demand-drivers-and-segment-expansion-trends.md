@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-distributed-energy-generation-deg-market-vsopc/

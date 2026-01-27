@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-credit-collections-software-market-z6lhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-carpet-tapes-market-segment-growth-u7ctf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-single-crystal-germanium-market-segment-2f6ce/

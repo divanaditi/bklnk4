@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-palmprint-payment-solution-market-ai-data-intelligence-lfedf/

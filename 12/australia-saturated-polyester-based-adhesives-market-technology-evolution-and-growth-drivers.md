@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-saturated-polyester-based-adhesives-market-qzmdc/

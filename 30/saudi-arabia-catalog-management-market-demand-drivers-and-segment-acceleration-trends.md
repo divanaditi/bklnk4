@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-catalog-management-market-demand-f2xpf/

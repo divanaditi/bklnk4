@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-energy-utility-analytics-market-lgyef/

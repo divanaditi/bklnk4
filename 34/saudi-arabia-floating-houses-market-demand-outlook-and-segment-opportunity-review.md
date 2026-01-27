@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-floating-houses-market-demand-outlook-khbsf/

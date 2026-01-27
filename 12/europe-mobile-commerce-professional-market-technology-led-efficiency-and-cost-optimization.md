@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-commerce-professional-market-technology-led-80k6c/

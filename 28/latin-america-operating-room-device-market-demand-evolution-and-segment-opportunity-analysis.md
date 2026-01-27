@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-operating-room-device-market-demand-evolution-gffbc/

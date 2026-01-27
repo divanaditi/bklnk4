@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-external-rotor-brushless-dc-motor-market-qpa1f/

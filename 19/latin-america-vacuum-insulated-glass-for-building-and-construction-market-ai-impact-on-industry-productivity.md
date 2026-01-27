@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vacuum-insulated-glass-building-construction-xqfee/

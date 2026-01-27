@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-full-palm-orthotic-insoles-market-raqzf/

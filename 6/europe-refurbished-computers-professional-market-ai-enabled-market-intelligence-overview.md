@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-refurbished-computers-professional-cvx2f/

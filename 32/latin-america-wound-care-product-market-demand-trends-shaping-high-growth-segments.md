@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wound-care-product-market-demand-trends-y3dwe/

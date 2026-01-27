@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-bisphenol-c-cas-14868-03-2-market-advanced-ebzef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-radio-frequency-skin-tightening-machine-biw8f/

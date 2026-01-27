@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-46-difluorooxindole-cas-247564-57-4-xzwwf/

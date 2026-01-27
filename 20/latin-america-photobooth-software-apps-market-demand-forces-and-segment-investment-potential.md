@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-photobooth-software-apps-market-demand-iff8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-location-service-market-demand-factors-i5rkf/

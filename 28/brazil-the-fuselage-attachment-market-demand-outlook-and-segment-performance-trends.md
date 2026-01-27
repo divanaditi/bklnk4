@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fuselage-attachment-market-demand-outlook-lqbnc/

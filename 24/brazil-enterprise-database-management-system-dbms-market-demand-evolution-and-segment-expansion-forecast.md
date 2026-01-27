@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enterprise-database-management-system-dbms-flmkf/

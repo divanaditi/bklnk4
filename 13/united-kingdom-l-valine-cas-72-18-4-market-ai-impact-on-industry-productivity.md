@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-l-valine-cas-72-18-4-market-ai-impact-bd39f/

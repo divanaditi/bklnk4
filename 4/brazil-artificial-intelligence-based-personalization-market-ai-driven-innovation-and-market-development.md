@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-artificial-intelligence-based-personalization-1akbf/

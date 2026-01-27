@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-relief-wrap-market-technology-driven-b9hef/

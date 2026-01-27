@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smart-headphones-professional-market-k83yf/

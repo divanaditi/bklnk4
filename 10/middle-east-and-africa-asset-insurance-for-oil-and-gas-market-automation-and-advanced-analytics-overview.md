@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-asset-insurance-oil-gas-market-gbmtf/

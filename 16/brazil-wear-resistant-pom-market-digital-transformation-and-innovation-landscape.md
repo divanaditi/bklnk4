@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wear-resistant-pom-market-digital-transformation-dd3df/

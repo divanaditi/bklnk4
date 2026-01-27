@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laptop-stands-market-demand-trends-m78rc/

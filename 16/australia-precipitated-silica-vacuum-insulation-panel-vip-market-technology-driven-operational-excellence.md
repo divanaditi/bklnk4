@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-precipitated-silica-vacuum-insulation-nim2f/

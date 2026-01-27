@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixed-bird-detection-system-market-sgfgc/

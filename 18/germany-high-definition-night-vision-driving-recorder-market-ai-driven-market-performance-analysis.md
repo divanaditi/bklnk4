@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-high-definition-night-vision-driving-recorder-otc3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-safety-eyewear-market-size-2026-rh1hc/

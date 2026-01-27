@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-property-casualty-insurance-claims-market-dg73c/

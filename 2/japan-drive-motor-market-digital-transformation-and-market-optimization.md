@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-drive-motor-market-digital-transformation-rio7c/

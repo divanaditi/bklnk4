@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-biaxially-oriented-polypropylene-sheets-vrlyf/

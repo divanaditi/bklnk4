@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-welding-safety-market-demand-led-segment-wftaf/

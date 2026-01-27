@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aerostructure-equipment-market-segment-iyuyf/

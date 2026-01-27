@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fish-trap-market-growth-drivers-d9lrf/

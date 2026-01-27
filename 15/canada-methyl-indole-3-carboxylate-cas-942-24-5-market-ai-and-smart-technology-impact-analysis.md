@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-methyl-indole-3-carboxylate-cas-942-24-5-76n0f/

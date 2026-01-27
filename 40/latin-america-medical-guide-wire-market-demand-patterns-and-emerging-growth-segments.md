@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-guide-wire-market-demand-patterns-wddqf/

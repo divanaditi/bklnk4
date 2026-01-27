@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-switch-roller-market-growth-catalysts-high-potential-mqtof/

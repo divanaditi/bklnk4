@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-off-highway-wide-body-dump-truck-market-aifcf/

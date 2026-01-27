@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-robotics-sanding-polishing-market-digital-transformation-xhwnc/

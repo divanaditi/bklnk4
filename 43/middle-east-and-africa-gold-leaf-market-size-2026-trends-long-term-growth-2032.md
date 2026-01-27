@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gold-leaf-market-size-2026-cgtjc/

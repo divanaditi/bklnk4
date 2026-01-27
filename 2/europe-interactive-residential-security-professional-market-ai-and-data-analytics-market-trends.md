@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-interactive-residential-security-professional-qakdf/

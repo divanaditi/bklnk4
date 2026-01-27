@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fmcg-cpg-market-technology-integration-k7npc/

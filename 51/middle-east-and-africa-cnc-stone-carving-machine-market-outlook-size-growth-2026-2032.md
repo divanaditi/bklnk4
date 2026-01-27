@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cnc-stone-carving-machine-market-3k3jf/

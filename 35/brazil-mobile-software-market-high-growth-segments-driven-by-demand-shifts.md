@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-software-market-high-growth-segments-i8obf/

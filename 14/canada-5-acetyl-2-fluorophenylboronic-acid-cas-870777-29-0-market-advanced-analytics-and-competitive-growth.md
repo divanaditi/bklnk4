@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-acetyl-2-fluorophenylboronic-acid-cas-870777-29-0-fpjef/

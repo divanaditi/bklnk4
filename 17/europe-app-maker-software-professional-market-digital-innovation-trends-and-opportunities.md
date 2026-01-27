@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-app-maker-software-professional-market-digital-innovation-1zicf/

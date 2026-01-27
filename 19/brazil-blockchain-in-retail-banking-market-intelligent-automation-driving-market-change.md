@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blockchain-retail-banking-market-intelligent-automation-phh7e/

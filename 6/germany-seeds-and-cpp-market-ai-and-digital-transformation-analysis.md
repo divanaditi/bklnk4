@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-seeds-cpp-market-ai-digital-transformation-xw7af/

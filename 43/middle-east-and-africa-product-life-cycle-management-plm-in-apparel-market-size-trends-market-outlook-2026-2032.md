@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-product-life-cycle-management-plm-h2ldf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-heat-flow-meters-market-ai-data-analytics-ecv7c/

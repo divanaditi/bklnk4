@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bulk-acoustic-wave-sensors-market-demand-eqyaf/

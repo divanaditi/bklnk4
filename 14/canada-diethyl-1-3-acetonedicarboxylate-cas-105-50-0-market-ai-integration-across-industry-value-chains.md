@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diethyl-13-acetonedicarboxylate-cas-105-50-0-zeykc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-user-interface-interaction-design-professional-n1aff/

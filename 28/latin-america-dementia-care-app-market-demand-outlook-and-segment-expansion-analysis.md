@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dementia-care-app-market-6x4nc/

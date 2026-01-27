@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-fmoc-val-opfp-cas-86060-87-9-market-ai-enabled-9gnoc/

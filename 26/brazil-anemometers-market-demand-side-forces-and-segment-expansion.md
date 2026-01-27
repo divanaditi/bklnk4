@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-anemometers-market-demand-side-forces-segment-9r0zc/

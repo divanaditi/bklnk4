@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-v-shaped-tactical-bipod-market-ksqyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-vacation-rental-professional-market-digital-i3ndf/

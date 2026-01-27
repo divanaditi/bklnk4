@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-indoor-garden-market-cfazf/

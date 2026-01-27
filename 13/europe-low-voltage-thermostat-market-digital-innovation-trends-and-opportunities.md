@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-low-voltage-thermostat-market-digital-innovation-8bk3c/

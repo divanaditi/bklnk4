@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2r4r-pentanediol-cas-42075-32-1-market-yp77f/

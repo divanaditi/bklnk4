@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lin-system-basis-chip-market-ai-analytics-juwlf/

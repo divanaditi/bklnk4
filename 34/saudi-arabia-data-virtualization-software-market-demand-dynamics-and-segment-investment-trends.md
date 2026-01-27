@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-data-virtualization-software-market-h59ff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compostable-packaging-market-ai-powered-efficiency-focvf/

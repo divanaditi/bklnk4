@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-picture-archiving-communications-system-8kngf/

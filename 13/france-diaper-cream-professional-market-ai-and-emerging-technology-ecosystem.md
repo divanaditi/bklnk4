@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-diaper-cream-professional-market-ai-emerging-4lqyf/

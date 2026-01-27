@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-commercial-vehicle-tire-professional-market-nhw4f/

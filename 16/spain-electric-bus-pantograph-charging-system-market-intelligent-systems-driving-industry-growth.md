@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-electric-bus-pantograph-charging-system-market-brzvf/

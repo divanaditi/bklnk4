@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cnc-turning-tool-market-smart-technologies-rxwjf/

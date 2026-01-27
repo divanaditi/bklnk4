@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vision-sensor-market-ai-driven-forecast-qjauf/

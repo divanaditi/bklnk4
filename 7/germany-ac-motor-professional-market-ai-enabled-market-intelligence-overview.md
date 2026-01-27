@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ac-motor-professional-market-ai-enabled-2wovf/

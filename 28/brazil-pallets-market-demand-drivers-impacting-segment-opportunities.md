@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pallets-market-demand-drivers-impacting-soexc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-rower-market-demand-analysis-segment-9t99f/

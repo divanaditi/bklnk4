@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-octadecyl-acrylate-cas-4813-57-4-market-ai-zx6vf/

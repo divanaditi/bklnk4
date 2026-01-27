@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-network-video-decoder-market-demand-momentum-mda7c/

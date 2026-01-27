@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ciam-software-market-technology-trends-influencing-pbd7f/

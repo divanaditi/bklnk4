@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-emotion-detection-recognition-market-demand-adpkf/

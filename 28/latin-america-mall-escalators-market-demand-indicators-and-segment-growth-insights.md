@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mall-escalators-market-demand-indicators-dr1tc/

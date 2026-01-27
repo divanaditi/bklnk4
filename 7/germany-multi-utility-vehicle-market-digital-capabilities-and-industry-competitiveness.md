@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-multi-utility-vehicle-market-digital-capabilities-rzzuf/

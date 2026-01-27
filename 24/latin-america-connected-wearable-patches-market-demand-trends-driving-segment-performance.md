@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-connected-wearable-patches-market-demand-ezd9c/

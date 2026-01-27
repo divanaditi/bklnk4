@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-n-tetramethyl-1-6-hexanediamine-upcyf/

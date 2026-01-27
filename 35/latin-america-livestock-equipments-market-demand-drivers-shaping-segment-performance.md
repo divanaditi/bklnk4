@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-livestock-equipments-market-demand-9cixf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-board-management-software-0qqif/

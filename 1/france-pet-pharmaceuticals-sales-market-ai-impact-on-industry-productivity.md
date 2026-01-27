@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pet-pharmaceuticals-sales-market-ai-impact-industry-cajrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-professional-power-tools-market-w8qkf/

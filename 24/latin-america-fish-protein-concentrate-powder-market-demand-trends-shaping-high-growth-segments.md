@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fish-protein-concentrate-powder-market-demand-ri6ec/

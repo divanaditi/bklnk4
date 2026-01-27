@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-shed-design-software-market-bd8rf/

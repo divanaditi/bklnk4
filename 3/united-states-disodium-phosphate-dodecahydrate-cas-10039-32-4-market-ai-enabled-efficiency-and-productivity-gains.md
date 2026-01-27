@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-disodium-phosphate-dodecahydrate-cas-10039-32-4-pxsdf/

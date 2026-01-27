@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-juice-vending-machine-market-wuhnf/

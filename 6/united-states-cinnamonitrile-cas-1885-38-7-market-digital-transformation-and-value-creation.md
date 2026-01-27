@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-cinnamonitrile-cas-1885-38-7-market-1nnxf/

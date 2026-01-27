@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dental-biostimulation-laser-market-technology-t281f/

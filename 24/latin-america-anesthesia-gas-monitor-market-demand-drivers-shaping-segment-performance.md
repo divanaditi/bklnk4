@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anesthesia-gas-monitor-market-demand-evulc/

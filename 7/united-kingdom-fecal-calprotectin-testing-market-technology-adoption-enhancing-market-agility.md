@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-fecal-calprotectin-testing-market-ono7f/

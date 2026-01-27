@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-analog-power-supply-sequencer-market-advanced-nxigf/

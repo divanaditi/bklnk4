@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ground-coffee-professional-market-ai-technology-svcyf/

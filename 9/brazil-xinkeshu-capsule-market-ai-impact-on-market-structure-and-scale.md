@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-xinkeshu-capsule-market-ai-impact-structure-ila9f/

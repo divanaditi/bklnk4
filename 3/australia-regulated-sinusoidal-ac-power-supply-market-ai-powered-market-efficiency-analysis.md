@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-regulated-sinusoidal-ac-power-supply-market-rysgf/

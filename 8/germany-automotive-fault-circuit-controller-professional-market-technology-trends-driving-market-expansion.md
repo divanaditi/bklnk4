@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-fault-circuit-controller-professional-elxmf/

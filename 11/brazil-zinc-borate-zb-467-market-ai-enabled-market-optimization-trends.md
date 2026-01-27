@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zinc-boratezb-467-market-ai-enabled-optimization-vo21c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automatic-accordion-fire-curtain-h156f/

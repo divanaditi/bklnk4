@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-aqueous-film-forming-foam-afff-fire-dilse/

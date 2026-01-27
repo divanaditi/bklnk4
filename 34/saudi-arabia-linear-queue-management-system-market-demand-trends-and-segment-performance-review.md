@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-linear-queue-management-system-market-demand-is4tf/

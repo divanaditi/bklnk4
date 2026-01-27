@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-peer-to-peer-accommodation-market-ai-analytics-zfrce/

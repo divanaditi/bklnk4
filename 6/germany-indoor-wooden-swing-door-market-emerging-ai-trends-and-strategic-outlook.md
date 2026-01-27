@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-indoor-wooden-swing-door-market-emerging-wlxff/

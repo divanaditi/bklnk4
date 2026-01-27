@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-pickleball-shoes-market-demand-drivers-ot82f/

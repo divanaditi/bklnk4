@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-logistics-supply-chain-market-ai-integration-er66f/

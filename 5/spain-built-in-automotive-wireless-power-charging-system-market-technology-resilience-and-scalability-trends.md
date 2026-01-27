@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-built-in-automotive-wireless-power-charging-system-x9u3f/

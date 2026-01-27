@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-functional-textile-fabric-professional-market-digital-3tahf/

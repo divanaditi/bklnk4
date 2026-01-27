@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-polysilicons-downstream-segments-market-technology-gk7jf/

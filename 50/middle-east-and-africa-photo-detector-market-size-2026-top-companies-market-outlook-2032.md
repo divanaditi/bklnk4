@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-photo-detector-market-size-2026-foe5f/

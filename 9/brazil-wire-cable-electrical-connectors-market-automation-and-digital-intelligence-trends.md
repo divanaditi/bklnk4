@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-cable-electrical-connectors-market-12onf/

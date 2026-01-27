@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bill-lading-software-market-advanced-otc2f/

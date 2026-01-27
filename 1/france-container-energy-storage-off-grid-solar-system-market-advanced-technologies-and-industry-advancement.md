@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-container-energy-storage-off-grid-solar-system-ugxef/

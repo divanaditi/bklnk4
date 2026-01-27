@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cellulose-acetate-propionate-cap-x3azf/

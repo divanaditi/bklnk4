@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-dipotassium-hexachloroiridate-cas-16920-56-2-cualf/

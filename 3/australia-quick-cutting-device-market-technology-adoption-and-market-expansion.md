@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quick-cutting-device-market-technology-pdcmf/

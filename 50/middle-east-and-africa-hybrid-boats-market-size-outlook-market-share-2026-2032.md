@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hybrid-boats-market-size-outlook-6outf/

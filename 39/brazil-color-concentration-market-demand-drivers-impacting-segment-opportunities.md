@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-color-concentration-market-demand-drivers-kl2xf/

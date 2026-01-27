@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pre-pregnancy-genetic-testing-market-segment-growth-h2kxf/

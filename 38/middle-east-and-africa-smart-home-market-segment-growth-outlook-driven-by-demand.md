@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-home-market-segment-growth-tlh9f/

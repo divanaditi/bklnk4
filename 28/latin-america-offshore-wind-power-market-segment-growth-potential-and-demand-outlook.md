@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-offshore-wind-power-market-segment-growth-8emnc/

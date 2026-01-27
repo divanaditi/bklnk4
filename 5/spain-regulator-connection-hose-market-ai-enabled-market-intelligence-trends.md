@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-regulator-connection-hose-market-ai-enabled-intelligence-yfn7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-weight-training-benches-market-segment-growth-n3jjf/

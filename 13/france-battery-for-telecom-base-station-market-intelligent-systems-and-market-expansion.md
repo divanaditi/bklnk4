@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-battery-telecom-base-station-market-intelligent-4gx4f/

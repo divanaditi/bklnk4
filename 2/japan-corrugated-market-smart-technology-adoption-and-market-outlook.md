@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-corrugated-market-smart-technology-adoption-2sjdc/

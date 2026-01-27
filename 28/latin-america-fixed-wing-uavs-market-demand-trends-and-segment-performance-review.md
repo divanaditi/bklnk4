@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixed-wing-uavs-market-demand-trends-rx9tc/

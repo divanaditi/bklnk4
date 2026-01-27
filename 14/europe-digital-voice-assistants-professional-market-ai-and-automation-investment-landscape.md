@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-voice-assistants-professional-market-ai-6mt4c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vascular-ultrasound-machine-market-prnkf/

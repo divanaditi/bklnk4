@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-45-dichlorophthalic-acid-cas-56962-08-4-rk1jc/

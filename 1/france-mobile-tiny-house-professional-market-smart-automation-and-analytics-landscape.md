@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mobile-tiny-house-professional-market-smart-v8tuf/

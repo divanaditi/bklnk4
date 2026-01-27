@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-video-inspection-machines-market-technology-uz9ec/

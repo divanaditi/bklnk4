@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-creative-portfolio-management-software-jbjlf/

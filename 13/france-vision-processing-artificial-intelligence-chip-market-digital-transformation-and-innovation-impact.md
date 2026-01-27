@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vision-processing-artificial-intelligence-chu6f/

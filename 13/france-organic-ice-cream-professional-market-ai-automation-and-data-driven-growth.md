@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-organic-ice-cream-professional-market-ai-automation-03mjf/

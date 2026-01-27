@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-infrared-spectroscopy-devices-market-demand-yjtpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-digital-signal-docking-station-market-advanced-technologies-37paf/

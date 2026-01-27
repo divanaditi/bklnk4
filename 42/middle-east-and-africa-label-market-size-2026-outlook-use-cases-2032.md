@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-label-market-size-2026-outlook-npr8f/

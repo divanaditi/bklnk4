@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-fish-processing-professional-market-digital-1vocf/

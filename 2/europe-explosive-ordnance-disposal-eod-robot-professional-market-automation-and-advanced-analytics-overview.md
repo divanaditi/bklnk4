@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-explosive-ordnance-disposal-eod-robot-professional-xfylf/

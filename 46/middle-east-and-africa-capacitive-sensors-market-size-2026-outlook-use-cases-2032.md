@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-capacitive-sensors-market-size-bc7ff/

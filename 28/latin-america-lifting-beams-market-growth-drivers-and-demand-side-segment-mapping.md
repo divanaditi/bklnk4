@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lifting-beams-market-growth-crxtc/

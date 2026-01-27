@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-inverter-professional-market-advanced-technologies-djtdf/

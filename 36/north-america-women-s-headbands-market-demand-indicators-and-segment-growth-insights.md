@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-headbands-market-demand-indicators-yo6lf/

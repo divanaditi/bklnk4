@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-retail-automation-zz8qf/

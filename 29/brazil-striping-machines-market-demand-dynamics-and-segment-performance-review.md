@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-striping-machines-market-demand-dynamics-segment-rfosf/

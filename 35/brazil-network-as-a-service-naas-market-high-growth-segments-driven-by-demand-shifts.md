@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-network-as-a-service-naas-market-xlc4f/

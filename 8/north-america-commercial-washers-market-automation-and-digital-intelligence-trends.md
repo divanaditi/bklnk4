@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-commercial-washers-market-automation-q7ddf/

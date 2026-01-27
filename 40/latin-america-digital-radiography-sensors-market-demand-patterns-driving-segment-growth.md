@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-radiography-sensors-market-demand-ogwtf/

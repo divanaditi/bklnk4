@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-isopropyl-alcoholipa-market-technology-xba8c/

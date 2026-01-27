@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-drilling-lines-market-technology-driven-operational-hd52f/

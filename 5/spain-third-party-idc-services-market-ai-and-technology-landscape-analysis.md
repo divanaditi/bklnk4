@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-third-party-idc-services-market-ai-p00zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-p-tolyl-chlorothionoformate-cas-937-63-3-market-wc1rf/

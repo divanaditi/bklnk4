@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-ai-powered-robot-picker-market-ai-automation-9llhf/

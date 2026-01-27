@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-power-quality-management-system-market-predictive-b3tvf/

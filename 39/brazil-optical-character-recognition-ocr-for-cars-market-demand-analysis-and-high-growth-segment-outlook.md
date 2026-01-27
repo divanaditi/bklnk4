@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-optical-character-recognition-ocr-cars-market-demand-ovnyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-weight-loss-management-diets-market-demand-outlook-mxz1f/

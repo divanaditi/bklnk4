@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-diffusion-furnace-market-demand-patterns-segment-xdxbf/

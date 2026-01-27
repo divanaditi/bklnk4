@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-refrigerators-market-demand-dynamics-emerging-hheme/

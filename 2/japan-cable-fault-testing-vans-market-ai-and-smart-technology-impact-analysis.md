@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cable-fault-testing-vans-market-ai-smart-technology-ztfnc/

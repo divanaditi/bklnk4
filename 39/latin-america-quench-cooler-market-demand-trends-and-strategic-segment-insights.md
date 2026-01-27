@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-quench-cooler-market-demand-trends-qbykf/

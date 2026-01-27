@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-diglycidyl-12-cyclohexanedicarboxylate-cas-5493-45-8-ljuqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-personal-training-software-market-high-growth-qwuqc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-patient-lift-pendant-market-technology-led-tjnvc/

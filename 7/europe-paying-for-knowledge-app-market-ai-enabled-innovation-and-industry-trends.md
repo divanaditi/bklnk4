@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-paying-for-knowledge-app-market-ai-enabled-wpbxf/

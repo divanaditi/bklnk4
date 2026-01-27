@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gate-bipolar-transistors-igbt-statcom-professional-524tc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-crushed-stone-mining-market-demand-side-trends-u4qof/

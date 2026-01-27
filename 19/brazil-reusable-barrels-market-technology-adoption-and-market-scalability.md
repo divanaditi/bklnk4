@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-reusable-barrels-market-technology-adoption-bwz2e/

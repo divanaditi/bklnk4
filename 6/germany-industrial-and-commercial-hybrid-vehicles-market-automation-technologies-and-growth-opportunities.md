@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-industrial-commercial-hybrid-vehicles-cii5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pilates-yoga-studios-market-ai-automation-gvovf/

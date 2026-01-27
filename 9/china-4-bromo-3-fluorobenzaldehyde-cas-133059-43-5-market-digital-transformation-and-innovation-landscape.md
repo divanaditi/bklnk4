@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-4-bromo-3-fluorobenzaldehyde-cas-133059-43-5-ofbof/

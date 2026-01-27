@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cooking-appliances-market-technology-transformation-3gsjf/

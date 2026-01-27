@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-foot-paddle-kayak-market-digital-innovation-trends-ihzqf/

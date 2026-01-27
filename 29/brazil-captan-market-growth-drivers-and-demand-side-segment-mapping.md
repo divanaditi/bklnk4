@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-captan-market-growth-drivers-demand-side-segment-tsk6f/

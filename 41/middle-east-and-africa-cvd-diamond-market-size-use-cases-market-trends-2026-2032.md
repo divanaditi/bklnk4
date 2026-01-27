@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cvd-diamond-market-size-zkvtf/

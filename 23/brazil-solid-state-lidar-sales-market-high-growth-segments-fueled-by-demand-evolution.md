@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solid-state-lidar-sales-market-high-growth-s4ywf/

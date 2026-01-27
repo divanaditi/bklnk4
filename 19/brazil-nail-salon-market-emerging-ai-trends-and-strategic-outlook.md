@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nail-salon-market-emerging-ai-trends-strategic-fsmee/

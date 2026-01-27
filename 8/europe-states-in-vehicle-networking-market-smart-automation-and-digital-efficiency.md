@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-states-in-vehicle-networking-market-smart-automation-0pwqf/

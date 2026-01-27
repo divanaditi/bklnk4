@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-24-difluorophenyl-isocyanate-cas-59025-55-7-e7jmc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-towable-recreational-vehicles-market-o23ef/

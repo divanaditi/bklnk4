@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-world-x86-server-virtualization-infrastructure-aicxf/

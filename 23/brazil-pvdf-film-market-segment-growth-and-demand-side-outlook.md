@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pvdf-film-market-segment-growth-demand-side-outlook-uqfgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-metal-bonding-adhesives-market-a1zyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-phone-professional-market-technology-trends-1up7f/

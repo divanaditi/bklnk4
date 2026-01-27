@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-handheld-laser-distance-meter-cs2lf/

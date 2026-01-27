@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wearable-devices-cybersecurity-market-wtovf/

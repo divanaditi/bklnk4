@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bio-based-polyurethane-pu-market-demand-pbs7e/

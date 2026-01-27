@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gnss-rtk-auto-steering-system-agricultural-n3isf/

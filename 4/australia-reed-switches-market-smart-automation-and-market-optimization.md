@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-reed-switches-market-smart-automation-optimization-gpoac/

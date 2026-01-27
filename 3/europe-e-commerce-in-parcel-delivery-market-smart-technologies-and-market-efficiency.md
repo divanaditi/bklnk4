@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-e-commerce-parcel-delivery-market-smart-technologies-cn17f/

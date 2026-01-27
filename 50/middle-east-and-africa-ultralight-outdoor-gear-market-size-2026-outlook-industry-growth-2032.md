@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ultralight-outdoor-gear-market-zntlf/

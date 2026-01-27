@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-superalloy-blisk-market-ai-automation-utftf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-scan-head-market-high-growth-segments-tpibc/

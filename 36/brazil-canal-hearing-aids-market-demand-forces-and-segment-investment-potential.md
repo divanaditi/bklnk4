@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-canal-hearing-aids-market-demand-forces-segment-mwn5f/

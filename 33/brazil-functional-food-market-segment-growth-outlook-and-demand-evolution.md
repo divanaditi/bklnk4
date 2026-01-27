@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-functional-food-market-segment-growth-outlook-6voce/

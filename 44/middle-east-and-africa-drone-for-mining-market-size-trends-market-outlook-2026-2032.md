@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drone-mining-market-size-trends-bw9tc/

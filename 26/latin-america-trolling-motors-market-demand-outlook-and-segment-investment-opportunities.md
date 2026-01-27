@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-trolling-motors-market-demand-outlook-p0btc/

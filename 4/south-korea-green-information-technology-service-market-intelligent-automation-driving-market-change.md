@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-green-information-technology-service-fa4qc/

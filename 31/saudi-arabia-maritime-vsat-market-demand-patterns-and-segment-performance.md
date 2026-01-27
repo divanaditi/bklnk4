@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-maritime-vsat-market-demand-patterns-fdi3f/

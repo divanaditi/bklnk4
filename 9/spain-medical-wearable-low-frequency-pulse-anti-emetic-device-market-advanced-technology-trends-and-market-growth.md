@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-wearable-low-frequency-pulse-anti-emetic-3ipuf/

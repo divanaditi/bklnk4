@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-networking-cable-market-technology-innovation-mp09f/

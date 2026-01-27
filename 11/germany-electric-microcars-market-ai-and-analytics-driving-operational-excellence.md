@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electric-microcars-market-ai-analytics-driving-cpmkc/

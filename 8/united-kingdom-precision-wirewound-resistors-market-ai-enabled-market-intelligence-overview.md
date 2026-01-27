@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-precision-wirewound-resistors-market-t7kyf/

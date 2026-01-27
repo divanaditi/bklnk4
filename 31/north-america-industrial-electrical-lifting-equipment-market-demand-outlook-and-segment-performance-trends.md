@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-electrical-lifting-equipment-7ti6f/

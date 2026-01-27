@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-adhesives-diapers-pads-market-digital-transformation-qwgdf/

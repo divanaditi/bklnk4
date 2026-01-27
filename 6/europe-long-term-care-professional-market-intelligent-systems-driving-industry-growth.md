@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-long-term-care-professional-market-o3amf/

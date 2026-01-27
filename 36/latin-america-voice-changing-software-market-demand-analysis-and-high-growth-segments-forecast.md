@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-voice-changing-software-market-demand-hevef/

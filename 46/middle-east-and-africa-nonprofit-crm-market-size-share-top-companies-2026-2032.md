@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nonprofit-crm-market-size-share-wkidf/

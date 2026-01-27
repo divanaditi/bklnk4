@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-diamonds-diamond-wire-saws-professional-wshjf/

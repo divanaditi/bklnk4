@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-basketball-market-ai-powered-efficiency-vsrqf/

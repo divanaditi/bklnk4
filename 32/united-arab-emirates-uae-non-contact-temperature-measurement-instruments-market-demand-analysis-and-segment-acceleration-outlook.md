@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-non-contact-temperature-measurement-5lc7f/

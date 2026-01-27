@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-bromodocosane-cas-6938-66-5-market-technology-lu06c/

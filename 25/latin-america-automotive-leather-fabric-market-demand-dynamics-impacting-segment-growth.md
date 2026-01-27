@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-leatherfabric-market-demand-dynamics-27bcc/

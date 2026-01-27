@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cloud-based-zero-trust-network-access-market-njc1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-farm-agricultural-equipment-market-segment-fug0f/

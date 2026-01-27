@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-toll-collection-system-market-mv0jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-geothermal-heat-pump-ghp-systems-bpdnc/

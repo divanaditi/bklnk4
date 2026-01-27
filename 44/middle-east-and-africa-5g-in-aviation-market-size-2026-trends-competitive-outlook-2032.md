@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-5g-aviation-market-size-2026-trends-competitive-vg8zc/

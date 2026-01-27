@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dog-vest-market-role-ai-product-service-innovation-scalekind-jry6f/

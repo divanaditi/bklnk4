@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-data-catalog-professional-market-automation-afljf/

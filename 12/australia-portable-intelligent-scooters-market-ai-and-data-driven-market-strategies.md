@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-portable-intelligent-scooters-market-ai-6r9jf/

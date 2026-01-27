@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heavy-duty-mobile-base-market-f1udc/

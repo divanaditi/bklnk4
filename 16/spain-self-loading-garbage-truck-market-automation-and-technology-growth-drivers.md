@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-self-loading-garbage-truck-market-automation-akwmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-web-real-time-communication-market-demand-evolution-oimsf/

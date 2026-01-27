@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tooth-whitening-instrument-market-digital-izone/

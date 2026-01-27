@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-clip-applicator-market-segment-growth-outlook-jmowc/

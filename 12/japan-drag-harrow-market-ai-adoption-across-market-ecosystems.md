@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-drag-harrow-market-ai-adoption-across-ecosystems-axalw-group-2v7sf/

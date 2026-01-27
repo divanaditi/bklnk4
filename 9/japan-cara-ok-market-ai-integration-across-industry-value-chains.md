@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cara-ok-market-ai-integration-across-industry-neguf/

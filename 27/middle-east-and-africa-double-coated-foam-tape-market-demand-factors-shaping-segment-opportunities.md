@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-double-coated-foam-tape-market-slaif/

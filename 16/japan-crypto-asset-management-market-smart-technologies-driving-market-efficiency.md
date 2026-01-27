@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crypto-asset-management-market-smart-technologies-irfkf/

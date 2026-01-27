@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-plastic-fan-market-ai-technology-adoption-s18ff/

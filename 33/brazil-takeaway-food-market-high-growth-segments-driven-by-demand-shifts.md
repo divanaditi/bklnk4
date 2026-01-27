@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-takeaway-food-market-high-growth-segments-driven-vmn3e/

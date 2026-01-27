@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-octadecanol-market-automation-analytics-tu8rc/

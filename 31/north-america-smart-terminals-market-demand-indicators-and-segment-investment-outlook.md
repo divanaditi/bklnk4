@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-terminals-market-demand-indicators-pwrsf/

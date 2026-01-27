@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-robot-hands-market-digital-innovation-competitive-advantage-9ffcf/

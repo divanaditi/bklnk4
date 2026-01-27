@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-residential-cable-market-demand-drivers-segment-cwxff/

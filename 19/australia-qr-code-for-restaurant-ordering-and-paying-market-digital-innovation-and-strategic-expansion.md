@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-qr-code-restaurant-ordering-paying-market-digital-zc8xe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radiotherapy-simulators-market-demand-patterns-gcelc/

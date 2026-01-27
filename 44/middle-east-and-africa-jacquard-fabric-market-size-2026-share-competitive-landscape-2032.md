@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-jacquard-fabric-market-size-2026-share-zljpc/

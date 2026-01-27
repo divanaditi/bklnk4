@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-fluoro-4-methoxybenzonitrile-cas-94610-82-9-market-godqf/

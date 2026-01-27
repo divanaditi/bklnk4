@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-linear-detector-array-lda-market-demand-patterns-vqqkf/

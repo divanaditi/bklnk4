@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-iot-infrastructure-market-ai-automation-data-driven-ooltf/

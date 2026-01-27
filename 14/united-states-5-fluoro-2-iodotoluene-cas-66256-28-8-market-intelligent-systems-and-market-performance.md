@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-5-fluoro-2-iodotoluene-cas-66256-28-8-wuawc/

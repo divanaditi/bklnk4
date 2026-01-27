@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-pad-printing-machines-market-digital-innovation-awotc/

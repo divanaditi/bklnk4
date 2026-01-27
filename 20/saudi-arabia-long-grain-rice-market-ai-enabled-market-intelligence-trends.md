@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-long-grain-rice-market-ai-enabled-intelligence-mkqee/

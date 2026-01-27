@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ceramic-ware-market-demand-side-trends-segment-iglrf/

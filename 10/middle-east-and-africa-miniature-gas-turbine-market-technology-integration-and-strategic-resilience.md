@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-miniature-gas-turbine-market-technology-8uqqf/

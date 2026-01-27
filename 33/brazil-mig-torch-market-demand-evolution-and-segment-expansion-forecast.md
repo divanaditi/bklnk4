@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mig-torch-market-demand-evolution-segment-okqme/

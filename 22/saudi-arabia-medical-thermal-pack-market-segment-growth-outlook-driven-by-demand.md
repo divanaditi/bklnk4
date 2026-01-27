@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-medical-thermal-pack-market-segment-d34bf/

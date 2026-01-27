@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drying-curing-equipment-sales-market-demand-ew09e/

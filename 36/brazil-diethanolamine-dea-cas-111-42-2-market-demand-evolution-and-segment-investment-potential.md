@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diethanolamine-dea-cas-111-42-2-market-demand-wgc2e/

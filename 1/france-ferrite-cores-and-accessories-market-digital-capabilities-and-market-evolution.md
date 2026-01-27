@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ferrite-cores-accessories-market-digital-capabilities-2aeif/

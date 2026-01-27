@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vinyl-market-demand-analysis-segment-opportunity-j1vmf/

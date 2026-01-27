@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-radio-frequency-therapeutic-equipment-market-gqeaf/

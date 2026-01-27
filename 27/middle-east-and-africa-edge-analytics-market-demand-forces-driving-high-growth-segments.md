@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-edge-analytics-market-demand-forces-twq7f/

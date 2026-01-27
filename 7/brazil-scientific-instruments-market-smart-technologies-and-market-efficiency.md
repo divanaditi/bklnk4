@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-scientific-instruments-market-smart-technologies-2zeof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-fat-snacks-market-automation-technology-1cjfc/

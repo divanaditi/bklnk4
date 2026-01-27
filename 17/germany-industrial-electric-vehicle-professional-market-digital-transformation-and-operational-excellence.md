@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-industrial-electric-vehicle-professional-market-olnvf/

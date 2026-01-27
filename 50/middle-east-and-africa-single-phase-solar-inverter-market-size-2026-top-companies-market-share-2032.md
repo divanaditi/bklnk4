@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-single-phase-solar-inverter-market-zcsmf/

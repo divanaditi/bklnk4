@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-retail-finance-market-ai-enabled-intelligence-urqdf/

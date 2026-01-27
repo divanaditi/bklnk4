@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cmic-cas-35180-01-9-market-ai-adoption-across-ecosystems-ihqmf/

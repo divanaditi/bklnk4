@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-call-monitoring-software-professional-market-ai-driven-pyvtf/

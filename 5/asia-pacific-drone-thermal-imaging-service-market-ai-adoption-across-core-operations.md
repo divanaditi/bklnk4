@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-drone-thermal-imaging-service-market-ai-dztvf/

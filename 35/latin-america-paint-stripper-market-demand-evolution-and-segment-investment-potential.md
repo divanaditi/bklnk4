@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-paint-stripper-market-demand-evolution-gva7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-soldering-equipment-market-high-growth-disqc/

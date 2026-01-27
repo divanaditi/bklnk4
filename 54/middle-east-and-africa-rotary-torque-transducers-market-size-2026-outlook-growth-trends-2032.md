@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rotary-torque-transducers-market-1cxef/

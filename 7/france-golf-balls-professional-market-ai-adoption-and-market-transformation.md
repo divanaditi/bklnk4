@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-golf-balls-professional-market-ai-adoption-sscgf/

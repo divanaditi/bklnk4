@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-bath-chairs-elderly-market-ai-ckoff/

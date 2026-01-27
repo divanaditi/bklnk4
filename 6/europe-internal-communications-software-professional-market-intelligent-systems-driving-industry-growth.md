@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-internal-communications-software-mzpnf/

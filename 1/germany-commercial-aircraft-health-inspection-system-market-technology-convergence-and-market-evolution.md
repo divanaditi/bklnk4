@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-commercial-aircraft-health-inspection-taenf/

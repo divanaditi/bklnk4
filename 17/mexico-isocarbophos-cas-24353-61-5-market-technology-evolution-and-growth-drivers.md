@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-isocarbophos-cas-24353-61-5-market-technology-evolution-njgdc/

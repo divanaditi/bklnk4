@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-trade-surveillance-systems-professional-market-o6d3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vehicle-sensor-cable-market-demand-1svzf/

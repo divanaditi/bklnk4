@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-veress-needle-market-high-growth-segments-kebgc/

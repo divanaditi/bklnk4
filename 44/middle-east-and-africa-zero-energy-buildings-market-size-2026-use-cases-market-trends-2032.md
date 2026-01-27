@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-zero-energy-buildings-market-vu7ic/

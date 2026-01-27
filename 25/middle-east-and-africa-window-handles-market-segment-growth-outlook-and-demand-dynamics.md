@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-window-handles-market-segment-jr0vf/

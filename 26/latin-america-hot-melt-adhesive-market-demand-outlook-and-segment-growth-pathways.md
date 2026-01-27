@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hot-melt-adhesive-market-demand-g1m2c/

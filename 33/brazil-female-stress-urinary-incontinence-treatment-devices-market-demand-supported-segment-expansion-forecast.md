@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-female-stress-urinary-incontinence-treatment-2xute/

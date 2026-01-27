@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hot-cold-slush-machines-market-demand-trends-rwfjf/

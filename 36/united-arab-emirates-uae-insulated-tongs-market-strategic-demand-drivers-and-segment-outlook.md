@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-insulated-tongs-market-strategic-n38bf/

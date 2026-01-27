@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-stationary-pos-scanner-market-q7gnf/

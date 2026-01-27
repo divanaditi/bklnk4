@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-weapons-carriage-release-system-mfldf/

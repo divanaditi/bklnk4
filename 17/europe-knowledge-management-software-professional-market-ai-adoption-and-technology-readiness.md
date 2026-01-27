@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-knowledge-management-software-professional-x5qof/

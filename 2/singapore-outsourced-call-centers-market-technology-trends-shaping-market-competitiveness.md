@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-outsourced-call-centers-market-technology-2qwsc/

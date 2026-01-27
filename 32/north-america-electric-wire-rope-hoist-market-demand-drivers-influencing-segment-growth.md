@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electric-wire-rope-hoist-market-demand-drivers-vd6uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-geothermal-energy-market-demand-drivers-hawnf/

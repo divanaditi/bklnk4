@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-public-relations-software-market-technology-trends-gbaef/

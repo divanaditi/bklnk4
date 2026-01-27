@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bone-growth-stimulation-devices-jgvlf/

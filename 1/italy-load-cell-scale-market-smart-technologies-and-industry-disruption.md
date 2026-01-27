@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-load-cell-scale-market-smart-technologies-industry-cxa3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-rg-7774-market-technology-intelligence-4viuf/

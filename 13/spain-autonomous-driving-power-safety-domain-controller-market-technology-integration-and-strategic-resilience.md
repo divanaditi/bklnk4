@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-autonomous-driving-power-safety-domain-controller-jqdef/

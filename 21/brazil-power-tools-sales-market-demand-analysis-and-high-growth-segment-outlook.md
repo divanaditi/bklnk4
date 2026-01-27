@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-power-tools-sales-market-demand-analysis-high-growth-c8p6f/

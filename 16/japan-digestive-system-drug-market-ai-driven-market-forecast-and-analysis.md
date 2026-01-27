@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digestive-system-drug-market-ai-driven-forecast-6kqgf/

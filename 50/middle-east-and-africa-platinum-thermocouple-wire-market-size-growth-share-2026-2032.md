@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-platinum-thermocouple-wire-market-size-1yaff/

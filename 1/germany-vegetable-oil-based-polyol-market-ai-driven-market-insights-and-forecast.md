@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-vegetable-oil-based-polyol-market-ai-driven-w7uwf/

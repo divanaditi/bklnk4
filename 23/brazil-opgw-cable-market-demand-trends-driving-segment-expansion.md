@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-opgw-cable-market-demand-trends-driving-segment-tpe0f/

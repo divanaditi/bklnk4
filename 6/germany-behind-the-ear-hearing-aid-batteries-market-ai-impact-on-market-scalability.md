@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-behind-ear-hearing-aid-batteries-market-pteaf/

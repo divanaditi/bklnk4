@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-4-diethylaminosalicylaldehyde-cas-cw2cf/

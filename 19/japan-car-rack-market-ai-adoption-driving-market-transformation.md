@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-rack-market-ai-adoption-driving-transformation-valcf/

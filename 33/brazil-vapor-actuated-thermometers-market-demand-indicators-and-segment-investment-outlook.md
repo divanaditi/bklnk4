@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vapor-actuated-thermometers-market-demand-1jrfe/

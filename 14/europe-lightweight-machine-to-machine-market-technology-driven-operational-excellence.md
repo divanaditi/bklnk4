@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-lightweight-machine-to-machine-market-technology-driven-3oxdc/

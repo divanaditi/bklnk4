@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-r-trityl-glycidyl-ether-cas-65291-30-7-market-5o6xf/

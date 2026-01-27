@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-wind-turbine-gear-reducer-2sevf/

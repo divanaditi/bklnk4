@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-sodium-2-chloroethanesulfonate-monohydrate-esyxf/

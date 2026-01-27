@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-farm-software-management-7ci0c/

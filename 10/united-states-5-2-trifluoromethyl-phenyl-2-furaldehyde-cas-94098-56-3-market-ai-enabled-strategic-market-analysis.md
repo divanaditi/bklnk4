@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-5-2-trifluoromethylphenyl-2-furaldehyde-cas-d4huf/

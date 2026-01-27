@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-retail-banking-spending-market-segment-growth-17nof/

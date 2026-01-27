@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-commercial-table-linen-market-technology-adoption-bhaxf/

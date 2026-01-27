@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cytology-examination-market-demand-trends-segment-9fbsf/

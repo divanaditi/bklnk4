@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-temporary-partial-discharge-monitoring-system-8o19e/

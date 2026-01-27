@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-firefighting-robot-market-growth-hi5sc/

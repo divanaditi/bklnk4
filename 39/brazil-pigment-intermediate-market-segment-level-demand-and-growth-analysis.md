@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pigment-intermediate-market-segment-level-6ijsf/

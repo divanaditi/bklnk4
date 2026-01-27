@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-exploration-software-market-demand-landscape-jbhkf/

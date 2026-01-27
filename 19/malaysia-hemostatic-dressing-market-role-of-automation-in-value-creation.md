@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hemostatic-dressing-market-role-automation-idvtf/

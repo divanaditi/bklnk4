@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smoke-detector-professional-market-technology-re4jf/

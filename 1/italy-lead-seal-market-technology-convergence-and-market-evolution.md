@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-lead-seal-market-technology-convergence-vspgf/

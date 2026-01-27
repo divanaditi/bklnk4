@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-capacity-management-market-size-2026-mrxdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diethyl-2-acetylglutarate-cas-1501-06-0-market-swjuf/

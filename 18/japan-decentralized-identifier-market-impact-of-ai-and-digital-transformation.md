@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-decentralized-identifier-market-impact-ai-digital-lbw1f/

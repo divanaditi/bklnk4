@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-2-bromo-3-fluoropyridine-cas-40273-45-8-1fkhf/

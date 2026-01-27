@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-haptics-feedback-technology-market-ai-s8kwc/

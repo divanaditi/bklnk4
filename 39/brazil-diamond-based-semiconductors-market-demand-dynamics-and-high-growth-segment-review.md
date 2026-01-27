@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diamond-based-semiconductors-market-demand-hdfxf/

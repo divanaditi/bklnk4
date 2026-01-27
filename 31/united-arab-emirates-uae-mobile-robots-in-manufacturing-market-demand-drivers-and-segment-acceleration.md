@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-mobile-robots-manufacturing-dlb6f/

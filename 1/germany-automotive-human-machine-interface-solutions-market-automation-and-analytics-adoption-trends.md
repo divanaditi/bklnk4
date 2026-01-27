@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-human-machine-interface-solutions-ccgif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-navigation-satellite-systems-gnss-market-ebkpf/

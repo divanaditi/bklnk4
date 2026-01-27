@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-two-component-solvent-free-polyurethane-ync3f/

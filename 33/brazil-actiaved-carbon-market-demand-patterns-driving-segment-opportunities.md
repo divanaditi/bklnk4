@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-actiaved-carbon-market-demand-patterns-driving-zhoke/

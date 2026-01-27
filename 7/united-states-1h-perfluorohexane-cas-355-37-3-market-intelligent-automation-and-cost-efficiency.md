@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-1h-perfluorohexane-cas-355-37-3-market-zqp5f/

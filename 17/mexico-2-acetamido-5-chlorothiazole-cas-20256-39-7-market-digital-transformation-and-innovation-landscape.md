@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-acetamido-5-chlorothiazole-cas-ysrif/

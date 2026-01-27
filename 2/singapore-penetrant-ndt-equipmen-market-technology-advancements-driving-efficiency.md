@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-penetrant-ndt-equipmen-market-technology-0v3sc/

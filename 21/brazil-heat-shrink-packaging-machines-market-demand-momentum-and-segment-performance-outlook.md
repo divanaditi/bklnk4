@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heat-shrink-packaging-machines-market-demand-dac0f/

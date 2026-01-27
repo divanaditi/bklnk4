@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-industrial-electronics-professional-market-technology-k6myf/

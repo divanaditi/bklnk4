@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-web-based-cmms-software-market-ai-adoption-across-ady7e/

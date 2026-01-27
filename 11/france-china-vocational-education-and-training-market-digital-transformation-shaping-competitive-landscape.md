@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-china-vocational-education-training-market-bhvnc/

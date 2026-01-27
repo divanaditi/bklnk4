@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-home-self-storage-service-market-digital-transformation-diuvf/

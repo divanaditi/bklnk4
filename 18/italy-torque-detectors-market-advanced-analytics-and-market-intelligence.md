@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-torque-detectors-market-advanced-analytics-x7kaf/

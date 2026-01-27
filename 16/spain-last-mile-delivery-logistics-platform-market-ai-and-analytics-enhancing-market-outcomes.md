@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-last-mile-delivery-logistics-platform-market-hwzrf/

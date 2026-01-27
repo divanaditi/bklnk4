@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diamond-market-high-growth-segments-supported-01evf/

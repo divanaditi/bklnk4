@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-industrial-access-control-market-size-2026-zbl7f/

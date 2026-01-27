@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-dimensional-metrology-software-4ci4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bifacial-monocrystalline-n-type-battery-market-ojvwf/

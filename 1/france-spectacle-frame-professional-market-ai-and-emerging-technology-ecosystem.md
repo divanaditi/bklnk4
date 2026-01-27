@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-spectacle-frame-professional-market-ai-emerging-uwgwf/

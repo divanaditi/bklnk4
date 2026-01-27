@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-indoor-smokehouses-market-ai-automation-investment-zmrsf/

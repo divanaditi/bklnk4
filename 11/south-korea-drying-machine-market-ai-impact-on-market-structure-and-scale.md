@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-drying-machine-market-ai-impact-structure-scale-kfwvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-real-estate-loans-market-orddf/

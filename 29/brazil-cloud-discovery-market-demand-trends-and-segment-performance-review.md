@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-discovery-market-demand-trends-segment-blrpf/

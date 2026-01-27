@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-skeletal-dysplasia-market-technology-intelligence-svtcf/

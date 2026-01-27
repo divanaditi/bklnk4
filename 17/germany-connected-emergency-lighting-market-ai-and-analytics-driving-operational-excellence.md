@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-connected-emergency-lighting-market-ai-analytics-9c31f/

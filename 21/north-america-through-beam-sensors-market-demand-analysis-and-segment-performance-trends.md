@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-through-beam-sensors-market-demand-c07nf/

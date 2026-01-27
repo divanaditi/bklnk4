@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-pam-privileged-access-management-oyg5f/

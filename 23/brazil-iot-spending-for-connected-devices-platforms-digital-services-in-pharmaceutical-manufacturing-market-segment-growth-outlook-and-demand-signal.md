@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-iot-spending-connected-devices-platforms-digital-f7hgf/

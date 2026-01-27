@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-metal-structural-parts-consumer-electronics-dnotf/

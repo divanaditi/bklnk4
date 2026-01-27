@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-reels-spools-market-size-2026-rbdef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-nitrophenyl-isothiocyanate-cas-2131-61-5-aotzc/

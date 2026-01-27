@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multi-store-gift-card-market-osowf/

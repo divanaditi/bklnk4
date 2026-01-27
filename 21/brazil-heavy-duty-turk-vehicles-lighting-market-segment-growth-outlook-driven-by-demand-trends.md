@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heavy-duty-turk-vehicles-lighting-market-segment-dqulf/

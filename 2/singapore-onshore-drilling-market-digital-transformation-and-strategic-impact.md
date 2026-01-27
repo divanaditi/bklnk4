@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-onshore-drilling-market-digital-transformation-v4phc/

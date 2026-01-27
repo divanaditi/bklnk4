@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-wearable-robotic-exoskeleton-gqn0f/

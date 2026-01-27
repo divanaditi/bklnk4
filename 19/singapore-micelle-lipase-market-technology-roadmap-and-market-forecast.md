@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-micelle-lipase-market-technology-roadmap-forecast-yzpbe/

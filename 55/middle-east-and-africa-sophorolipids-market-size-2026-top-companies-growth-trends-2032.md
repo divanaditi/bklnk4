@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sophorolipids-market-size-2026-49t7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-rescue-blanket-market-ai-impact-scalability-frjcf/

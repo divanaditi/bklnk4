@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mechanical-device-diamond-market-digital-gss1c/

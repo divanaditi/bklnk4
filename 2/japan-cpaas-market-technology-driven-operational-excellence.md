@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cpaas-market-technology-driven-operational-excellence-7rmgc/

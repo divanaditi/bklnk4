@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-open-frame-industrial-power-supply-market-technology-led-dbbtf/

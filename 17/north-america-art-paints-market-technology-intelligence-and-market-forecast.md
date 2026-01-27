@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-art-paints-market-technology-kc3gc/

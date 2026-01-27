@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-diisopropyl-chlorophosphate-cas-2574-25-6-4324f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gear-reducer-motor-market-technology-91hhc/

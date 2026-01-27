@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wholesale-retail-services-certification-jmn2f/

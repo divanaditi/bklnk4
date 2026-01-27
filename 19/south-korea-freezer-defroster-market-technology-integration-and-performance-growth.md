@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-freezer-defroster-market-technology-integration-ri3pf/

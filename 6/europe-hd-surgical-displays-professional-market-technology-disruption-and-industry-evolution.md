@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-hd-surgical-displays-professional-market-technology-jfzuf/

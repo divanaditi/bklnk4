@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bio-based-charging-cable-market-digital-transformation-rui0f/

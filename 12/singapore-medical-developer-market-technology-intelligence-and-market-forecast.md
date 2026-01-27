@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medical-developer-market-technology-ysjlf/

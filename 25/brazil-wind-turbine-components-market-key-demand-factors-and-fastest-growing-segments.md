@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-turbine-components-market-key-demand-j5yhf/

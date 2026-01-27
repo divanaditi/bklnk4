@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hotel-channel-management-software-f7ppc/

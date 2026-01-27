@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spending-smbs-market-demand-dynamics-eelmf/

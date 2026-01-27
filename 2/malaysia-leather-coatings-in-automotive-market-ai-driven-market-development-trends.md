@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-leather-coatings-automotive-market-ai-driven-qjdnc/

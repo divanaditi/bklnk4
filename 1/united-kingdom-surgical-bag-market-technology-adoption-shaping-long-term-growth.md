@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-surgical-bag-market-technology-adoption-shaping-4xhff/

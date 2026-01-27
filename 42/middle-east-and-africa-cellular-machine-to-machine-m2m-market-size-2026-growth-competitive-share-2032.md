@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cellular-machine-m2m-market-xklof/

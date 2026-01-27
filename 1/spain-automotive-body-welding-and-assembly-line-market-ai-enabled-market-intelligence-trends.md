@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-body-welding-assembly-line-market-6rvcf/

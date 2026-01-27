@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rolling-ladders-market-demand-side-trends-segment-5g84f/

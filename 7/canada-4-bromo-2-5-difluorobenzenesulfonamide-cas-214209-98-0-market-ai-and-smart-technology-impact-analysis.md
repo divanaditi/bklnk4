@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-bromo-25-difluorobenzenesulfonamide-cas-214209-98-0-nsxhf/

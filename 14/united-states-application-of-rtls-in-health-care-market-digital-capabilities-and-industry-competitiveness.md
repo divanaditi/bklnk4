@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-application-rtls-health-care-market-bprpf/

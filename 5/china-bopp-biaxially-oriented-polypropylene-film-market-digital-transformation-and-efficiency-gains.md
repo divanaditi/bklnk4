@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bopp-biaxially-oriented-polypropylene-film-wt3vf/

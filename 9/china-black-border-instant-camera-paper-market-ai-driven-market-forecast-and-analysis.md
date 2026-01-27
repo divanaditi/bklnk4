@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-black-border-instant-camera-paper-market-abp4f/

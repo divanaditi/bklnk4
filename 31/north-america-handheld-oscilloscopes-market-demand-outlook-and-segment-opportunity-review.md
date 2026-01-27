@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-handheld-oscilloscopes-market-demand-outlook-22xaf/

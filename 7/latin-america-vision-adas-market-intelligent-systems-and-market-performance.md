@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vision-adas-market-intelligent-systems-oc4nf/

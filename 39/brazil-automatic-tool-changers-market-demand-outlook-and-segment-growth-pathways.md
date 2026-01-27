@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-tool-changers-market-demand-xqqpf/

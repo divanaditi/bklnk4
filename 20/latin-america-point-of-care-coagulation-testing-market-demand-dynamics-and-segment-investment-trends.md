@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-point-of-care-coagulation-testing-market-wwnhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-remote-asset-management-market-size-fpoff/

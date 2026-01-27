@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-fluoro-3-nitro-4-picoline-cas-19346-43-1-market-xhcuf/

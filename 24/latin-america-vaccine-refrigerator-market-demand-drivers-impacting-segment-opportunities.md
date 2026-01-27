@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vaccine-refrigerator-market-demand-drivers-l4coc/

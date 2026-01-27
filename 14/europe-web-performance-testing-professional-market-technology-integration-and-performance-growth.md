@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-web-performance-testing-professional-market-njatc/

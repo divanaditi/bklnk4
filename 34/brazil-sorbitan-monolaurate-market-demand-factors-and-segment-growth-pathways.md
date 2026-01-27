@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sorbitan-monolaurate-market-demand-l79nf/

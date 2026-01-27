@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-medical-imaging-information-market-gh13f/

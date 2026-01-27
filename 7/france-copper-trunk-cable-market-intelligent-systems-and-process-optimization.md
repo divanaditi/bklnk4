@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-copper-trunk-cable-market-intelligent-systems-7eglf/

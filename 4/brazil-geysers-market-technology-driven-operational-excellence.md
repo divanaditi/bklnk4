@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-geysers-market-technology-driven-operational-excellence-9za0f/

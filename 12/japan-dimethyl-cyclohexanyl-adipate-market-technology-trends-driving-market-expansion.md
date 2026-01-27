@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dimethyl-cyclohexanyl-adipate-market-technology-w5qrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-intelligent-small-household-appliance-market-pb2sf/

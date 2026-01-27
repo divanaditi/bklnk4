@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-elizabethan-collar-market-smart-gd4zc/

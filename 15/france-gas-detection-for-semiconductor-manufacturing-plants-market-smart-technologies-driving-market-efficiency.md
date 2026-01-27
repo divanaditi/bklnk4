@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-gas-detection-semiconductor-manufacturing-plants-dg6zf/

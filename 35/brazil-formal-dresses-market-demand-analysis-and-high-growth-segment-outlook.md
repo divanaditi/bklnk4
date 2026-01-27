@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-formal-dresses-market-demand-analysis-high-growth-bjtlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fridge-freezer-market-automation-digital-capabilities-cmhff/

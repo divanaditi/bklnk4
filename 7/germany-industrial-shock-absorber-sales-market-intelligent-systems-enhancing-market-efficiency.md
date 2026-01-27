@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-industrial-shock-absorber-sales-market-intelligent-qmakf/

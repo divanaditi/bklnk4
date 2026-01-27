@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-testing-inspection-certification-manufacturing-7nq4c/

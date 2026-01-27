@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gnss-chips-modules-market-outlook-6qg4f/

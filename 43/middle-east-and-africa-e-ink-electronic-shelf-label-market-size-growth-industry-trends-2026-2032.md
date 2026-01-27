@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-e-ink-electronic-shelf-label-0u44c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-green-roofing-market-ai-technology-ecujc/

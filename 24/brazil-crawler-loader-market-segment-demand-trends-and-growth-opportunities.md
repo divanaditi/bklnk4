@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-crawler-loader-market-segment-demand-trends-wzusf/

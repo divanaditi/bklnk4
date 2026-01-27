@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-field-programmable-gate-array-fpga-market-segment-jykbf/

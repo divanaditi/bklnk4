@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-visualizing-anesthesia-workstation-market-bqxif/

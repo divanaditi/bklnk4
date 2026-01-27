@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-receipt-paper-rolls-market-demand-dynamics-cvrhc/

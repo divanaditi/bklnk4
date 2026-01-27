@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-smart-shelf-sales-management-software-4vocf/

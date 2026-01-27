@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-oil-gas-project-management-software-j012c/

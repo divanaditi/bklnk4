@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rfid-wristband-market-demand-dynamics-oc0uf/

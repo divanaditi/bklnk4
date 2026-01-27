@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-self-directed-investors-implications-wealth-thwrc/

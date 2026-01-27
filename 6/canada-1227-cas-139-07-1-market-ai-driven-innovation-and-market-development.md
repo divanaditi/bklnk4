@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1227-cas-139-07-1-market-ai-driven-pisof/

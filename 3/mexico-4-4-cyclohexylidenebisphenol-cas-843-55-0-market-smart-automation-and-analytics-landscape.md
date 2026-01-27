@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-44-cyclohexylidenebisphenol-cas-843-55-0-market-smart-lv7af/

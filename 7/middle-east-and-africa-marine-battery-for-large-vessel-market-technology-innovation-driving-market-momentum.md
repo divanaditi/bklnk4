@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-marine-battery-large-vessel-market-technology-dh3wf/

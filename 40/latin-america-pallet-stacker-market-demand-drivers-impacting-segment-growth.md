@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pallet-stacker-market-demand-drivers-8zoqf/

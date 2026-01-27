@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-li-ion-battery-hevs-market-demand-forces-9icje/

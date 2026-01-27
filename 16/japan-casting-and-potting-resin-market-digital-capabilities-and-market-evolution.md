@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-casting-potting-resin-market-digital-capabilities-ownyf/

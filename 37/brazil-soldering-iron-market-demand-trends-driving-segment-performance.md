@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-soldering-iron-market-demand-trends-driving-segment-t6oee/

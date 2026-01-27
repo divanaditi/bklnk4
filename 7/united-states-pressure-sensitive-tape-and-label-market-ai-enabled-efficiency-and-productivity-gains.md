@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-pressure-sensitive-tape-label-market-m3ybf/

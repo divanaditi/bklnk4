@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hospital-ot-x-ray-cathode-room-doors-uma3f/

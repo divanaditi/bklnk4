@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-ms-resin-market-intelligent-automation-axl0f/

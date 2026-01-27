@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tactical-communication-protective-z2vvc/

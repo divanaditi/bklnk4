@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-emotion-analytics-software-market-size-outlook-ykecf/

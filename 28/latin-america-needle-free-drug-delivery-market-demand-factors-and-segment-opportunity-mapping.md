@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-needle-free-drug-delivery-market-opysc/

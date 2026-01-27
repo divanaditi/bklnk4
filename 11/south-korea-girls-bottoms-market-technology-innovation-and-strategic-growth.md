@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-girls-bottoms-market-technology-innovation-5xurf/

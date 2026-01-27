@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-ceramic-tableware-commercial-use-pr93f/

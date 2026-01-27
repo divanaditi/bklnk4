@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-100-cotton-spunlace-nonwoven-fabric-xtlcf/

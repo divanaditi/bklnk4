@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-examination-camera-market-demand-patterns-f34bf/

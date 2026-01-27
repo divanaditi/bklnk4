@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hvac-humidity-sensors-market-demand-dynamics-lleif/

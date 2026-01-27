@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-chloro-2-fluorophenylacetonitrile-cas-75279-53-7-omzrf/

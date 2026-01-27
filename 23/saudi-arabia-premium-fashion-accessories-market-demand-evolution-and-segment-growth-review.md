@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-premium-fashion-accessories-market-demand-9ozwf/

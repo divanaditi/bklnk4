@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-securitization-non-performing-assets-market-technology-led-mn6df/

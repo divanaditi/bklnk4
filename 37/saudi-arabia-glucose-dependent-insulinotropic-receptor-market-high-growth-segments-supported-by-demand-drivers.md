@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-glucose-dependent-insulinotropic-receptor-zq09f/

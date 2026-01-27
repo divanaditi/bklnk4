@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-contactless-laser-triangulation-sensor-market-ai-powered-xpsff/

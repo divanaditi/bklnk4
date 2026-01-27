@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thiophene-2-ethylamine-cas-30433-fkmsf/

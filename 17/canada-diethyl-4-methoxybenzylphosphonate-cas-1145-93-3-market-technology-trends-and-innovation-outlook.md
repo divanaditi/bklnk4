@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diethyl-4-methoxybenzylphosphonate-cas-z8hpc/

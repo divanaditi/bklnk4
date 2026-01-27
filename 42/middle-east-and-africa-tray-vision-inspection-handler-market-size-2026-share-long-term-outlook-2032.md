@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tray-vision-inspection-handler-szfyf/

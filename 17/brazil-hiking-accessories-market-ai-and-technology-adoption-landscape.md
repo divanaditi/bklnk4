@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hiking-accessories-market-ai-technology-adoption-rfwuf/

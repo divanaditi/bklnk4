@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-connected-devices-market-growth-drivers-nn0sc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-consumer-electronics-television-handheld-devices-5j7tf/

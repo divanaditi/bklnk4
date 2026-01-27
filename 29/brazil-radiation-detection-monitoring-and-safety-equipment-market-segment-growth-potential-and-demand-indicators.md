@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radiation-detection-monitoring-safety-equipment-t8vkf/

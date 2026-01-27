@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-protocol-conversion-gateway-market-demand-evolution-bw45f/

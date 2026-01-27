@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-emergency-evacuation-chair-tyq6f/

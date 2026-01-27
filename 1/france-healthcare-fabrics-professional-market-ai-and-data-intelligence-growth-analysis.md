@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-healthcare-fabrics-professional-market-ai-data-ukcif/

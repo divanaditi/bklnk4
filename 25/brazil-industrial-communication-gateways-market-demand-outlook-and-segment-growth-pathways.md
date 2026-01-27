@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-communication-gateways-market-demand-cpfuf/

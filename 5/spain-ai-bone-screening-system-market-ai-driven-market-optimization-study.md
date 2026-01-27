@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-bone-screening-system-market-ai-driven-optimization-bkxsf/

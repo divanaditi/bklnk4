@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-neodymium-versatate-market-demand-va6if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-animal-mri-machine-market-digital-innovation-buarf/

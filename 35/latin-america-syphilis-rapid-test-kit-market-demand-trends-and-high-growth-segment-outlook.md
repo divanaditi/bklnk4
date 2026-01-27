@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-syphilis-rapid-test-kit-market-9zphf/

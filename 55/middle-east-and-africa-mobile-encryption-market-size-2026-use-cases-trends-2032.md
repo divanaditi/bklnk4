@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mobile-encryption-market-size-u1gif/

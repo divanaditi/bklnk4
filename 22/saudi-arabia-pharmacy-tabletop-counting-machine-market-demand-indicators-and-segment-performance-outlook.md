@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-pharmacy-tabletop-counting-machine-market-3ew9f/

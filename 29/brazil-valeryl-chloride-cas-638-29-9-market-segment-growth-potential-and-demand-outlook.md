@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-valeryl-chloride-cas-638-29-9-market-segment-ir7qf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hadoop-big-data-analysis-market-demand-factors-um3sf/

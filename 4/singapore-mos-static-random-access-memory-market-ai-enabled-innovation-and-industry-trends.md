@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mos-static-random-access-memory-market-9c4ic/

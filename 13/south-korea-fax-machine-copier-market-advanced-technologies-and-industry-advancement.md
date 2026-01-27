@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fax-machine-copier-market-advanced-75nif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-fingerprint-recognition-door-lock-market-sjxvf/

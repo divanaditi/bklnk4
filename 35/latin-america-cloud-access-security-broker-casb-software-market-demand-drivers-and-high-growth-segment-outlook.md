@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cloud-access-security-broker-casb-software-cjt4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-automotive-dealer-software-0rhyf/

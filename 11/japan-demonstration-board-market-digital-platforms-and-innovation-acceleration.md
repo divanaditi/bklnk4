@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-demonstration-board-market-digital-platforms-r3j3f/

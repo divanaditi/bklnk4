@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-minimally-invasive-surgical-instrument-market-demand-side-dmlkc/

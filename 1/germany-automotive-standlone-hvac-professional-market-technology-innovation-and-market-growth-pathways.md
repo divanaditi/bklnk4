@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-standlone-hvac-professional-market-technology-zspgf/

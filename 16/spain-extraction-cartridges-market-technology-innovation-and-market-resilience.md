@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-extraction-cartridges-market-technology-innovation-lbnif/

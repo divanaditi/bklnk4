@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-procurement-management-software-bv9sf/

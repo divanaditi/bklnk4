@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-autologous-platelet-rich-plasma-prp-xhbpf/

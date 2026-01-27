@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1h-indazole-4-carboxylic-acid-cas-677306-38-6-ynoec/

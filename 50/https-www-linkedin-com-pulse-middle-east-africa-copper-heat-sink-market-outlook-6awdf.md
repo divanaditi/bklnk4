@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-copper-heat-sink-market-outlook-6awdf/

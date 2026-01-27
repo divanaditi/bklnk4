@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-magnetic-rotary-sensors-market-cloud-ai-digital-fznrf/

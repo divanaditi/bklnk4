@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automated-radiosynthesis-modules-market-bu8vf/

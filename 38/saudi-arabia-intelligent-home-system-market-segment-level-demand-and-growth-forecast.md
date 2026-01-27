@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-intelligent-home-system-market-segment-level-eyyzc/

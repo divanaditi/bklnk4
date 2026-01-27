@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-impact-pressure-sensors-market-technology-integration-nrgue/

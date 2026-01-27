@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-split-type-air-conditioner-market-demand-rax6f/

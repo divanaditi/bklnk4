@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-tween-20-cas-9005-64-5-market-role-ai-operational-4ugjf/

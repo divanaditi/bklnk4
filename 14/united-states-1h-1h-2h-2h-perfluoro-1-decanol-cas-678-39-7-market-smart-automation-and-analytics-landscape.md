@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-1h1h2h2h-perfluoro-1-decanol-cas-678-39-7-p3b8c/

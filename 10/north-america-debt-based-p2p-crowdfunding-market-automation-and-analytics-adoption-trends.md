@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-debt-based-p2p-crowdfunding-market-automation-5ndhf/

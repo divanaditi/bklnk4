@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-green-tires-market-size-2026-6cvff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-premise-equipment-monitoring-cloud-7n3pf/

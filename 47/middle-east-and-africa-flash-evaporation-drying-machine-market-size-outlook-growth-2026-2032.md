@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flash-evaporation-drying-machine-eshkf/

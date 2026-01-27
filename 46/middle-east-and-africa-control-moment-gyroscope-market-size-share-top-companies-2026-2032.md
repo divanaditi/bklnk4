@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-control-moment-gyroscope-market-size-gnc0f/

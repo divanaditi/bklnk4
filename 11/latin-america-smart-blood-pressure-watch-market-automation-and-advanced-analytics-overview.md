@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-blood-pressure-watch-market-automation-zrusc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-professional-market-smart-technologies-industry-g2pff/

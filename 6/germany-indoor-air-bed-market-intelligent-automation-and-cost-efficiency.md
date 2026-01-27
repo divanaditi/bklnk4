@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-indoor-air-bed-market-intelligent-y3abf/

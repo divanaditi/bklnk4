@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-batch-coding-machines-market-demand-drivers-emerging-ne1nf/

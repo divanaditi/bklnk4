@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-weighing-inspection-equipment-market-d9ihf/

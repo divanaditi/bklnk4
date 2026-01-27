@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-artificial-intelligence-ai-speakers-market-b099f/

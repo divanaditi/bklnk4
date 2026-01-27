@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-l-mandelic-acid-ethyl-ester-cas-13704-09-1-market-81elc/

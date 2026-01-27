@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-electric-power-system-professional-market-9fctf/

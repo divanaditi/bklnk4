@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-grid-scale-energy-storage-systems-market-ai-emerging-1jxvf/

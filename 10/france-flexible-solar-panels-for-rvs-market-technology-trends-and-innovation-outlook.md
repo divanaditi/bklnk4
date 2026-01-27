@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-flexible-solar-panels-rvs-market-technology-trends-t4haf/

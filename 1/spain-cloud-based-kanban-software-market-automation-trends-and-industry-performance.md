@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cloud-based-kanban-software-market-automation-np4df/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-queue-management-system-market-size-zbluf/

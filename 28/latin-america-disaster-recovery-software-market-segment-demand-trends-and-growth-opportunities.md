@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-disaster-recovery-software-market-segment-n3w5c/

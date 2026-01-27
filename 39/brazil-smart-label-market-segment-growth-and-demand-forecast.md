@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-label-market-segment-growth-demand-forecast-yqshf/

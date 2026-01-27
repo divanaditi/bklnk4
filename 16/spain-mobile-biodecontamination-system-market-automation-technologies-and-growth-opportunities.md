@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mobile-biodecontamination-system-market-automation-npwjf/

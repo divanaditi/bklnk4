@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wheelchair-accessible-vans-market-segment-growth-j61ff/

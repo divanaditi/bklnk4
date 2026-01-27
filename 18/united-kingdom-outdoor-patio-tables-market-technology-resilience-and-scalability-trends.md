@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-outdoor-patio-tables-market-technology-resilience-v3m4f/

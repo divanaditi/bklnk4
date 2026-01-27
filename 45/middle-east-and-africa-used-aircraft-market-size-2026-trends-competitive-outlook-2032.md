@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-used-aircraft-market-size-2026-dfcoc/

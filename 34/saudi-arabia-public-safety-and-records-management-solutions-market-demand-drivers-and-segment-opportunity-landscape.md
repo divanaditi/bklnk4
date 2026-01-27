@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-public-safety-records-management-solutions-in1qf/

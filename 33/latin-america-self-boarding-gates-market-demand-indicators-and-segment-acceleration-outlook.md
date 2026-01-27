@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-self-boarding-gates-market-demand-indicators-6oswe/

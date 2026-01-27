@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-driving-gloves-market-demand-drivers-qxxqc/

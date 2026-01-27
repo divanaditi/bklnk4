@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-ac-ceiling-fans-market-demand-patterns-tphff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hammock-market-ai-enabled-strategic-analysis-stratexm-labs-ztwvf/

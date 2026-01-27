@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-industrial-fastener-seal-market-8hxjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-supply-chain-blockchain-automotive-market-namjf/

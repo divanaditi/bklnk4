@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gifting-market-ai-adoption-transformation-onkpf/

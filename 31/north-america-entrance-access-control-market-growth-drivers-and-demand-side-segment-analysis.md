@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-entrance-access-control-market-growth-xnlyf/

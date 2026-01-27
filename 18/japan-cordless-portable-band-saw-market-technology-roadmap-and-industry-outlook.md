@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cordless-portable-band-saw-market-technology-r3rkf/

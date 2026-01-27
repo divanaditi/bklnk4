@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-healthcare-barcode-scanners-market-7fq7f/

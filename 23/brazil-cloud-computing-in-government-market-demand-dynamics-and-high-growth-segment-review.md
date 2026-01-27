@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-computing-government-market-demand-qc6jf/

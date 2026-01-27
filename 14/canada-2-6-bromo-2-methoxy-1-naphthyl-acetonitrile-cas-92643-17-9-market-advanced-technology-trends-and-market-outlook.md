@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-6-bromo-2-methoxy-1-naphthylacetonitrile-9ux5c/

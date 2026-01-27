@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fast-connector-market-demand-indicators-pzjuf/

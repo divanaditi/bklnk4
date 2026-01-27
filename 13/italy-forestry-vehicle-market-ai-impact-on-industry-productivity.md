@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-forestry-vehicle-market-ai-impact-industry-bbbnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-kinetic-tiles-market-digital-ecosystem-innovation-ev77c/

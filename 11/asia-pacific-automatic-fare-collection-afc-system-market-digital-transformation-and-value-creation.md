@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-automatic-fare-collection-afc-system-getmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-self-propelled-agriculture-sprayer-bbs4f/

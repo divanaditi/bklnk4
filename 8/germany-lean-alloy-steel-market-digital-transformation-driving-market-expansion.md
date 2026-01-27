@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lean-alloy-steel-market-digital-transformation-ztjof/

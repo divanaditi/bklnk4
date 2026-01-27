@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cordless-phone-market-segment-growth-vyh7c/

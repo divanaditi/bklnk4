@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rugged-smartphones-market-demand-drivers-2nbjf/

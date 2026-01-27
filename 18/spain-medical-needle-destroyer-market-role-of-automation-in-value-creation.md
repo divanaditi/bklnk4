@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-needle-destroyer-market-role-automation-a0kbf/

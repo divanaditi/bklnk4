@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-usb-type-c-market-demand-evolution-segment-btfif/

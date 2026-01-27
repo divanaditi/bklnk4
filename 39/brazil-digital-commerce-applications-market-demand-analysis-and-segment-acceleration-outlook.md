@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-commerce-applications-market-demand-analysis-nqcwf/

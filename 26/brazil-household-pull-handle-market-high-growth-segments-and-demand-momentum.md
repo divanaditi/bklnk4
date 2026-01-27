@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-household-pull-handle-market-high-growth-segments-roljc/

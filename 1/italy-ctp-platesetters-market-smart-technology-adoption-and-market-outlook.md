@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-ctp-platesetters-market-smart-technology-adoption-0zlwf/

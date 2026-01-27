@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermoelectric-generator-teg-modules-market-high-growth-qwv1f/

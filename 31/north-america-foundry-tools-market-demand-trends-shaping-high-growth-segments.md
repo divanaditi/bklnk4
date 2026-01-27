@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-foundry-tools-market-demand-trends-shaping-ucsqf/

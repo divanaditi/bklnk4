@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-marine-gps-devices-market-ai-trends-shaping-6gxmf/

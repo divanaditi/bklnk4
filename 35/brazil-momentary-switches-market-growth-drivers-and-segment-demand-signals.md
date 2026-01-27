@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-momentary-switches-market-growth-drivers-segment-sqtrf/

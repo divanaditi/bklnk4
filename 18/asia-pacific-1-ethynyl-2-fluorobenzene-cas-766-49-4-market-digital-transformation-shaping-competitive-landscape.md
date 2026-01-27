@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-1-ethynyl-2-fluorobenzene-cas-766-49-4-market-safaf/

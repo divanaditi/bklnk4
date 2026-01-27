@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chignon-market-technology-evolution-strategic-ueqef/

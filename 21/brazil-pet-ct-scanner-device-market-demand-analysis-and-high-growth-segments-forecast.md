@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pet-ct-scanner-device-market-demand-analysis-7ctaf/

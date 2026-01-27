@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aircraft-leasing-market-segment-growth-dt4ff/

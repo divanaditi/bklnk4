@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-ip-management-consulting-service-s1cnc/

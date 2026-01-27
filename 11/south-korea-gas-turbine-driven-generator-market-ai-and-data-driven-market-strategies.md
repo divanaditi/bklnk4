@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gas-turbine-driven-generator-market-ai-n3inf/

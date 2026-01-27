@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-board-management-software-market-demand-3z9gf/

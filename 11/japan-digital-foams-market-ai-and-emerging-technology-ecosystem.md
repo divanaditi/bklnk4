@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-foams-market-ai-emerging-technology-ecosystem-3runf/

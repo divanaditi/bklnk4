@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-covid-19-smart-card-transportation-market-digital-dghnf/

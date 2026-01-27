@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-esim-market-demand-indicators-segment-growth-e3h7e/

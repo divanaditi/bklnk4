@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-chloro-2-fluoro-6-trifluoromethylbenzaldehyde-vexuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carrier-tape-cover-market-size-adr6f/

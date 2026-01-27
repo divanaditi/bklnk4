@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-real-estate-property-software-market-4v76e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-high-speed-metal-foil-slitting-machine-owssc/

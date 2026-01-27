@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-ground-mounted-systems-market-smart-automation-dwwgf/

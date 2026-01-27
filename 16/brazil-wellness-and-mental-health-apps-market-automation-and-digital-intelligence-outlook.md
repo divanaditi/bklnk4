@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wellness-mental-health-apps-market-automation-2ncjf/

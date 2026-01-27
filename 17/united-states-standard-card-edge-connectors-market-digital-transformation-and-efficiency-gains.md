@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-standard-card-edge-connectors-market-digital-w4lqc/

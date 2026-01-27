@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-pos-systems-software-market-technology-tsemf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-matrix-ir-sensor-market-0fwsf/

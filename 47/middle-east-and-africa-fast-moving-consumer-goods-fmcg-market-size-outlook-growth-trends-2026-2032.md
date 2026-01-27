@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fast-moving-consumer-goods-jb86f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-push-to-talk-over-cellular-service-market-d3zwf/

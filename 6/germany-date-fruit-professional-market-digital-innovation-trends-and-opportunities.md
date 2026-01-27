@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-date-fruit-professional-market-digital-pmsef/

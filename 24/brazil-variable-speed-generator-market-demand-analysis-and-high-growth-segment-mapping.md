@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-variable-speed-generator-market-demand-analysis-high-growth-38r4f/

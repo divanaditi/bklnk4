@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wired-connection-interface-market-gdanf/

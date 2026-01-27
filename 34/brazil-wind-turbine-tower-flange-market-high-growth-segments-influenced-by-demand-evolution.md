@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-turbine-tower-flange-market-high-growth-segments-meq3f/

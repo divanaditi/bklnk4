@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-emergency-beacon-transmitter-c4lof/

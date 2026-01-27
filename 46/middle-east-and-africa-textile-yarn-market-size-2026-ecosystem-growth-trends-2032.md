@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-textile-yarn-market-size-2026-ecosystem-jtbaf/

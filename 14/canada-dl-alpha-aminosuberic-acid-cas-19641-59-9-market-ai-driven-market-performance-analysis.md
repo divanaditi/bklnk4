@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dl-alpha-aminosuberic-acid-cas-19641-59-9-market-yuk4c/

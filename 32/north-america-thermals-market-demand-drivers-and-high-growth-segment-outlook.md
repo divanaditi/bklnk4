@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermals-market-demand-drivers-xaisf/

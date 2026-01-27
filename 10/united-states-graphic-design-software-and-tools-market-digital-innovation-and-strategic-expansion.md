@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-graphic-design-software-tools-market-fm7mf/

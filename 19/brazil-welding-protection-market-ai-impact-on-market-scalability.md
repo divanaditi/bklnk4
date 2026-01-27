@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-welding-protection-market-ai-impact-scalability-srsje/

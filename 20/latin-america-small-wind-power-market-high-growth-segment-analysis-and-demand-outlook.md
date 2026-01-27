@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-small-wind-power-market-high-growth-mlrof/

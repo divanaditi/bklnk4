@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-pcie-clock-generator-ic-market-qfpqf/

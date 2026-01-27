@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-surgery-light-bed-tower-market-technology-integration-sj9gf/

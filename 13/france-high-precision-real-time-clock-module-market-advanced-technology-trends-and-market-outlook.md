@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-precision-real-time-clock-module-market-b6e8f/

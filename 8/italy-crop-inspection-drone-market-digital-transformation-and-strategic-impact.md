@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-crop-inspection-drone-market-digital-transformation-soe7f/

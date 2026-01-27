@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mobile-nursing-information-management-system-us26f/

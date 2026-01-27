@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-touring-sup-market-segment-growth-potential-mcf8f/

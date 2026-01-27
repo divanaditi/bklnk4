@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-gate-valve-market-growth-drivers-segment-uld3f/

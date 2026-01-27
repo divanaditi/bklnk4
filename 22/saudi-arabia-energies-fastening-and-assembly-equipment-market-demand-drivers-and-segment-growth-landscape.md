@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-energies-fastening-assembly-equipment-t1xzf/

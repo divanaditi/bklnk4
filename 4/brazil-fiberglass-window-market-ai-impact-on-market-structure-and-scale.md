@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fiberglass-window-market-ai-impact-structure-pyytf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transvaginal-endoscopy-market-9dlvc/

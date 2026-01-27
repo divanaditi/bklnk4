@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-cardioverter-defibrillators-yja0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-diode-package-test-system-market-ai-adoption-qzhwf/

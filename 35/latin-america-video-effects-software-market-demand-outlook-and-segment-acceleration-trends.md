@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-video-effects-software-market-demand-2nxwf/

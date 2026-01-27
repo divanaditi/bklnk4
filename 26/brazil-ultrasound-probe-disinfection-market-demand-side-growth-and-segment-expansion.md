@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultrasound-probe-disinfection-market-demand-side-0ficc/

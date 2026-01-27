@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-supply-chain-analytics-market-pr7tf/

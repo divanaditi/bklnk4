@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nmc-market-demand-momentum-segment-rrsdf/

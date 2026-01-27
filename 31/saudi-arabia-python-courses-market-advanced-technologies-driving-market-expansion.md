@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-python-courses-market-advanced-technologies-grq2f/

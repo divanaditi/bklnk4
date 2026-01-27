@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-communication-aids-c0pec/

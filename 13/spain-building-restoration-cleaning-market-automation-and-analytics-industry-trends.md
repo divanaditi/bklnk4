@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-building-restoration-cleaning-market-automation-4pjzf/

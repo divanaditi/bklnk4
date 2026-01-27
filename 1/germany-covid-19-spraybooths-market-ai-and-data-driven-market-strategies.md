@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-covid-19-spraybooths-market-ai-data-driven-strategies-lkoaf/

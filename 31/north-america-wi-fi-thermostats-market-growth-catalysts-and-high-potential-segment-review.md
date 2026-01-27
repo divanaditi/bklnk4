@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wi-fi-thermostats-market-growth-catalysts-gwymf/

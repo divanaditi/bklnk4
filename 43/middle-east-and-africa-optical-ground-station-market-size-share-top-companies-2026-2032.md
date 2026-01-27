@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-optical-ground-station-market-w2vtf/

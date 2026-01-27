@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-frequency-electric-knifes-market-demand-lf15f/

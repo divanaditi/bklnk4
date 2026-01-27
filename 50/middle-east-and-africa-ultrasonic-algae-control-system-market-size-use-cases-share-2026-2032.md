@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ultrasonic-algae-control-system-b5pgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-optical-rotary-joints-slip-rings-market-d8occ/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vehicle-intelligence-system-market-segment-level-au5zf/

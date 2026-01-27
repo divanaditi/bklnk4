@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-motorsports-professional-market-digital-capabilities-nwsyf/

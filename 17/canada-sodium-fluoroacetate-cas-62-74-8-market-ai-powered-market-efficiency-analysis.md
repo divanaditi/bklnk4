@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-sodium-fluoroacetate-cas-62-74-8-market-ai5fc/

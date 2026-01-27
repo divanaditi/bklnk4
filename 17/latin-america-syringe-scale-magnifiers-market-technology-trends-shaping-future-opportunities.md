@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-syringe-scale-magnifiers-market-technology-f67mf/

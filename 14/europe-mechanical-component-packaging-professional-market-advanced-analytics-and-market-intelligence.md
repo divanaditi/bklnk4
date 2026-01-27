@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mechanical-component-packaging-professional-market-3my6c/

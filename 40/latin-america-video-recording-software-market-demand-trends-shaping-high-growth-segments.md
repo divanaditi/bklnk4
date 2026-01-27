@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-video-recording-software-market-demand-6yb1f/

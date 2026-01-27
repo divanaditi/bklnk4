@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-water-pumps-market-demand-evolution-6nctf/

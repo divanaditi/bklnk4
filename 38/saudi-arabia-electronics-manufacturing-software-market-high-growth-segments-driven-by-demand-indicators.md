@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-electronics-manufacturing-software-wnq5c/

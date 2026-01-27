@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dynamic-random-access-memory-dram-xfqfe/

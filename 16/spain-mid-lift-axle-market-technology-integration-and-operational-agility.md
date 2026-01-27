@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mid-lift-axle-market-technology-integration-1myzf/

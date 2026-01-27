@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-city-platforms-market-size-i6eff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-heavy-commercial-vehicle-market-digital-o7saf/

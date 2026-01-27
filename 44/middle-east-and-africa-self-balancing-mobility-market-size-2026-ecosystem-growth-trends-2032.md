@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-self-balancing-mobility-market-size-j08qc/

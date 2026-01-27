@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heterogeneous-mobile-processing-computing-mlqxf/

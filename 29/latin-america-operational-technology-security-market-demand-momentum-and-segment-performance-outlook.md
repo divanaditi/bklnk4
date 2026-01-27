@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-operational-technology-security-market-h7zxc/

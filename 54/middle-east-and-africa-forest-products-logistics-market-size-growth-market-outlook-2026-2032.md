@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-forest-products-logistics-a21sf/

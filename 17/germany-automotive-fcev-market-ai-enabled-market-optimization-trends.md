@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-fcev-market-ai-enabled-optimization-wvqif/

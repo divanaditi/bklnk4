@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-handwriting-pens-market-high-growth-segments-xhxnf/

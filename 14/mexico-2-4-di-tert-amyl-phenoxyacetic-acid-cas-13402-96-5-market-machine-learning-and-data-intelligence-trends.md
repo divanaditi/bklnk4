@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-ditert-amylphenoxyacetic-acid-cas-13402-96-5-efgxc/

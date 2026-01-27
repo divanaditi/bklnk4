@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-swimming-gear-market-demand-trends-high-growth-p7sjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ship-anchor-market-demand-drivers-pzzuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-drill-collars-market-segment-growth-demand-side-sw4pf/

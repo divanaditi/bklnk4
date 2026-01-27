@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-household-electric-wheelchair-market-ai-2on9c/

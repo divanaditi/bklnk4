@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-artificial-playground-acr5e/

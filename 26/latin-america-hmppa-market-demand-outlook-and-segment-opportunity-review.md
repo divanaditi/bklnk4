@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hmppa-market-demand-outlook-segment-9sr7c/

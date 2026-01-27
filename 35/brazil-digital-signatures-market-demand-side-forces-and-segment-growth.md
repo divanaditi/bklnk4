@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-signatures-market-demand-side-forces-kkmof/

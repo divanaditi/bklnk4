@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-drainable-housewrap-market-ai-smart-technologies-dxxpf/

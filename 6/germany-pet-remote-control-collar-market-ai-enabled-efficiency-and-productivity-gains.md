@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-pet-remote-control-collar-market-ai-enabled-xv68f/

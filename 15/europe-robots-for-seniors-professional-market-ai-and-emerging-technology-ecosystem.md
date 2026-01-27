@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-robots-seniors-professional-market-ai-emerging-pilff/

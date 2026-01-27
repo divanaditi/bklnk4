@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-data-protection-market-size-0zk4f/

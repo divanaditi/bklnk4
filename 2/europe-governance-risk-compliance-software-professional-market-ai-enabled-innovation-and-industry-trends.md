@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-governance-risk-compliance-software-professional-f9pff/

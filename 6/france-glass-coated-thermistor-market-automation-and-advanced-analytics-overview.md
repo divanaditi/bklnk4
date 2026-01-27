@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-glass-coated-thermistor-market-automation-fthgf/

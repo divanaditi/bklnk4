@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-magnet-rotor-assemblies-market-gud1f/

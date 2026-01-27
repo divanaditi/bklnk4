@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-blood-vessel-sealing-materials-market-ai-enabled-innovation-9lb9f/

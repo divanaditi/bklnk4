@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-environmental-data-loggers-market-fa2ef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electric-vehicle-telematic-market-demand-drivers-0wadf/

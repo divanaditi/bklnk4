@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-pharmaceutical-collodion-market-technology-kkmff/

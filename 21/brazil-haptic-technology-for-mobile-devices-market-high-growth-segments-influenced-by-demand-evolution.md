@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-haptic-technology-mobile-devices-market-high-growth-48zkf/

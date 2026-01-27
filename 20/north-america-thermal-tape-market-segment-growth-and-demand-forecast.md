@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermal-tape-market-segment-growth-demand-se6yf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-video-streaming-software-professional-market-ugnrc/

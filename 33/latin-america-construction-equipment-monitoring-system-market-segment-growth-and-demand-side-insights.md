@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-construction-equipment-monitoring-system-v07ke/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-kevlar-polyamide-market-ai-adoption-transformation-pqzpe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-decorative-wall-sculpture-market-digital-a7onf/

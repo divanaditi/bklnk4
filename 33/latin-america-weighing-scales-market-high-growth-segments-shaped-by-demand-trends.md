@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-weighing-scales-market-high-growth-segments-lj1ye/

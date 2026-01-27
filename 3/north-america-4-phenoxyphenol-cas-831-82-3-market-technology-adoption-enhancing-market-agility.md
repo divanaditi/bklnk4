@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-4-phenoxyphenol-cas-831-82-3-market-technology-mn1vf/

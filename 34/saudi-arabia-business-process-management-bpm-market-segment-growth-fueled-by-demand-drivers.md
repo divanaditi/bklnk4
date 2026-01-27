@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-business-process-management-bpm-market-segment-gc5zf/

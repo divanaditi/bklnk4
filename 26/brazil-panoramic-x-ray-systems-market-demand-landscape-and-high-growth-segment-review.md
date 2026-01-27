@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-panoramic-x-ray-systems-market-demand-landscape-we2sc/

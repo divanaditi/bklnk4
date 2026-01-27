@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-geo-satellite-market-segment-growth-6iwpf/

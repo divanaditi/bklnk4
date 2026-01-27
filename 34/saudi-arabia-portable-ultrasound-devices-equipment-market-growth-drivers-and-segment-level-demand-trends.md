@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-portable-ultrasound-devices-equipment-xa3sf/

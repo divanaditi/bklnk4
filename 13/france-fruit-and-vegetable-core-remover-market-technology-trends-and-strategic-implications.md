@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fruit-vegetable-core-remover-market-technology-hxref/

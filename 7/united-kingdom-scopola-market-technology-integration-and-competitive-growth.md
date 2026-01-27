@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-scopola-market-technology-integration-qwicf/

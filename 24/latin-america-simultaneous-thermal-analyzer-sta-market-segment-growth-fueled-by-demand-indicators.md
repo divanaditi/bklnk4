@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-simultaneous-thermal-analyzer-8zwoc/

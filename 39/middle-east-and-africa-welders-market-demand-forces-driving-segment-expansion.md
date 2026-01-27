@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-welders-market-demand-forces-joikf/

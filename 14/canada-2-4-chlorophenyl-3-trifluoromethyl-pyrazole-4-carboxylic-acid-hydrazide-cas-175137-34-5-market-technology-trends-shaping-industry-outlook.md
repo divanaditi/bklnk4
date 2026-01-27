@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-4-chlorophenyl-3-trifluoromethylpyrazole-4-carboxylic-ru3vc/

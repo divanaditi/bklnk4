@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-hexadecylpyridinium-bromide-cas-140-72-7-market-8nqwf/

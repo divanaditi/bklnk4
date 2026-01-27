@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-real-estate-investment-software-0xi9f/

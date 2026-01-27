@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-9-anthracenecarbonyl-chloride-cas-16331-52-5-rjihc/

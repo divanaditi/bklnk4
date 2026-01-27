@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-signal-light-gun-market-ai-adoption-transformation-q99pf/

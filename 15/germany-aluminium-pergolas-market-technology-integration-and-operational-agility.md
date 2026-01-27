@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-aluminium-pergolas-market-technology-integration-pmrxf/

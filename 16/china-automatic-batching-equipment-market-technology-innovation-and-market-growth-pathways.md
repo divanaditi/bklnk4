@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automatic-batching-equipment-market-technology-rr72f/

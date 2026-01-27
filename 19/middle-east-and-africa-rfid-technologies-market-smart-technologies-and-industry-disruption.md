@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rfid-technologies-market-smart-odtbe/

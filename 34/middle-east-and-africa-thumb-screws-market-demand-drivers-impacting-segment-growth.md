@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thumb-screws-market-demand-drivers-impacting-cee9f/

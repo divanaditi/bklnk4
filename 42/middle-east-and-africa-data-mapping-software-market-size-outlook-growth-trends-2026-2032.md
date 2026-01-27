@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-data-mapping-software-market-size-outlook-zac6c/

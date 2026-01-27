@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-turfing-vendor-communications-market-cloud-dyd2f/

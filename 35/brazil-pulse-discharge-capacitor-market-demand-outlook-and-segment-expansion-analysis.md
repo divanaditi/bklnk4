@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pulse-discharge-capacitor-market-demand-outlook-2xo0f/

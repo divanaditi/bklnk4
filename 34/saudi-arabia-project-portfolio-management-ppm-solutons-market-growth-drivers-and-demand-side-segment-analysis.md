@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-project-portfolio-management-ppm-solutons-iebkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-closantel-base-market-segment-level-apnmf/

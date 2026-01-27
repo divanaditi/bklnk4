@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-digital-asset-management-app-market-intelligence-vn0rf/

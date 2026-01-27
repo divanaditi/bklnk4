@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-protection-construction-glass-market-demand-ggyte/

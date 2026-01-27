@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-tdcs-tacs-trns-market-growth-drivers-segment-elskc/

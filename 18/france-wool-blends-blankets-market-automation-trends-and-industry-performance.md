@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wool-blends-blankets-market-automation-trends-wuftf/

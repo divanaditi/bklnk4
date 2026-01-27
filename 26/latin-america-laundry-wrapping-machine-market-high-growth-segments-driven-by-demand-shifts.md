@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laundry-wrapping-machine-market-high-growth-p2aic/

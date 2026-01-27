@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-surgery-operating-table-market-demand-outlook-segment-v1dic/

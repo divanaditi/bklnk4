@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-stand-off-detectors-market-ai-data-iztbf/

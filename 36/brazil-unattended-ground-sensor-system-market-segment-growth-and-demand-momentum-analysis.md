@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-unattended-ground-sensor-system-market-5dyne/

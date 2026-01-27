@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-adhesive-remover-market-technology-x5kif/

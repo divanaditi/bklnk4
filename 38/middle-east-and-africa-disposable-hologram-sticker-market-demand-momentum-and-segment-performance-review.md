@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-disposable-hologram-o2jxc/

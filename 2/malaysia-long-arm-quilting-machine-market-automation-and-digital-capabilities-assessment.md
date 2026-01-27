@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-long-arm-quilting-machine-market-automation-m7xuc/

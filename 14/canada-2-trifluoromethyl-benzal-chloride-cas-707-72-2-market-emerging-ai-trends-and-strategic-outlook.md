@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-trifluoromethylbenzal-chloride-cas-707-72-2-v8l0c/

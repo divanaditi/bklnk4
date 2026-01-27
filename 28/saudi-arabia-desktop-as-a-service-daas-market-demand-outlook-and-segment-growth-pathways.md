@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-desktop-service-daas-market-demand-outlook-lc67f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-soccer-goalkeeper-gloves-market-demand-0td5f/

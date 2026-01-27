@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-shelf-label-market-demand-side-insights-p3lcf/

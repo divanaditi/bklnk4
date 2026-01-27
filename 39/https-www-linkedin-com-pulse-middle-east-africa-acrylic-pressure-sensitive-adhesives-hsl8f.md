@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-acrylic-pressure-sensitive-adhesives-hsl8f/

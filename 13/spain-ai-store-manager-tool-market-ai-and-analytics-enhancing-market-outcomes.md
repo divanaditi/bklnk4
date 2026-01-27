@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-store-manager-tool-market-analytics-enhancing-4dtif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-print-apply-labeling-equipment-market-n5q5c/

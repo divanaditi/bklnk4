@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cooling-warming-fabrics-market-technology-integration-ty6bc/

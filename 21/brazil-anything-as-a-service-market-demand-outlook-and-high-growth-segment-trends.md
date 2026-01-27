@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-anything-as-a-service-market-demand-outlook-ypjyf/

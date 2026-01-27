@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-women-rock-climbing-clothing-market-1excf/

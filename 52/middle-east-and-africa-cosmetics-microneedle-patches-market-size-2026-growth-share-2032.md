@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cosmetics-microneedle-patches-market-4hn8e/

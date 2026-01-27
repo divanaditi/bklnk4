@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-eco-friendly-travel-market-ai-analytics-fgt4f/

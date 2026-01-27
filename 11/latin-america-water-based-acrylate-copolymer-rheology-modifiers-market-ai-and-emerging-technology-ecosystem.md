@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-water-based-acrylate-copolymer-rheology-vvznc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-content-delivery-networks-cdn-market-demand-6wfbf/

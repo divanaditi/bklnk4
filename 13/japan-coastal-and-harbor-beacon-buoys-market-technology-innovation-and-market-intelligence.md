@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coastal-harbor-beacon-buoys-market-technology-wgi8f/

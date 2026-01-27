@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gum-base-market-size-outlook-use-cases-lnuzf/

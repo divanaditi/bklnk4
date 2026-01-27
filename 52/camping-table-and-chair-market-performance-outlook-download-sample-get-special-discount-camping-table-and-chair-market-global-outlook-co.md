@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/camping-table-chair-market-performance-outlook-ny30c/

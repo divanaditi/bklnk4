@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dimethyl-suberimidate-dihydrochloride-cas-34490-86-3-wbvxf/

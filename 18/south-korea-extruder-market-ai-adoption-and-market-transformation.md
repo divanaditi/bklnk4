@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-extruder-market-ai-adoption-transformation-a65xf/

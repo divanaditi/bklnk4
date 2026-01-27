@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-remote-sensing-image-market-ai-data-analytics-e01nf/

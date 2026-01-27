@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rv-parks-campgrounds-market-digital-intelligence-krhzf/

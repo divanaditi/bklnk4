@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-telecom-system-integration-market-demand-momentum-rx02f/

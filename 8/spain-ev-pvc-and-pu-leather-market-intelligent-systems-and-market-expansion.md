@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ev-pvc-pu-leather-market-intelligent-systems-cncmf/

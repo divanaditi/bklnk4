@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-charging-transmitters-receivers-market-w3rbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multi-purpose-spect-scanner-market-high-growth-tfxkf/

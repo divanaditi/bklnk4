@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vehicle-wedge-barrier-market-ai-adoption-enhancing-a5uyf/

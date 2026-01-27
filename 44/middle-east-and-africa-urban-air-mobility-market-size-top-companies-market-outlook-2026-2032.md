@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-urban-air-mobility-market-size-top-companies-outlook-ukx4f/

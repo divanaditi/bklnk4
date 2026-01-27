@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rugged-tablets-market-automation-technology-integration-eraue/

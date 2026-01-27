@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-datacentre-network-architecture-market-2ynhe/

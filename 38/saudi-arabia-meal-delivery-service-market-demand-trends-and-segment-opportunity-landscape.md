@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-meal-delivery-service-market-demand-sgkzf/

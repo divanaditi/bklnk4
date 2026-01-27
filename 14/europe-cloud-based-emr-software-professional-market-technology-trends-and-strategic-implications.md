@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cloud-based-emr-software-professional-market-b6yjc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-radiation-therapy-image-guided-system-market-t1mmf/

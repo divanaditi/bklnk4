@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-e-glue-market-size-h1sdf/

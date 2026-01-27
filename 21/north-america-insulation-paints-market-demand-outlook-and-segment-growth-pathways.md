@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-insulation-paints-market-demand-outlook-5byvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-home-use-medical-equipment-market-demand-outlook-segment-bfkhc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-point-of-sale-pos-systems-market-oikqc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stone-paint-market-technology-integration-j6vhf/

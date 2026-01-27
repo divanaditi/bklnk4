@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-broom-professional-market-technology-adoption-scalability-irtdf/

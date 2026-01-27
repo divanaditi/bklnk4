@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smartwatch-antenna-market-high-growth-bo89c/

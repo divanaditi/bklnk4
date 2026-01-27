@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lithium-battery-notching-equipment-mee1f/

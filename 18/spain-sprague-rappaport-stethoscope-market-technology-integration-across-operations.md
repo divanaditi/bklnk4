@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-sprague-rappaport-stethoscope-market-technology-kwozf/

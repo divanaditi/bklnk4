@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drone-powered-business-solutions-market-12dze/

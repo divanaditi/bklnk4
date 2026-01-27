@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-logging-device-market-ai-driven-txw2f/

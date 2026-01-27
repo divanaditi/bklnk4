@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-roach-bait-trap-market-demand-side-gzisc/

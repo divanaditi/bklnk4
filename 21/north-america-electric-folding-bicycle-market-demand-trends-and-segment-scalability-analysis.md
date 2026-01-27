@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electric-folding-bicycle-market-demand-ia33f/

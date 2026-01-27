@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-screw-type-pcb-terminal-block-market-ai-enabled-wovzc/

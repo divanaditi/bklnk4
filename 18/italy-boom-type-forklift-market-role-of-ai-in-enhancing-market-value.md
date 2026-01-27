@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-boom-type-forklift-market-role-ai-enhancing-value-jfukf/

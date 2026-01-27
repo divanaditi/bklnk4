@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-low-temperature-adhesive-tape-market-ai-rgxzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-foodtech-market-high-growth-segments-demand-forecast-tea9f/

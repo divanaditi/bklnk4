@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-unmanned-surface-vehicle-professional-market-v0zff/

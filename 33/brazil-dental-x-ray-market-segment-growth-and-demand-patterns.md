@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dental-x-ray-market-segment-growth-demand-8wfhe/

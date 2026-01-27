@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-aviation-emergency-rescue-market-ai-adoption-hpmjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-surgical-imaging-system-market-demand-qdwqf/

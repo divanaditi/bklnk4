@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-on-board-loader-market-technology-adoption-jjtff/

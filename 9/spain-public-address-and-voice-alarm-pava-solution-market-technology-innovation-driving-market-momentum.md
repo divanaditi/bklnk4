@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-public-address-voice-alarm-pava-solution-market-eb6vf/

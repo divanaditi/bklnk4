@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-indoor-plant-market-size-2026-ecosystem-m3d8f/

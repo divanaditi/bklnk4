@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-womens-handbags-market-demand-evolution-segment-viw3f/

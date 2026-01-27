@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diagnostic-testing-stds-market-high-growth-segments-c2rof/

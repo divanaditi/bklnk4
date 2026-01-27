@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-gcc-mandolins-market-ai-adoption-competitive-rrrlf/

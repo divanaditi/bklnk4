@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-weld-monitoring-software-market-size-ewehf/

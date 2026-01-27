@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wooden-pendant-lamp-market-ai-driven-development-hbmcc/

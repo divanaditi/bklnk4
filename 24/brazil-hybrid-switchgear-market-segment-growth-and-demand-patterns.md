@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hybrid-switchgear-market-segment-growth-iexif/

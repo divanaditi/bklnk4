@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-in-memory-data-grid-market-role-automation-gwsqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-light-vehicles-market-segment-guvff/

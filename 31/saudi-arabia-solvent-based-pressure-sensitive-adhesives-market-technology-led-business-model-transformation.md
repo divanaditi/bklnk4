@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-solvent-based-pressure-sensitive-adhesives-yaeqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-truck-mounted-cranes-market-digital-infrastructure-kra3f/

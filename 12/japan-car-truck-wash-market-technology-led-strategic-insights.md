@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-truck-wash-market-technology-led-strategic-fln3f/

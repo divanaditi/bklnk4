@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-leasing-market-demand-landscape-high-growth-z2joe/

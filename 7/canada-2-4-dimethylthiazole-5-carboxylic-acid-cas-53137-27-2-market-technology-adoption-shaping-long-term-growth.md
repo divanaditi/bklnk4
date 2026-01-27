@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-24-dimethylthiazole-5-carboxylic-acid-cas-53137-27-2-ntexf/

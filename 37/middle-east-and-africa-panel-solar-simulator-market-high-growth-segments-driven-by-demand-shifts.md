@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-panel-solar-simulator-market-high-growth-e5yae/

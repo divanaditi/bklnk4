@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-airport-moving-walkway-systems-market-intelligent-en97f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-current-sense-resistors-market-demand-factors-jyedf/

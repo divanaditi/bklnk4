@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-technical-skills-screening-qdq9f/

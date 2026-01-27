@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blood-group-typing-market-demand-factors-segment-growth-5jybf/

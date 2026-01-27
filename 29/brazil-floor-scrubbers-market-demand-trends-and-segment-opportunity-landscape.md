@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-floor-scrubbers-market-demand-trends-segment-1jemc/

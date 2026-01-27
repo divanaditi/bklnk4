@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-scene-library-editing-platform-market-digital-transformation-q5ejf/

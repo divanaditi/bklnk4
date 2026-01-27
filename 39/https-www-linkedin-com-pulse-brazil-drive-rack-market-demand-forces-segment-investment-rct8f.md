@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drive-rack-market-demand-forces-segment-investment-rct8f/

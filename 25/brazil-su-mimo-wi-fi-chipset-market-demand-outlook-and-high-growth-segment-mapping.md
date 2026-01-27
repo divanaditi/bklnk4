@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-su-mimo-wi-fi-chipset-market-demand-outlook-high-growth-x6hwf/

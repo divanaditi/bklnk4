@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-programmable-automation-controller-pac-professional-gdw8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-spect-spect-ct-czt-scanners-market-intelligent-jckjc/

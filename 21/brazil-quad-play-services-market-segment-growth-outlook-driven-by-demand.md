@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-quad-play-services-market-segment-growth-outlook-ktyrf/

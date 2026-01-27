@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pyrope-garnet-market-demand-analysis-gr7ye/

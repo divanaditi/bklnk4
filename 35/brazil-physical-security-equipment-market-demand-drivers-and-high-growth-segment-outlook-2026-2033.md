@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-physical-security-equipment-market-demand-mzilf/

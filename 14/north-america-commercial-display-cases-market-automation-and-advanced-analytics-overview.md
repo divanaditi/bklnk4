@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-commercial-display-cases-market-automation-dk6bc/

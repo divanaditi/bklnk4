@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-26-dichloro-3-fluorobenzoic-acid-cas-178813-78-0-ji79f/

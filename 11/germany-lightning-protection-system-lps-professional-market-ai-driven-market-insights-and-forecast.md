@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lightning-protection-system-lps-professional-a4ajc/

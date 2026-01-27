@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-engineered-geothermal-systems-market-ai-driven-uks3f/

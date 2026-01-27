@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-biopharmaceutical-logistics-professional-market-itugf/

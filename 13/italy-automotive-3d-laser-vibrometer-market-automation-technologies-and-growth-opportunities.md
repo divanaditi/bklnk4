@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-automotive-3d-laser-vibrometer-market-automation-fkyff/

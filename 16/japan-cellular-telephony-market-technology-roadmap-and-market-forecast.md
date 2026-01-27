@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cellular-telephony-market-technology-roadmap-beuef/

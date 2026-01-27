@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fire-shovel-market-demand-patterns-vfdne/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-merchant-solutions-market-ai-enabled-qgoyc/

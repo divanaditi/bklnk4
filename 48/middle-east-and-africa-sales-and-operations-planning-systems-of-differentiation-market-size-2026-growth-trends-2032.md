@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sales-operations-planning-systems-jvs0f/

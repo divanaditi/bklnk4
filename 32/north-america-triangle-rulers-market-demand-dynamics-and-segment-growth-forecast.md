@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-triangle-rulers-market-demand-dynamics-xcbbf/

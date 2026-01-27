@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-plant-based-vegan-meat-professional-market-ai-enabled-tzvxf/

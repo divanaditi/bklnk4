@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heated-gear-market-intelligent-systems-oqc5c/

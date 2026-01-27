@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-turret-boards-market-ai-led-digital-transformation-qkvsf/

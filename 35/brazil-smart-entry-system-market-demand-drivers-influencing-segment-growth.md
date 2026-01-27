@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-entry-system-market-demand-drivers-vwylf/

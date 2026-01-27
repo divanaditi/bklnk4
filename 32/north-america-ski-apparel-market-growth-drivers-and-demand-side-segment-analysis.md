@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ski-apparel-market-growth-drivers-zs9kf/

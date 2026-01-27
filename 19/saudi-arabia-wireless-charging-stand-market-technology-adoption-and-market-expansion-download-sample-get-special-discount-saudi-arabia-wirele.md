@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-wireless-charging-stand-market-technology-l4che/

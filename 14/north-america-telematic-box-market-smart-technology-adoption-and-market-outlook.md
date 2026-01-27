@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-telematic-box-market-smart-technology-p8juc/

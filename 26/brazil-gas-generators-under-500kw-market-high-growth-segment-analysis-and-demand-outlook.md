@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gas-generators-under-500kw-market-high-growth-fmrif/

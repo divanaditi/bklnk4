@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-charcoal-barbecue-equipment-market-3smsf/

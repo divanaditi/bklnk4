@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gastric-inhibitory-polypeptide-vvw1f/

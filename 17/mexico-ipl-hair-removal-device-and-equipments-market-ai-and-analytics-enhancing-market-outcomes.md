@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-ipl-hair-removal-device-equipments-market-ocj6f/

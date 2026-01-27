@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-case-coder-market-technology-integration-strategic-4ig7f/

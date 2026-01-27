@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thickness-gauges-market-segment-level-5xo5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-custom-shoes-market-demand-momentum-fns5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-wound-therapy-instrument-market-bcnlf/

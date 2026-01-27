@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-check-boxes-market-technology-resilience-scalability-dc3qf/

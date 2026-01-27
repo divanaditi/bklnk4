@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-folding-step-ladders-market-segment-growth-gcvif/

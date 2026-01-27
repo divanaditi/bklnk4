@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-life-jacket-vest-market-ai-analytics-bao4c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-alert-systems-market-segment-growth-5jmxe/

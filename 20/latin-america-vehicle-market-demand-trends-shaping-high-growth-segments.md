@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vehicle-market-demand-trends-shaping-zq9xf/

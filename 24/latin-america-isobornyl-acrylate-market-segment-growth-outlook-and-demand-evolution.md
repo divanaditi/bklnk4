@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-isobornyl-acrylate-market-segment-cf6jc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-lightning-protection-testing-services-sn2jf/

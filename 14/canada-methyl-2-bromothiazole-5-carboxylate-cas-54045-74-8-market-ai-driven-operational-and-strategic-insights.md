@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-methyl-2-bromothiazole-5-carboxylate-cas-54045-74-8-dh6bc/

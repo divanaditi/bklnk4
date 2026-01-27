@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rfid-writers-market-demand-analysis-xmh7f/

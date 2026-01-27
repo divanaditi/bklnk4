@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-handheld-temperature-calibrator-market-ai-enabled-a63nf/

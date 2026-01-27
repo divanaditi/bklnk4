@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electric-thermostatic-drier-market-automation-q3xtf/

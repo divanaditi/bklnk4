@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-insulated-solar-hoses-market-technology-dwj5f/

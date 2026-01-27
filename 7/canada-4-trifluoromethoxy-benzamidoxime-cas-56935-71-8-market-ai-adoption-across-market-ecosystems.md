@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-trifluoromethoxybenzamidoxime-cas-56935-71-8-fm6rf/

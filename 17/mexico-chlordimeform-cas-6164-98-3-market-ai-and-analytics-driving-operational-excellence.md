@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-chlordimeform-cas-6164-98-3-market-maxgc/

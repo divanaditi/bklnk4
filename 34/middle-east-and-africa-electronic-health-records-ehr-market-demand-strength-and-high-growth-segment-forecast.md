@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electronic-health-records-ehr-market-9dt7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automotive-industry-insulated-metal-substrates-j3vlc/

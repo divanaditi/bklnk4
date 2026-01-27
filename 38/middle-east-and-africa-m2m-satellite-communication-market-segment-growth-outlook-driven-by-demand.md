@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-m2m-satellite-communication-market-mvzcf/

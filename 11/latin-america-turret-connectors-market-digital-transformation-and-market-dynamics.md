@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-turret-connectors-market-digital-transformation-jg21c/

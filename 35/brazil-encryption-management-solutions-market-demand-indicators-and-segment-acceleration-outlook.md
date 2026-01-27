@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-encryption-management-solutions-market-lcqvf/

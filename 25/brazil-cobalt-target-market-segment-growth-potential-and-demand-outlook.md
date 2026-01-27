@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cobalt-target-market-segment-growth-potential-y163f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-grid-to-vehicle-v2g-market-technology-hagcf/

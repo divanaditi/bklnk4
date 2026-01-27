@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nature-tourism-market-size-outlook-s5kdc/

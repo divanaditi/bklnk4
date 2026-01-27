@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-portable-home-battery-market-digital-transformation-1gyqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heel-market-ai-adoption-transformation-ykmif/

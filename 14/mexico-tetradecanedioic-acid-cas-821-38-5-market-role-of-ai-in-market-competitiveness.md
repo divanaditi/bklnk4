@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-tetradecanedioic-acid-cas-821-38-5-4ufgc/

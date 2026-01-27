@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-telecommunication-insurance-market-9cd7f/

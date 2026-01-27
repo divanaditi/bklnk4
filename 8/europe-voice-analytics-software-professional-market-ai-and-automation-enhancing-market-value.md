@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-voice-analytics-software-professional-market-cfo9f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lora-gateway-module-market-size-use-7l5cc/

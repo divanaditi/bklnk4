@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bike-rental-market-automation-analytics-adoption-93nff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-self-adhesive-protective-film-market-demand-indicators-vdoyf/

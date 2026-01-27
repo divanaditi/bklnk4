@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-maintenance-platform-wind-turbines-market-technology-r3obf/

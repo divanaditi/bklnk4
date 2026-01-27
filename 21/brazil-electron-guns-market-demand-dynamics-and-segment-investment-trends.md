@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electron-guns-market-demand-dynamics-7picf/

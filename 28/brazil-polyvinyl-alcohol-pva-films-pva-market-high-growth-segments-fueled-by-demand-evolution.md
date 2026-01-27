@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-polyvinyl-alcohol-pva-films-qre4c/

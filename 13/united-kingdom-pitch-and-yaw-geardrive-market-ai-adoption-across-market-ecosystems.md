@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-pitch-yaw-geardrive-market-ai-adoption-t7djf/

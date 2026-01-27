@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-sauces-professional-market-technology-innovation-hbiaf/

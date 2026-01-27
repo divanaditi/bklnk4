@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-coldroom-sliding-door-market-ai-adoption-enhancing-mp30c/

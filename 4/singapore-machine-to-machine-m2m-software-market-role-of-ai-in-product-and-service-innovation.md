@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-machine-to-machinem2m-software-market-role-ai-8nywc/

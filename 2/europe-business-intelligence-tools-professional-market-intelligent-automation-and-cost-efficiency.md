@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-business-intelligence-tools-professional-czexf/

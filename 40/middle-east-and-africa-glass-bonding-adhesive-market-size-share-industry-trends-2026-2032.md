@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-glass-bonding-adhesive-market-size-dienf/

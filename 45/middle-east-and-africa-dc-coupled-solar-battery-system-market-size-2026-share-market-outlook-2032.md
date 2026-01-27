@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-dc-coupled-solar-battery-system-grqec/

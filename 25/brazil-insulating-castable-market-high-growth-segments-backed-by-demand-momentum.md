@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-insulating-castable-market-high-growth-oj8of/

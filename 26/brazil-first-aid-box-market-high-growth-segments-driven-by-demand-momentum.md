@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-first-aid-box-market-high-growth-segments-ink4c/

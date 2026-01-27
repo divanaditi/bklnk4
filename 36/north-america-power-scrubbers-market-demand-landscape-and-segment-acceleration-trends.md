@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-power-scrubbers-market-demand-landscape-7goqf/

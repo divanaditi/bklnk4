@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-static-transfer-switches-sts-market-k5mgc/

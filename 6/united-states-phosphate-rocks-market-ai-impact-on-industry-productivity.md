@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-phosphate-rocks-market-ai-impact-69e6f/

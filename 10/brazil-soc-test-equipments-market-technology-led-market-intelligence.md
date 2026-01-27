@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-soc-test-equipments-market-technology-led-intelligence-hqmdf/

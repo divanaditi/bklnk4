@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-charity-crm-systems-market-size-fs8pf/

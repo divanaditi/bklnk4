@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-automated-storage-retrieval-machine-asrm-market-role-gigdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-spray-wires-market-demand-r9wgc/

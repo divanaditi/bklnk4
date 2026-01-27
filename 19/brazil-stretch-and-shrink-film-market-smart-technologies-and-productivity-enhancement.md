@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-stretch-shrink-film-market-smart-technologies-sqhie/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-prothiofos-cas-34643-46-4-market-ai-smart-pz6if/

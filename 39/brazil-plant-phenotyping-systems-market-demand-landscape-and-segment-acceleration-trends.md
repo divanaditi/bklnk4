@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plant-phenotyping-systems-market-demand-landscape-4rg1f/

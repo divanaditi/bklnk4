@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-yeast-market-size-2026-ecosystem-o7zqc/

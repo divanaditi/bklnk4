@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nanomagnetic-market-size-2026-8ofrc/

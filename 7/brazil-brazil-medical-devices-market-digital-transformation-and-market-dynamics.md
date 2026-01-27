@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-devices-market-digital-transformation-ppntf/

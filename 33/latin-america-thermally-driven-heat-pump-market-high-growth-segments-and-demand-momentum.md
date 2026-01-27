@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermally-driven-heat-pump-market-high-growth-6bhze/

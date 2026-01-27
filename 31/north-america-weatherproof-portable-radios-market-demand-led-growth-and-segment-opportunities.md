@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-weatherproof-portable-radios-market-2rzaf/

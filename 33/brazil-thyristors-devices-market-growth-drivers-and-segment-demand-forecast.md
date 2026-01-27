@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thyristors-devices-market-growth-drivers-o4s6e/

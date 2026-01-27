@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-residential-folding-furniture-market-ai-qd6if/

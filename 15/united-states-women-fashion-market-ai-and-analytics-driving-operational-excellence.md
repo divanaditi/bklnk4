@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-women-fashion-market-ai-analytics-driving-owb1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-fosthiazate-cas-98886-44-3-market-ai-driven-2jd0f/

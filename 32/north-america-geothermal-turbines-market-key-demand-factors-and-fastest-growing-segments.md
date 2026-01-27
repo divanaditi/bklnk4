@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-geothermal-turbines-market-key-demand-factors-nymof/

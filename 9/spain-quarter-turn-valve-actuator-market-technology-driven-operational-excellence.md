@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-quarter-turn-valve-actuator-market-technology-driven-ktgvf/

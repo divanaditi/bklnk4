@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-gynecological-test-strip-market-digital-transformation-33q0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uv-nail-gel-market-size-2026-txc7f/

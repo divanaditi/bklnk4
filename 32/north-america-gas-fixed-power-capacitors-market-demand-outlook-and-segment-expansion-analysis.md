@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gas-fixed-power-capacitors-market-demand-dblnf/

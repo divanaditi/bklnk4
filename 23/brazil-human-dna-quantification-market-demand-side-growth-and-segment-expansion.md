@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-human-dna-quantification-market-demand-side-6n5pf/

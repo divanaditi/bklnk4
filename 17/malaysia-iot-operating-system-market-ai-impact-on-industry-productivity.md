@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-iot-operating-system-market-ai-impact-industry-6vnqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-organic-solar-cell-market-smart-analytics-0ldbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mr-guided-focused-ultrasound-system-g6sif/

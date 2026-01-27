@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-sme-big-data-professional-market-technology-led-csfwc/

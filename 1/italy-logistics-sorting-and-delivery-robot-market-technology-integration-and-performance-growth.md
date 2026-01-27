@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-logistics-sorting-delivery-robot-market-technology-au4gf/

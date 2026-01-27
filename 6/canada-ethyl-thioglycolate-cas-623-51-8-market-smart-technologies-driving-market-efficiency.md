@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-ethyl-thioglycolate-cas-623-51-8-market-smart-lpcvf/

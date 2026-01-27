@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-precision-power-sources-test-market-intelligent-xmhbf/

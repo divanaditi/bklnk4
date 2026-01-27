@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-security-awareness-training-t4j6f/

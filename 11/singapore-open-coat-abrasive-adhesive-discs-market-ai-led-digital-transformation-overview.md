@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-open-coat-abrasive-adhesive-discs-market-zxyuc/

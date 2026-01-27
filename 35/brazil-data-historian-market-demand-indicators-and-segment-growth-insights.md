@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-data-historian-market-demand-indicators-qyp1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-boat-market-segment-growth-potential-ysyuf/

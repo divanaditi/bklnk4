@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-beef-casing-professional-market-technology-h5n8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ergonomic-lifter-market-demand-trends-high-growth-rbhpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-inverter-welding-cutting-equipment-market-xn7ef/

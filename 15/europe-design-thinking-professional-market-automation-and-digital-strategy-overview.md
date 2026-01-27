@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-design-thinking-professional-market-automation-cvkif/

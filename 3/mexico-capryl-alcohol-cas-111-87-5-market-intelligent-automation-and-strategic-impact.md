@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-capryl-alcohol-cas-111-87-5-market-intelligent-b1jdf/

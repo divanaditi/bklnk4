@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-consumer-use-light-hair-removal-device-equipment-ehmgf/

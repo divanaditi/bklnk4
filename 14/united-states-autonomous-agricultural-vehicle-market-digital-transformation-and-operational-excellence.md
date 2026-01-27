@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-autonomous-agricultural-vehicle-market-digital-sgetc/

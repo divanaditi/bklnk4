@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concrete-expansive-agent-market-ai-enabled-innovation-5os1f/

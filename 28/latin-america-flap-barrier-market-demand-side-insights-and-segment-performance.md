@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flap-barrier-market-demand-side-epdxc/

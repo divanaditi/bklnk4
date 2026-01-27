@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mountaineering-tents-professional-market-ai-0jtwf/

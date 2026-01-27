@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-wireless-flat-panel-detector-rrfpf/

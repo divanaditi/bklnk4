@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-brodifacoum-cas-56073-10-0-market-automation-jagsc/

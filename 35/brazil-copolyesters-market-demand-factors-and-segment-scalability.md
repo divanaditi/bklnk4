@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-copolyesters-market-demand-factors-segment-zj4qf/

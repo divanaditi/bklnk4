@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-chloro-2-trifluoromethylbenzyl-alcohol-cas-0uk8f/

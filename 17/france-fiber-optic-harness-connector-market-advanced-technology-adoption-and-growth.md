@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fiber-optic-harness-connector-market-mwh9f/

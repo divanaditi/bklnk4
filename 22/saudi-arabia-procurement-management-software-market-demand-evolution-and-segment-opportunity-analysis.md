@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-procurement-management-software-market-zcuwf/

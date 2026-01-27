@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-virtual-teller-machine-vtm-market-demand-1aidf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-insulated-paint-market-demand-outlook-segment-17kjf/

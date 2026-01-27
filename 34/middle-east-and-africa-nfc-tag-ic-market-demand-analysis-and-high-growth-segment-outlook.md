@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nfc-tag-ic-market-demand-analysis-high-growth-uuhof/

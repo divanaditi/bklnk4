@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cdm-market-technology-led-strategic-insights-x76pf/

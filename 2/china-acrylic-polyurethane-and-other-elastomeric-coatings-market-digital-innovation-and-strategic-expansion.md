@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-acrylic-polyurethane-other-elastomeric-l6t3c/

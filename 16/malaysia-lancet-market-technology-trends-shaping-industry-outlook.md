@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-lancet-market-technology-trends-shaping-industry-wapaf/

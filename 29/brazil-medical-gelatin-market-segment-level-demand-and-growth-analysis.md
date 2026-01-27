@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-gelatin-market-segment-level-epzpc/

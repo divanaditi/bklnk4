@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electronic-grade-isopropyl-alcohol-ipa-esqdc/

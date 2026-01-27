@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-defibrillation-disposable-medical-uz8xc/

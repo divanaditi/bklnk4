@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cruise-booking-online-market-intelligent-automation-lsalf/

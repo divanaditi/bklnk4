@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-global-us-in-car-voice-assistant-t2jkf/

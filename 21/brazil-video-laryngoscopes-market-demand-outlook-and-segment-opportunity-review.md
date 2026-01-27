@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-video-laryngoscopes-market-demand-outlook-ufqlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-germanium-ir-camera-market-growth-drivers-tuvdf/

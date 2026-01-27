@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nattokinase-supplements-market-high-growth-qlbvf/

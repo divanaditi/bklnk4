@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-indoor-garden-systems-market-role-q6cxf/

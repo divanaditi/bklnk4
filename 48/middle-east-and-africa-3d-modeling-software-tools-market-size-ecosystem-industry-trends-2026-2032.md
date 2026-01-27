@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-3d-modeling-software-tools-6kdnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-artificial-intelligence-renewable-energy-market-c7xee/

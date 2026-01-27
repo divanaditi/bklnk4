@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-workplace-transformation-market-technology-fs2xe/

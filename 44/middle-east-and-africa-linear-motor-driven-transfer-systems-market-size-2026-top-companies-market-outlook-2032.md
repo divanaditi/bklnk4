@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-linear-motor-driven-transfer-7qbqc/

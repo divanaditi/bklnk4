@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-student-tablet-pc-market-ai-analytics-nifuc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-x-ray-security-scanner-market-demand-trends-segment-dxy4f/

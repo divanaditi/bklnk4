@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-construction-tipper-market-automation-advanced-4u5uf/

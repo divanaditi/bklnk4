@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-generator-market-ai-automation-industry-zzsnc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gesture-recognition-solution-market-vkjbf/

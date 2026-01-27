@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bio-banks-market-segment-growth-outlook-demand-znghc/

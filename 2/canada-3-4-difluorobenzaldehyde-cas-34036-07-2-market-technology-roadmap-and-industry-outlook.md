@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-34-difluorobenzaldehyde-cas-34036-07-2-market-amltf/

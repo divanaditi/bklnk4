@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-map-market-ai-data-analytics-dmt3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waterproof-breathable-film-market-advanced-xa1nf/

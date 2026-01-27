@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-energy-efficient-artificial-intelligence-vie4f/

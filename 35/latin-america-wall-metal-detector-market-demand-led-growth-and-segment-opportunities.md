@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wall-metal-detector-market-demand-led-growth-mwhpf/

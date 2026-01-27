@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-nad-modules-market-size-2026-w3f2c/

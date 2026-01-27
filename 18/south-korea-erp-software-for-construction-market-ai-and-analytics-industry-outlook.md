@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-erp-software-construction-market-ai-analytics-yo2nf/

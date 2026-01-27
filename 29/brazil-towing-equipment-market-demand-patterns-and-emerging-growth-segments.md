@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-towing-equipment-market-demand-patterns-vnbuc/

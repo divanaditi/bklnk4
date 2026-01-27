@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chain-pin-extractor-market-demand-supported-rzhvf/

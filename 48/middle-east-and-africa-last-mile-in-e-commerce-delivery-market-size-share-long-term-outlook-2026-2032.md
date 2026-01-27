@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-last-mile-e-commerce-delivery-k56ef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-2-2-chloro-ethoxy-ethanol-cas-628-89-7-market-kri1f/

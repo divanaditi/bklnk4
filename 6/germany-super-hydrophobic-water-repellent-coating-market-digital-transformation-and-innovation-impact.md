@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-super-hydrophobic-water-repellent-coating-qjtaf/

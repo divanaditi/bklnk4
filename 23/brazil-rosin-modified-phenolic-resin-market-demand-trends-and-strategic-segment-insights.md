@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rosin-modified-phenolic-resin-market-demand-yi2zf/

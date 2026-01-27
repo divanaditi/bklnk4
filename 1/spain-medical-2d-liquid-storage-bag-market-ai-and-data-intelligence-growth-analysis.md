@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-2d-liquid-storage-bag-market-bysef/

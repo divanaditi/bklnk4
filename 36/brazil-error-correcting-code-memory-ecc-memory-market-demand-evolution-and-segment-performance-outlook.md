@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-error-correcting-code-memory-ecc-market-demand-fatwe/

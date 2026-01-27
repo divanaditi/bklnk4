@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mobile-wallet-nfc-digital-market-segment-odm5f/

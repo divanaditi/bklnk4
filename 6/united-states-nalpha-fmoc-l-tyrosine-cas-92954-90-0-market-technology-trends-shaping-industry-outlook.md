@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-nalpha-fmoc-l-tyrosine-cas-92954-90-0-h7f9f/

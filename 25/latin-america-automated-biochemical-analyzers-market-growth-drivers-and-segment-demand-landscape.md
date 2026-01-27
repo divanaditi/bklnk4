@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automated-biochemical-analyzers-market-growth-ysyxc/

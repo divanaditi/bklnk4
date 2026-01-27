@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-rf-test-equipment-market-demand-factors-h55zf/

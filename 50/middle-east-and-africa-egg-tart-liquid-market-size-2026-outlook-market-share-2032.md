@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-egg-tart-liquid-market-size-2026-spb8f/

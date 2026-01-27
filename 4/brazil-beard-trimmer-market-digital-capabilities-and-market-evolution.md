@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-beard-trimmer-market-digital-capabilities-evolution-ak23f/

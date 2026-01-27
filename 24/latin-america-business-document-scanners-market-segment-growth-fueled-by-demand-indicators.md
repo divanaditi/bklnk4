@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-business-document-scanners-market-y2ilc/

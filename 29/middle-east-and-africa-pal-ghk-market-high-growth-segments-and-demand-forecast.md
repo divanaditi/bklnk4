@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pal-ghk-market-high-growth-segments-vuauf/

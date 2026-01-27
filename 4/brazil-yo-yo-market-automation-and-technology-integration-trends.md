@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yo-yo-market-automation-technology-integration-kug8f/

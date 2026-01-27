@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concrete-mortar-pump-market-ai-impact-efficiency-tthjf/

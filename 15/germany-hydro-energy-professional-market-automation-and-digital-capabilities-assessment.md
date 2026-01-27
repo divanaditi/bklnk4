@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-hydro-energy-professional-market-automation-digital-8jaqf/

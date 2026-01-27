@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-kick-scooter-market-technology-led-efficiency-a3zcf/

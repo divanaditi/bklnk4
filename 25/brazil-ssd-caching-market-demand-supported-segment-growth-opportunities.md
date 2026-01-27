@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ssd-caching-market-demand-supported-segment-9uwuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-procure-to-pay-solutions-market-demand-forces-hag2f/

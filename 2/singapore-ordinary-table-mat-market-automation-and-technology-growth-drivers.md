@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-ordinary-table-mat-market-automation-technology-hkgvc/

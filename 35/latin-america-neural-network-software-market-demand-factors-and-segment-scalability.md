@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-neural-network-software-market-demand-ct5bf/

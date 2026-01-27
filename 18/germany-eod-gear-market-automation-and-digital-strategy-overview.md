@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-eod-gear-market-automation-digital-strategy-overview-c5e4f/

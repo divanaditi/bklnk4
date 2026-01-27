@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-defense-grade-steel-plate-market-size-wra1f/

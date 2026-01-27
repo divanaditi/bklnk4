@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-mobility-market-size-p4osf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-incident-command-vehicle-icv-market-technology-led-bv4kf/

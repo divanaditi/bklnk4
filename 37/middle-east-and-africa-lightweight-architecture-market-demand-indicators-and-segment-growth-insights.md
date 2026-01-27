@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lightweight-architecture-market-9a3ie/

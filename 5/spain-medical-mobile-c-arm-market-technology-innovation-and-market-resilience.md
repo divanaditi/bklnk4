@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-mobile-c-arm-market-technology-innovation-b6czf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-industrial-double-shaft-shredders-5nazf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-spring-grip-market-demand-forces-xwz7f/

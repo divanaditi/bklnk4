@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-gum-arabic-e414-market-technology-integration-ijbaf/

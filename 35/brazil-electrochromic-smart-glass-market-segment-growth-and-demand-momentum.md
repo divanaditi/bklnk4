@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrochromic-smart-glass-market-segment-growth-zouif/

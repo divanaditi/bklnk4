@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-jasper-ring-market-ai-impact-scalability-rohoc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trailer-coupler-market-growth-47mhf/

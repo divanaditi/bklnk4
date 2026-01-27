@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-monocrystalline-n-type-silicon-wafer-182mm130%CE%BCm-ojovc/

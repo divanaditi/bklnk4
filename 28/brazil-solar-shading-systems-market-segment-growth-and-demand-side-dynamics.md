@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-shading-systems-market-segment-qtnmc/

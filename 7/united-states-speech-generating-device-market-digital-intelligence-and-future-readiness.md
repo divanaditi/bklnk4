@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-speech-generating-device-market-digital-8a52f/

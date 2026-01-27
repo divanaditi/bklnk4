@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-power-electronic-metallized-film-capacitors-imikf/

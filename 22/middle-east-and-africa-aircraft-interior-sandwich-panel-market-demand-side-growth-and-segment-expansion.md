@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aircraft-interior-sandwich-panel-m833f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vacuum-bagging-material-market-size-2026-twx4f/

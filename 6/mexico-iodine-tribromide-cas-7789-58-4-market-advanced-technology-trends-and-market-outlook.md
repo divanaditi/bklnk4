@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-iodine-tribromide-cas-7789-58-4-market-ni77f/

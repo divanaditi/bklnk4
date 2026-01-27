@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pharmacy-refrigerator-market-high-growth-s5ylc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-aesthetic-laser-system-market-high-growth-bm6ke/

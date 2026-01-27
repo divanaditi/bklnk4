@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-electronic-batch-record-ebr-software-market-dyeec/

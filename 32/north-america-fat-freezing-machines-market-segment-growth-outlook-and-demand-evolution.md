@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fat-freezing-machines-market-segment-wna0f/

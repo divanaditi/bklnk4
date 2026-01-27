@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vehicle-bpack-market-demand-gqyhf/

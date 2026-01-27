@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-elastic-fabrics-personal-care-market-technology-led-kewpc/

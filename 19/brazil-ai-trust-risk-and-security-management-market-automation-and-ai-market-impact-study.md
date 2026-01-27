@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ai-trust-risk-security-management-market-automation-vce9e/

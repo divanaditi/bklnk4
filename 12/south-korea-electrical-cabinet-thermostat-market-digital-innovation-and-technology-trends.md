@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electrical-cabinet-thermostat-market-y15kf/

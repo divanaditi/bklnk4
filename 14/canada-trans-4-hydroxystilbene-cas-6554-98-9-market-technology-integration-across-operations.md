@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-trans-4-hydroxystilbene-cas-6554-98-9-market-qc2bc/

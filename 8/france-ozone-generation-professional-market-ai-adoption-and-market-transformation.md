@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ozone-generation-professional-market-ai-adoption-ez75f/

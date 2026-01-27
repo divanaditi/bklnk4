@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-18650-batteries-market-segment-demand-trends-unjif/

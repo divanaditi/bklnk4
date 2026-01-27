@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-quick-adjustable-dumbbells-market-technology-advancements-gdzgf/

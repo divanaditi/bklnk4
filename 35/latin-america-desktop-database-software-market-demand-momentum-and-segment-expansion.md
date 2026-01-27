@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-desktop-database-software-market-demand-ssiff/

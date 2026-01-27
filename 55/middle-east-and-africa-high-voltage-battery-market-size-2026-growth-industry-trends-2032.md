@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-high-voltage-battery-market-size-lxpnf/

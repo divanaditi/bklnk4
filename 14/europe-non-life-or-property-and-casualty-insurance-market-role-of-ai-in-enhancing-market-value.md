@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-non-life-property-casualty-insurance-market-r9a6c/

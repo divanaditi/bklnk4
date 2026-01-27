@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-large-area-displays-market-high-growth-segments-vdvbf/

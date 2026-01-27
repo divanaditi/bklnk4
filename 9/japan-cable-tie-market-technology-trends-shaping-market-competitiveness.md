@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cable-tie-market-technology-trends-shaping-sq7zf/

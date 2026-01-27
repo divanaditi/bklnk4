@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cannabis-retail-pos-software-market-pkrbf/

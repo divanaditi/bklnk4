@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-lighting-wiring-harness-market-ai-impact-85gmf/

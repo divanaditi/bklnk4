@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-payment-gateways-market-demand-indicators-i9o1f/

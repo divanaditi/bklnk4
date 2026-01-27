@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wear-resistant-hardener-market-digital-transformation-sv7rf/

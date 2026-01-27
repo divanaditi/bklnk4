@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-elderly-walker-market-digital-innovation-omgwf/

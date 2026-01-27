@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-home-blood-pressure-monitoring-device-naa3f/

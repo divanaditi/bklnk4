@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-two-player-computer-game-market-role-ai-operational-lar0f/

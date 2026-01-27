@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-household-burglar-alarm-market-yl90f/

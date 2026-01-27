@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plasma-sprayed-coatings-market-demand-trends-ii3rf/

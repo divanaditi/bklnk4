@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-solid-stream-pattern-nozzle-market-smart-analytics-ydumf/

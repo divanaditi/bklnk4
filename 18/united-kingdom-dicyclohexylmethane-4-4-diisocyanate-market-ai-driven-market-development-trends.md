@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-dicyclohexylmethane-4-4-diisocyanate-4gkmf/

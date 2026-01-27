@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-socially-assistive-healthcare-robot-4hdxf/

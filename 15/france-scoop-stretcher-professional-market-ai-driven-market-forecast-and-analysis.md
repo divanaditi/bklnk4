@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-scoop-stretcher-professional-market-ai-driven-5orof/

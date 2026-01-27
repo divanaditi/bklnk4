@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-windows-market-digital-intelligence-strategic-5hbkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heat-pump-water-heater-market-size-ohpqf/

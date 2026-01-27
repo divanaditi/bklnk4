@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-broadband-system-market-demand-outlook-qg1pf/

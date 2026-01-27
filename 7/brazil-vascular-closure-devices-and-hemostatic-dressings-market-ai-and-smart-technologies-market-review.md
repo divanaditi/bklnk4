@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vascular-closure-devices-hemostatic-dressings-52lof/

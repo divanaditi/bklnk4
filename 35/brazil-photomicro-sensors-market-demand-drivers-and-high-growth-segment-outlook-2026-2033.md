@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-photomicro-sensors-market-demand-drivers-qmaff/

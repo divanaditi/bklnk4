@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-affordable-housing-property-management-software-rdd7f/

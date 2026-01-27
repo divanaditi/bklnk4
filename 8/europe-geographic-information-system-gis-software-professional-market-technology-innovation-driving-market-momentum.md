@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-geographic-information-system-gis-software-3knhf/

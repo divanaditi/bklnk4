@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-agricultural-environmental-diagnostics-market-ji72f/

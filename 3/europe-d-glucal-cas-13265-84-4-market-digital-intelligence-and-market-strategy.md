@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-d-glucal-cas-13265-84-4-market-digital-intelligence-b51wf/

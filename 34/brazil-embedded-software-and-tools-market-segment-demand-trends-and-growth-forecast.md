@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-embedded-software-tools-market-segment-demand-hydof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microwave-furnaces-market-technology-advancements-8q4vc/

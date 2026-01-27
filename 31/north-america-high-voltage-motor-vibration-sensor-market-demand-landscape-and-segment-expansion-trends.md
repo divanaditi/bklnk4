@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-voltage-motor-vibration-sensor-market-uu4df/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-airborne-wind-lidar-market-ai-adoption-6vb5f/

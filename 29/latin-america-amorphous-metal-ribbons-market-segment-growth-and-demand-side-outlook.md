@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-amorphous-metal-ribbons-market-zz30c/

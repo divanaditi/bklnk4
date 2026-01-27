@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-erp-1-market-technology-trends-shaping-future-opportunities-sjbaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hybrid-commercial-vehicle-market-demand-evolution-dg7nf/

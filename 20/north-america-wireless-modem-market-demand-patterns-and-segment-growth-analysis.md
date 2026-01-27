@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-modem-market-demand-patterns-tfhef/

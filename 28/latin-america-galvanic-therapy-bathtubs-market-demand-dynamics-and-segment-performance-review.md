@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-galvanic-therapy-bathtubs-5y9hc/

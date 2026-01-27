@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-connected-medical-devices-security-market-bfhwf/

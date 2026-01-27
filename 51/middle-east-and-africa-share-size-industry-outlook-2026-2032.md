@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-share-size-industry-outlook-kdg5c/

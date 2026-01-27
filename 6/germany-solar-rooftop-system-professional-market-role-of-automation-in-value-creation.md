@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-solar-rooftop-system-professional-market-jr2hf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-25-bistrifluoromethylbenzoyl-chloride-cas-393-82-8-nsczc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-uncompensated-crystal-oscillator-market-8uoof/

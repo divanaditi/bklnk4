@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ingestible-sensors-market-demand-b8glf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-suspension-bridge-equipment-market-automation-ohvvf/

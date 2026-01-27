@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-intranet-penetration-market-technology-4qxxc/

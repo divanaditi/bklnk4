@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electronic-design-automation-tools-eda-professional-p5m4c/

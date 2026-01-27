@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-portable-dental-light-market-technology-adoption-enntf/

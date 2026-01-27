@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-military-logistics-market-outlook-size-pmd6f/

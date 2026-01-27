@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-birth-control-pills-market-segment-growth-qkcef/

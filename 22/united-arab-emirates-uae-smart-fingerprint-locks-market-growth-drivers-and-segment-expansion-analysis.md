@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-smart-fingerprint-locks-market-4bdkf/

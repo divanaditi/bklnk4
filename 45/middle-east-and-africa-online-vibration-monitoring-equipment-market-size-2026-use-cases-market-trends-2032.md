@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-online-vibration-monitoring-equipment-2yr3c/

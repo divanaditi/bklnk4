@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-power-semiconductors-automotive-market-0cduf/

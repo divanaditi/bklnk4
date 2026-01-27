@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waterproof-portable-bluetooth-speaker-market-jdqaf/

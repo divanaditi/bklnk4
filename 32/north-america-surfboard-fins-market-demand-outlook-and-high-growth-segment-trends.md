@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-surfboard-fins-market-demand-outlook-high-growth-qstxf/

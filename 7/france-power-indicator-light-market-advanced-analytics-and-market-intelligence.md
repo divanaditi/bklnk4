@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-power-indicator-light-market-advanced-analytics-iy9lf/

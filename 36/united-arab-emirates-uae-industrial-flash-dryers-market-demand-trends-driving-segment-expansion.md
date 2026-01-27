@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-industrial-flash-dryers-market-4ikpf/

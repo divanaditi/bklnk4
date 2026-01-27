@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-in-memory-analytics-market-segment-growth-f1fhf/

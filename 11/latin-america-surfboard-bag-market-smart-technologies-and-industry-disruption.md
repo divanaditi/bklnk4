@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-surfboard-bag-market-smart-technologies-ievkc/

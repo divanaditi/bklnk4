@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-optical-variable-pigments-market-demand-supported-gi3cf/

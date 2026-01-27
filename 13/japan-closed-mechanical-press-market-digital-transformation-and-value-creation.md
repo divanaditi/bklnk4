@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-closed-mechanical-press-market-digital-transformation-urbqf/

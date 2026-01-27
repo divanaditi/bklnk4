@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-solar-home-lightings-market-technology-vwg6c/

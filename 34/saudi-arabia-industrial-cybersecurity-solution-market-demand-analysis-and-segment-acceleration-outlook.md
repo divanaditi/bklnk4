@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-industrial-cybersecurity-solution-grm1f/

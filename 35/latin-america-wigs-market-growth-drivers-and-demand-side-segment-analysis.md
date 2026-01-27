@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wigs-market-growth-drivers-demand-side-cnqaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-automotive-dealer-management-systems-qyphf/

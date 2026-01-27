@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-monopolar-laparoscopic-forceps-market-impact-c2trf/

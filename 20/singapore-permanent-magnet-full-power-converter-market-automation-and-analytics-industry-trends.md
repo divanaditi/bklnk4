@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-permanent-magnet-full-power-converter-market-cumfe/

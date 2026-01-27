@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-costume-jewellery-market-technology-innovation-wxvkf/

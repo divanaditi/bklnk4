@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-oil-gas-conductor-pipe-market-demand-outlook-dwu6f/

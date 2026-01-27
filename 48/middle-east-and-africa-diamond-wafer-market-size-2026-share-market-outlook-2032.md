@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-diamond-wafer-market-size-2026-share-outlook-bwnhf/

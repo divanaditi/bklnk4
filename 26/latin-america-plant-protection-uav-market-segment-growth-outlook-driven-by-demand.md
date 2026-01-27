@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-plant-protection-uav-market-segment-growth-sunil-bade-d68rc/

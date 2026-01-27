@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-io-link-sensors-market-ai-automation-yrpnf/

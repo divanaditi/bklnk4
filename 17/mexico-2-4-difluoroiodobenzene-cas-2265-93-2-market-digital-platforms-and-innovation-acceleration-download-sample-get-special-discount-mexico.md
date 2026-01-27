@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-difluoroiodobenzene-cas-2265-93-2-market-df4gf/

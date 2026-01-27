@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hexandiol-market-demand-patterns-6cvcf/

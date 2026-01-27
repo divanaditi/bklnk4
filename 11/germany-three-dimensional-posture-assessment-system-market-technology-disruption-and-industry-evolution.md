@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-three-dimensional-posture-assessment-system-28s5c/

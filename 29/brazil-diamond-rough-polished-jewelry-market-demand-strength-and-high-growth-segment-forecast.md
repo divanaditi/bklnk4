@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diamond-rough-polished-jewelry-market-demand-32y3f/

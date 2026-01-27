@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-decafluoro-2-trifluoromethyl-2-iodopentane-8x5jf/

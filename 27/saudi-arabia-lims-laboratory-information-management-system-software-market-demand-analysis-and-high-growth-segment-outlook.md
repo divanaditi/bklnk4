@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-lims-laboratory-information-management-d8lkf/

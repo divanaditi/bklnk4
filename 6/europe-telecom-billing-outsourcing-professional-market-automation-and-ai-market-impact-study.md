@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-telecom-billing-outsourcing-professional-bnrnf/

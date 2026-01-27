@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-adaptive-learning-software-market-3ov4f/

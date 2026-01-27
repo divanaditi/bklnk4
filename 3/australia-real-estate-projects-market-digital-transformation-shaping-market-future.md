@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-real-estate-projects-market-digital-transformation-jy4nf/

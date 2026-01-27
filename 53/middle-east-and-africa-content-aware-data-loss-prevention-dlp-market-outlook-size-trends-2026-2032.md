@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-content-aware-data-loss-4khdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coherent-radar-market-automation-digital-capabilities-efgtf/

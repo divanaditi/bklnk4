@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-off-line-converters-market-size-2026-wj8mf/

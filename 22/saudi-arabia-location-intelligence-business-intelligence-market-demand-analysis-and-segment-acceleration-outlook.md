@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-location-intelligence-business-market-ayqvf/

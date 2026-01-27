@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mems-silicon-crystal-oscillator-market-technology-hxr1f/

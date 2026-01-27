@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-234-trifluorophenol-cas-2822-41-5-market-i1dnf/

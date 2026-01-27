@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-burns-drug-market-smart-technology-adoption-fnupf/

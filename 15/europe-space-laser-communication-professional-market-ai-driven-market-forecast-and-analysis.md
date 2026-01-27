@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-space-laser-communication-professional-market-ai-driven-rkiyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-rights-management-drm-professional-market-ce7rf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-li-ion-battery-laptops-market-growth-drivers-8hmue/

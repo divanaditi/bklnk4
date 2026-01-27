@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-126-hexanetriol-cas-106-69-4-market-technology-uoghc/

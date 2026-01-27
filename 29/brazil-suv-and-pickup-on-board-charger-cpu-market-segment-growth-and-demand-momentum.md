@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-suv-pickup-on-board-charger-cpu-market-segment-dl3hf/

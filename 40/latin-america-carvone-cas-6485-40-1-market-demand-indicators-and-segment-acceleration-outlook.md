@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-carvone-cas-6485-40-1-market-demand-indicators-xbtff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-x-ray-generator-market-digital-6rhvf/

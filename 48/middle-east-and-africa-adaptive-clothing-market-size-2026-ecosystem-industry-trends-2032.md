@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-adaptive-clothing-market-size-2026-6n9of/

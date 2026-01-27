@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-tomato-fertilizer-market-ai-enabled-intelligence-v2saf/

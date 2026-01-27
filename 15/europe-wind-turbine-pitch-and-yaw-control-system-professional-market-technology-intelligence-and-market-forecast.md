@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wind-turbine-pitch-yaw-control-system-professional-9btcf/

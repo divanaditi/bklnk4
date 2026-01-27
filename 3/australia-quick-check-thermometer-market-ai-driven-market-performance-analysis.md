@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quick-check-thermometer-market-ai-driven-bvjgf/

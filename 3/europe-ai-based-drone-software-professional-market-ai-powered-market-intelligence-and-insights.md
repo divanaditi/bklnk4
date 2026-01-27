@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ai-based-drone-software-professional-market-ai-powered-fpw8f/

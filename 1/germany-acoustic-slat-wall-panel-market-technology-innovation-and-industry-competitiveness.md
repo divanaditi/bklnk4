@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-acoustic-slat-wall-panel-market-technology-our1f/

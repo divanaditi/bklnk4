@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-business-process-service-bpaas-healthcare-0pcgc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-micro-mobile-data-center-professional-market-v3gpf/

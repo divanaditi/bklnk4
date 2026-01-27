@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-chip-handler-semiconductor-market-demand-qvpuf/

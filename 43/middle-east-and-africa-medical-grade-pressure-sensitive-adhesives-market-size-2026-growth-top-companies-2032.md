@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medical-grade-pressure-sensitive-4hbdf/

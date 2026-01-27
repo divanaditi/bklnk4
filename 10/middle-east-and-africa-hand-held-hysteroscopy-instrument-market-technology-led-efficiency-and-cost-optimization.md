@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hand-held-hysteroscopy-instrument-market-tx29f/

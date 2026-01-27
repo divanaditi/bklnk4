@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-aviation-iot-solutions-market-automation-majgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-emi-electromagnetic-shielding-film-market-zhmuf/

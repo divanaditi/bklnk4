@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-intelligent-warehouse-market-high-growth-segments-5v14f/

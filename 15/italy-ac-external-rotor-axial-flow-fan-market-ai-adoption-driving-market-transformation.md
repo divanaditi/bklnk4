@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-ac-external-rotor-axial-flow-fan-market-ai-adoption-cdv6f/

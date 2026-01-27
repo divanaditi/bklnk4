@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-small-scale-liquefaction-market-demand-7kzzc/

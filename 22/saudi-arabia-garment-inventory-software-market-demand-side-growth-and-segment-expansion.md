@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-garment-inventory-software-market-demand-side-vkx3f/

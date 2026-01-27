@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wood-coatings-market-demand-indicators-6varf/

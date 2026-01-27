@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-data-management-system-dbms-market-demand-analysis-y5y7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-slide-film-base-market-smart-technologies-efficiency-hrmrf/

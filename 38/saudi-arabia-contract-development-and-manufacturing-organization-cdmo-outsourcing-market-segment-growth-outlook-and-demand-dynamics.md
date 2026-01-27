@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-contract-development-manufacturing-maj6f/

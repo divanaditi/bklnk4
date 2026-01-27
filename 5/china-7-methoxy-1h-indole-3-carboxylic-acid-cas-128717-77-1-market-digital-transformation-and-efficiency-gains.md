@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-7-methoxy-1h-indole-3-carboxylic-acid-cas-128717-77-1-edmef/

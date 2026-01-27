@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-concentrated-photovoltaic-system-market-avazf/

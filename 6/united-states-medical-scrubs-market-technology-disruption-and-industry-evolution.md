@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-medical-scrubs-market-technology-j2xhf/

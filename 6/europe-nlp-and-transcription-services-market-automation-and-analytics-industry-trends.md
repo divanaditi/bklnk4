@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-nlp-transcription-services-market-xdwzf/

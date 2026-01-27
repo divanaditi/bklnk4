@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/smart-pet-collar-market-valued-045bn-2024-m7rkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-extrication-collar-market-growth-drivers-zwiof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-winding-blade-bonding-adhesives-j3eof/

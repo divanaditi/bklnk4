@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-agricultural-machinery-automatic-direction-zazef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-currency-sorters-market-impact-qi8ac/

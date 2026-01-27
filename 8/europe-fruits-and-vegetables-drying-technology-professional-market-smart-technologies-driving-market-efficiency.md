@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-fruits-vegetables-drying-technology-gwy2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bearing-puller-market-demand-patterns-n2ltf/

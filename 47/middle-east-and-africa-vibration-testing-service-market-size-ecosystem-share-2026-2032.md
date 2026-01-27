@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vibration-testing-service-31szf/

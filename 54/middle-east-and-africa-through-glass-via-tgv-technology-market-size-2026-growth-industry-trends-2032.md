@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-through-glass-via-tgv-technology-qhdkf/

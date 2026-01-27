@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-medical-devices-electronics-manufacturing-lqwzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-skin-mechanics-imager-market-technology-trends-jhr6f/

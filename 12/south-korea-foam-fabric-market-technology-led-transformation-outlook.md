@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-foam-fabric-market-technology-led-transformation-bkk1f/

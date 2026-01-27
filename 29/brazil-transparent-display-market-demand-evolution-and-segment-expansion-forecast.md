@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transparent-display-market-demand-evolution-segment-co2ac/

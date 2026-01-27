@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cardiology-pacemaker-programmer-market-segment-level-3ozwf/

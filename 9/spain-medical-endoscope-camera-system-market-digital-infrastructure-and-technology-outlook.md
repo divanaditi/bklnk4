@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-endoscope-camera-system-market-digital-q3ixf/

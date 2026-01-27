@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-connected-smart-ship-market-segment-growth-ca3jf/

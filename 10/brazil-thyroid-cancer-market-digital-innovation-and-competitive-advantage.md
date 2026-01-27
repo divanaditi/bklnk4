@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thyroid-cancer-market-digital-innovation-competitive-ed5hf/

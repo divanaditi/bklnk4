@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-23-o-isopropylidene-d-threitol-cas-73346-74-4-zznbc/

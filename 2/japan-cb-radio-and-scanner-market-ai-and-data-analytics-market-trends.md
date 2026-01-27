@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cb-radio-scanner-market-ai-data-analytics-jbfvc/

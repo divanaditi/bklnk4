@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-change-configuration-management-iaipf/

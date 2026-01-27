@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aluminum-solar-panel-frame-qm6nc/

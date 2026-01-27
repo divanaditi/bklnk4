@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mobile-terminal-crystal-oscillators-market-hhmvc/

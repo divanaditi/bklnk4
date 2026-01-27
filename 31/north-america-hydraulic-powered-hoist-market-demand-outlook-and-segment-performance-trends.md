@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hydraulic-powered-hoist-market-demand-2lpgf/

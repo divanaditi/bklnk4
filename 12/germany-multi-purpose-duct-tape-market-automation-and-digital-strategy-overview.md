@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-multi-purpose-duct-tape-market-automation-digital-ekyoc/

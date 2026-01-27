@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-over-the-air-ota-testing-market-emerging-p2g4f/

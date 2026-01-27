@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyurethane-market-size-2026-use-e74tf/

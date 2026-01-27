@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-multimodal-imaging-market-smart-technology-vwrzf/

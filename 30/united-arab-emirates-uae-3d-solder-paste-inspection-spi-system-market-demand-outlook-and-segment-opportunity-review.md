@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-3d-solder-paste-inspection-spi-ckzpf/

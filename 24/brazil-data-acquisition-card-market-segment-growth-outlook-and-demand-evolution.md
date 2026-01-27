@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-data-acquisition-card-market-segment-growth-outlook-rrmvf/

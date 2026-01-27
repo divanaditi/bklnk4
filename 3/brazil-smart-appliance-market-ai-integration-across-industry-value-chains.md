@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-appliance-market-ai-integration-across-industry-xil0f/

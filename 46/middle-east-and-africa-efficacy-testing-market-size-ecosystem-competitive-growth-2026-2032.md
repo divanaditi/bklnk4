@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-efficacy-testing-market-size-bmb7f/

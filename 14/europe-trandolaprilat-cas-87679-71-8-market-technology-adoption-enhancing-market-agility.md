@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-trandolaprilat-cas-87679-71-8-market-technology-fiaef/

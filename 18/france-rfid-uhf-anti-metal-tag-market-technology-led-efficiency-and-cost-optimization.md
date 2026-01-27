@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rfid-uhf-anti-metal-tag-market-technology-led-ovbqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-ethyl-2-bromo-2333-tetrafluoropropionate-qjocf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-blood-bank-management-market-digital-5gr4c/

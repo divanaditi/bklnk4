@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-standalone-digital-signage-market-demand-thq5e/

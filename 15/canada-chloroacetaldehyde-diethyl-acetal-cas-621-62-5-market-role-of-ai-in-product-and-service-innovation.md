@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-chloroacetaldehyde-diethyl-acetal-cas-j8grf/

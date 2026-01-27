@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-extended-detection-response-solutions-1nq9f/

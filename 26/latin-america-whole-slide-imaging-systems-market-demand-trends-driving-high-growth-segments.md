@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-whole-slide-imaging-systems-market-demand-maddc/

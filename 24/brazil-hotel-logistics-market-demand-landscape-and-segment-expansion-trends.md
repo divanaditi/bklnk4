@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hotel-logistics-market-demand-landscape-0cqff/

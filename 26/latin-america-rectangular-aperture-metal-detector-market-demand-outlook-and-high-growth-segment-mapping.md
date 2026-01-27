@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-rectangular-aperture-metal-detector-iwz2c/

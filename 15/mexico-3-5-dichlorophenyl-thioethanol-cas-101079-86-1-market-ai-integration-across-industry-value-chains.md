@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-35-dichlorophenyl-thioethanol-cas-101079-86-1-zavqf/

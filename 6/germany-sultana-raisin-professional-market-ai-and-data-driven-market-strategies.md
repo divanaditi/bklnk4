@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-sultana-raisin-professional-market-ai-data-driven-vlvqf/

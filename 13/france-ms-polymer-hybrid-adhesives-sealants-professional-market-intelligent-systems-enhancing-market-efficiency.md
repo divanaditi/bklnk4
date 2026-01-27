@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ms-polymer-hybrid-adhesives-sealants-professional-roizf/

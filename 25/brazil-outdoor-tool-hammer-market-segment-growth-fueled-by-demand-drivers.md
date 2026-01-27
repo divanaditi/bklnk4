@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-outdoor-tool-hammer-market-segment-growth-yibuf/

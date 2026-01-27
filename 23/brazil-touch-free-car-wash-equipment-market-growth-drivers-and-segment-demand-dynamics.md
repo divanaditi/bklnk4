@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-touch-free-car-wash-equipment-market-growth-xenpf/

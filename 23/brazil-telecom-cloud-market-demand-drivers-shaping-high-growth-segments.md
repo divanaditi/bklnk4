@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-telecom-cloud-market-demand-drivers-shaping-c2ief/

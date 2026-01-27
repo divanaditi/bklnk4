@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-buflomedil-cas-55837-25-7-market-ai-adoption-k2vyf/

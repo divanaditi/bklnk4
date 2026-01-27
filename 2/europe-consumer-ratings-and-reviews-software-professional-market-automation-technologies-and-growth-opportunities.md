@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-consumer-ratings-reviews-software-professional-qa3pf/

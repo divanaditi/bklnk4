@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-n-3-chloro-4-3-fluorobenzyloxyphenyl-6-iodoquinazolin-4-amine-rj2pc/

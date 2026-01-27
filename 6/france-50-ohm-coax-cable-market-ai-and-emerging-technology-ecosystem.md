@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-50-ohm-coax-cable-market-ai-emerging-technology-l6ayf/

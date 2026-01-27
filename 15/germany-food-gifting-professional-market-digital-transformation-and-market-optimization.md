@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-food-gifting-professional-market-digital-transformation-goezf/

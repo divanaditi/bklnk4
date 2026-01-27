@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nir-analyzer-market-technology-innovation-1csye/

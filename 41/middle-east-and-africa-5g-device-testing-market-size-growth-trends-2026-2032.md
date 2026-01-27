@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-5g-device-testing-market-size-growth-a0bdf/

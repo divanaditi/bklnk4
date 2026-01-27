@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-combination-switch-market-smart-automation-zgdmf/

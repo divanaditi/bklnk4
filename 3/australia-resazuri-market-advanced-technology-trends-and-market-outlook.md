@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-resazuri-market-advanced-technology-trends-outlook-yn1af/

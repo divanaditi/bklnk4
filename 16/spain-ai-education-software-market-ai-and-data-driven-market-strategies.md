@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-education-software-market-data-driven-strategies-nshef/

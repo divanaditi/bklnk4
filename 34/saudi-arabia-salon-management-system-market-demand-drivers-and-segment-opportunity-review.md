@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-salon-management-system-market-demand-uk0nf/

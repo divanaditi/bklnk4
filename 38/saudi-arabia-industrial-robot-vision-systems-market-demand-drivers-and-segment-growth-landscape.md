@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-industrial-robot-vision-systems-market-pdw9c/

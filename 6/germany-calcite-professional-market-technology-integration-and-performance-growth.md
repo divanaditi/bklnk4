@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-calcite-professional-market-technology-integration-j69ef/

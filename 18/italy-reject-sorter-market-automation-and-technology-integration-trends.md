@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-reject-sorter-market-automation-technology-integration-xmxlf/

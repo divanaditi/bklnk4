@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-fluoro-4-iodoaniline-cas-29632-74-4-market-2v4kf/

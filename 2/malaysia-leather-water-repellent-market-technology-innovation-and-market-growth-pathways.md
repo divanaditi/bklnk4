@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-leather-water-repellent-market-technology-innovation-40rqc/

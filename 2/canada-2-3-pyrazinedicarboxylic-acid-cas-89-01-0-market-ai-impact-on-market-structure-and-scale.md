@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-23-pyrazinedicarboxylic-acid-cas-89-01-0-2zfjf/

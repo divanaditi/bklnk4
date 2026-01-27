@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-thread-inserts-market-demand-indicators-qum6f/

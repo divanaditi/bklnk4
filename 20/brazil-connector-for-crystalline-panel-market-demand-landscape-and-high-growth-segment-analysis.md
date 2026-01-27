@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-connector-crystalline-panel-market-demand-landscape-uweif/

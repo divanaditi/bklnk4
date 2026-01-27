@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-mosfet-gate-driver-market-digital-capabilities-ux4af/

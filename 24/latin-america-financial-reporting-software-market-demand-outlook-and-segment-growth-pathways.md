@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-financial-reporting-software-market-demand-outlook-vwagc/

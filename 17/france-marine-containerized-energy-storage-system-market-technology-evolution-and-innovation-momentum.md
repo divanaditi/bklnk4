@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-marine-containerized-energy-storage-system-market-uejxf/

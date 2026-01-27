@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ultrasonic-scanner-market-demand-mbrpf/

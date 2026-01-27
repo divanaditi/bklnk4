@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-cable-compound-market-digital-intelligence-jgedf/

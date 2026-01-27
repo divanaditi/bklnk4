@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-router-switch-infrastructure-market-demand-m4phf/

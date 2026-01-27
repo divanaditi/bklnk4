@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-magnetic-reed-proximity-sensors-bcv4f/

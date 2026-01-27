@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-radio-frequency-microneedle-beauty-device-xhm7c/

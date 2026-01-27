@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-m2m-homeland-security-market-segment-wzwcf/

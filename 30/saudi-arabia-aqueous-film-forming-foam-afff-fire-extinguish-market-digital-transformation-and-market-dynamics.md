@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-aqueous-film-forming-foam-afff-fire-extinguish-0j1jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-iron-red-phenolic-acid-resin-market-ai-driven-bdrpc/

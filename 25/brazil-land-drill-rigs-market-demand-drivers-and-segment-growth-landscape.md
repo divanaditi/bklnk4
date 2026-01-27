@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-land-drill-rigs-market-demand-drivers-segment-h70pf/

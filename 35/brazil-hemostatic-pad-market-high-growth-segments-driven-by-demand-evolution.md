@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hemostatic-pad-market-high-growth-segments-uhl4f/

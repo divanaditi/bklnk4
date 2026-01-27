@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-transtranstrans-159-cyclododecatriene-cas-676-22-2-sub7c/

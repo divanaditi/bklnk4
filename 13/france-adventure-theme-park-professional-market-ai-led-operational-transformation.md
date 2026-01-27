@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-adventure-theme-park-professional-market-ai-led-1iabf/

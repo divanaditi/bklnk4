@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-nn-dimethyl-16-hexanediamine-cas-13093-04-4-q6htf/

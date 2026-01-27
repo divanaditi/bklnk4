@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-methoxy-1-naphthaldehyde-cas-5392-12-1-market-z7c2c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-customer-experience-management-cem-professional-eahof/

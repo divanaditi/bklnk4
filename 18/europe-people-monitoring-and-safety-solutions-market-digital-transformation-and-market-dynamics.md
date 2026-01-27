@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-people-monitoring-safety-solutions-market-digital-transformation-h4xof/

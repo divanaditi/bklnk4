@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-16-hexanedioic-acid-market-pu6bc/

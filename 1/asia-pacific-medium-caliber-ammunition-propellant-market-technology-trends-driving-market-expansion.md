@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-medium-caliber-ammunition-propellant-lfvjf/

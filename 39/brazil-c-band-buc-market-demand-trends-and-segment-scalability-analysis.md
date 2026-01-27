@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-c-band-buc-market-demand-trends-segment-scalability-e0lxf/

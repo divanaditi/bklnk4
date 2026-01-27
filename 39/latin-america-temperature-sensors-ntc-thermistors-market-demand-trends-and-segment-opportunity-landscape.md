@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-temperature-sensors-ntc-thermistors-market-iizdf/

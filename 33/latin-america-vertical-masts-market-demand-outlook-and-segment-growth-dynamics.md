@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vertical-masts-market-demand-outlook-segment-favte/

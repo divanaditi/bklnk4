@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-anesthesia-monitor-market-high-growth-segments-e60lf/

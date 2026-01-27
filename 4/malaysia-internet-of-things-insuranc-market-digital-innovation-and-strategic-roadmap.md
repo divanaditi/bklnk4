@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-internet-things-insuranc-market-digital-bfx3c/

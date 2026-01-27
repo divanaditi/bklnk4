@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-on-camera-video-monitors-market-impact-dpcyf/

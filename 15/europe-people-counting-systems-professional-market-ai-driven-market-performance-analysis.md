@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-people-counting-systems-professional-market-foegf/

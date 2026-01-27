@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wall-mount-battery-chargers-market-digital-5ojqf/

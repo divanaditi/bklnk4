@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electronic-sand-table-market-growth-eif3f/

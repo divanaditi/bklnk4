@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-bath-towel-market-high-growth-segments-influenced-u8vaf/

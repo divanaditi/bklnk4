@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ip-pbx-market-automation-technologies-strategic-qiwvf/

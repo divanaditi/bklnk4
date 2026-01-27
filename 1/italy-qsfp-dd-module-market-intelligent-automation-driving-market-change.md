@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-qsfp-dd-module-market-intelligent-automation-c7o8f/

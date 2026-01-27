@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ultrasound-probe-holders-market-intelligent-2ytue/

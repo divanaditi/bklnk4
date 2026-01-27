@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-global-bopp-films-market-ai-adoption-across-ecosystems-roozf/

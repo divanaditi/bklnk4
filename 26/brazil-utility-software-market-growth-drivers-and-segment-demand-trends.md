@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-utility-software-market-growth-drivers-segment-p7uuc/

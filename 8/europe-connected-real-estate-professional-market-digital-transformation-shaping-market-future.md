@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-connected-real-estate-professional-market-digital-xr3jf/

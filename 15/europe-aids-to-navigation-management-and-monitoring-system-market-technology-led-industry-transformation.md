@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-aids-navigation-management-monitoring-vkbsf/

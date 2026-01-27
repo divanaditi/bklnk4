@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metabolic-disorder-drugs-market-technology-1lbbc/

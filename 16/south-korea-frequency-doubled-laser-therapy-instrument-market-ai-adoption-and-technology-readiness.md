@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-frequency-doubled-laser-therapy-instrument-yatxf/

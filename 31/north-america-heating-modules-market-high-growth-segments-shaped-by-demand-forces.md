@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heating-modules-market-high-growth-segments-2t7if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-application-development-life-cycle-ctd6f/

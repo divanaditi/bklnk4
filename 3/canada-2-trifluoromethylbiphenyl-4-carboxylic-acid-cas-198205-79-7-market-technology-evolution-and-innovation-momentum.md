@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-trifluoromethylbiphenyl-4-carboxylic-acid-qrlbf/

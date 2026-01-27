@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cut-flower-professional-market-impact-qhmmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-ethyl-alpha-chlorophenylacetate-cas-7pkvf/

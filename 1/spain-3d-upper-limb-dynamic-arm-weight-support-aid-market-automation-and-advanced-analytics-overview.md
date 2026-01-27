@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-3d-upper-limb-dynamic-arm-weight-support-aid-market-automation-ulnsf/

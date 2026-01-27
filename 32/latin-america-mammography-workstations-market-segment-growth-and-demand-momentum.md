@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mammography-workstations-market-segment-y7cpe/

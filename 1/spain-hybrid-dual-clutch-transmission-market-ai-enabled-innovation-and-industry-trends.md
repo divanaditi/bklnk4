@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-hybrid-dual-clutch-transmission-market-ai-enabled-q5ccf/

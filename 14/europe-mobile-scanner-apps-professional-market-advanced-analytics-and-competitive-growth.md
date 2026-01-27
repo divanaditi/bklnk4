@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-scanner-apps-professional-market-advanced-7a2rc/

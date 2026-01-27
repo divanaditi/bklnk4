@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-zipper-bag-market-demand-supported-oi9ee/

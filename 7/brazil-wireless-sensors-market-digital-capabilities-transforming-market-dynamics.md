@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-sensors-market-digital-capabilities-dg5sf/

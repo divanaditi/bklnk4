@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-multimodal-aigc-market-ai-automation-shaping-yuscf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-countertop-design-installation-market-ai-driven-37lvf/

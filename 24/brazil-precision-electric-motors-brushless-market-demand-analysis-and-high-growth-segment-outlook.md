@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-precision-electric-motors-brushless-market-fju0f/

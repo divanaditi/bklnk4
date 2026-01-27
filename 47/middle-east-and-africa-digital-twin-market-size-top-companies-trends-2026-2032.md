@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-digital-twin-market-size-top-lrwsf/

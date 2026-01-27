@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-building-management-market-demand-evolution-segment-9fjuf/

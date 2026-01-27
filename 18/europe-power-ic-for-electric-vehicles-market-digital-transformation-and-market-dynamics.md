@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-power-ic-electric-vehicles-market-digital-sjm3f/

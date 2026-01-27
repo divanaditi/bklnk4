@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-touch-sensors-market-technology-6kkof/

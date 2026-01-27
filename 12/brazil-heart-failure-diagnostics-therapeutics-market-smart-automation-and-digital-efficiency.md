@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heart-failure-diagnosticstherapeutics-market-smart-sfxoc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-optical-fibers-cables-market-ai-smart-technology-thi5f/

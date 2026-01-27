@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nail-polish-market-demand-dynamics-kikrc/

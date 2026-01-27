@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-multi-channel-ecg-machine-market-ulikf/

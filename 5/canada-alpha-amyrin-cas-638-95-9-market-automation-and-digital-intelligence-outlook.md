@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-alpha-amyrin-cas-638-95-9-market-automation-lnktf/

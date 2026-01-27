@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crude-oil-tanker-market-ai-led-digital-transformation-9zsff/

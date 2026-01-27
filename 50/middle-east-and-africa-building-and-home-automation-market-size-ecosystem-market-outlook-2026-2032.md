@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-building-home-automation-market-0st3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bathroom-thermo-ventilator-market-growth-m4jmc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-oven-market-technology-integration-umt1c/

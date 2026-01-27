@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-underground-mining-automation-0pxcf/

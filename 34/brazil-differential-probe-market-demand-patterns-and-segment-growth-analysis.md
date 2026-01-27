@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-differential-probe-market-demand-patterns-segment-bn9mf/

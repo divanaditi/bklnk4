@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-plastic-zipper-market-segment-growth-l0ssf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-composite-adhesive-tape-market-high-growth-segments-ndsnf/

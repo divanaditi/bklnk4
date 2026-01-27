@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-location-intelligence-solution-market-auraf/

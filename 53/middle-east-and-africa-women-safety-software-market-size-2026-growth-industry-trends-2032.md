@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-women-safety-software-market-jk3qf/

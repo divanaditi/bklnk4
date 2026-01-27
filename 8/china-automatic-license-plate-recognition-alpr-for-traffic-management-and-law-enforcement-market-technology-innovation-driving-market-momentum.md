@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automatic-license-plate-recognition-alpr-traffic-4flpf/

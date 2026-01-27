@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heavy-lift-vessel-market-outlook-3ypqe/

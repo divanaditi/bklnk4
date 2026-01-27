@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wireless-routers-professional-market-technology-olwff/

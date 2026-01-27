@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-user-activity-monitoring-uam-market-demand-okq3f/

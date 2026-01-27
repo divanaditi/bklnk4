@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-hpeg-vpeg-market-technology-disruption-zvt7f/

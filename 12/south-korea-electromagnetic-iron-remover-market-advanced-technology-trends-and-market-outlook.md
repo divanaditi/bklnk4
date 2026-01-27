@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electromagnetic-iron-remover-y84gf/

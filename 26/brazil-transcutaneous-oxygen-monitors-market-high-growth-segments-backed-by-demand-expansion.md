@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transcutaneous-oxygen-monitors-market-high-growth-0vkuc/

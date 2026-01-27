@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-seismic-simulators-market-size-trends-7o79e/

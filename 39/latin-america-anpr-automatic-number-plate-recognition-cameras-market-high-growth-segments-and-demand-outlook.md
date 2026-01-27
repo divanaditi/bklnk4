@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anpr-automatic-number-plate-recognition-cc70f/

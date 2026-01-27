@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-battery-packaging-professional-market-yxogc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-construction-mining-market-demand-outlook-segment-10d0f/

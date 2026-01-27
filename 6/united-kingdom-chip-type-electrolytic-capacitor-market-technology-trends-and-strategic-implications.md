@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-chip-type-electrolytic-capacitor-1rj4f/

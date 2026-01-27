@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-commercial-real-estate-market-n82lf/

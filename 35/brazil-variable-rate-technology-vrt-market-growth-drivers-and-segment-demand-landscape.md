@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-variable-rate-technology-vrt-market-growth-drivers-iulrf/

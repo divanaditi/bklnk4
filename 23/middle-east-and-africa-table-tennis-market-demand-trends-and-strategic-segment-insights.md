@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-table-tennis-market-demand-trends-au5nf/

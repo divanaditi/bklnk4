@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-battery-swapping-market-size-2026-xpcxf/

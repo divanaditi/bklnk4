@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-venting-needle-market-demand-landscape-2sewf/

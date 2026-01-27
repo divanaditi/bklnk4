@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-platooning-systems-professional-1ckqc/

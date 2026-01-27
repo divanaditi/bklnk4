@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carbon-quantum-dots-cqd-market-yjb4f/

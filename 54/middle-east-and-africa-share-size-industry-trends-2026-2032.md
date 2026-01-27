@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-share-size-industry-trends-2026-2032-9noaf/

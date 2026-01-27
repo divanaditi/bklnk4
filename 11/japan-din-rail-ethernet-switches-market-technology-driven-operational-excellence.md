@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-din-rail-ethernet-switches-market-technology-driven-j9ksf/

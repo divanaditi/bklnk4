@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cordless-handheld-garden-power-tool-rghef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-n-2-bromoethylphthalimide-cas-574-98-1-de0gc/

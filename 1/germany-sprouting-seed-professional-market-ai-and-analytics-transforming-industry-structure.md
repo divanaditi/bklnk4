@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-sprouting-seed-professional-market-ai-analytics-lhubf/

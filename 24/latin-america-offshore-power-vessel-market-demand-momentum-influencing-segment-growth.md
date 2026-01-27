@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-offshore-power-vessel-market-demand-sr7vc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-shoes-market-ai-driven-innovation-umcjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hand-held-ultrasonic-scanner-market-digital-q3dqf/

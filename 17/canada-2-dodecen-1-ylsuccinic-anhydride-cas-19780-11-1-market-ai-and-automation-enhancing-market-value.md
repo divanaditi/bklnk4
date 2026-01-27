@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-dodecen-1-ylsuccinic-anhydride-cas-19780-11-1-g2gyc/

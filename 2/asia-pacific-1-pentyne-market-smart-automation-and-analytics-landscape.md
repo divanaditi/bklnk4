@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-1-pentyne-market-smart-automation-analytics-d4mvc/

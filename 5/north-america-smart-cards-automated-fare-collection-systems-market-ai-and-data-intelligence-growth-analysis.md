@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-cards-automated-fare-collection-fsgsf/

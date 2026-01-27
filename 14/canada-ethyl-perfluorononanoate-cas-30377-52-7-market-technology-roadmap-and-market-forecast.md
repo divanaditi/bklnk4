@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-ethyl-perfluorononanoate-cas-30377-52-7-market-p3psc/

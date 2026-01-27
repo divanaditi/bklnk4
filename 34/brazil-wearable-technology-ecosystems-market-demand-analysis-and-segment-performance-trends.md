@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-technology-ecosystems-market-demand-sv0cf/

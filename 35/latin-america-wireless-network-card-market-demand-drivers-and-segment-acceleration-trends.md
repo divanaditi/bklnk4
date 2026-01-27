@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wireless-network-card-market-demand-drivers-ne5af/

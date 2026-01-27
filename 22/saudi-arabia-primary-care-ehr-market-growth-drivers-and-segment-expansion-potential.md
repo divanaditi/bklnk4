@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-primary-care-ehr-market-growth-drivers-hs69f/

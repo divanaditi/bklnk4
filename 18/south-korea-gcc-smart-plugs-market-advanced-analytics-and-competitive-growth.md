@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-smart-plugs-market-advanced-analytics-vktyf/

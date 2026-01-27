@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-power-transistors-professional-market-machine-cc0pf/

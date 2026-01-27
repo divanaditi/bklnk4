@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bedding-hotels-professional-market-digital-transformation-v7gsc/

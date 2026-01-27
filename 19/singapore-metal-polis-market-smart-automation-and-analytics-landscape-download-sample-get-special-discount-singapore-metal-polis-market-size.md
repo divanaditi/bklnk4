@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metal-polis-market-smart-automation-analytics-d43le/

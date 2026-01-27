@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cooling-coil-coating-market-ai-automation-8lxgc/

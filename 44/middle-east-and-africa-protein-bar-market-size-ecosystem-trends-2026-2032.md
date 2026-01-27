@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-protein-bar-market-size-ecosystem-fr2vf/

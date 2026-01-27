@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-waist-check-market-digital-intelligence-nyccf/

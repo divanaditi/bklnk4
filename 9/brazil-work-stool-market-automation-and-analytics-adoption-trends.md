@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-work-stool-market-automation-analytics-c7v8f/

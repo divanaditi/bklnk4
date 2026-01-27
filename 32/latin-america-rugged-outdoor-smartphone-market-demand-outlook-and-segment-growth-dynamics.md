@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-rugged-outdoor-smartphone-market-demand-vdwqe/

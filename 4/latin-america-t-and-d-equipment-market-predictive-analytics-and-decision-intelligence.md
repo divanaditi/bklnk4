@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-d-equipment-market-predictive-analytics-decision-fy1ff/

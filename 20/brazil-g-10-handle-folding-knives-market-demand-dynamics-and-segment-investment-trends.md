@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-g-10-handle-folding-knives-market-demand-dynamics-segment-smemf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ip-management-software-market-segment-gervf/

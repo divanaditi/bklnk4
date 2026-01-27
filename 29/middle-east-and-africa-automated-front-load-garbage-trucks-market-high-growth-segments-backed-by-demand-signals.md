@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automated-front-load-garbage-trucks-tanuja-date-l4pef/

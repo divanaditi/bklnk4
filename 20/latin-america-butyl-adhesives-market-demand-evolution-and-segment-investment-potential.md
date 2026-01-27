@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-butyl-adhesives-market-demand-evolution-p8kaf/

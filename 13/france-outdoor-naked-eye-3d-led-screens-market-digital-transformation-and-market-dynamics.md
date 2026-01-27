@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-outdoor-naked-eye-3d-led-screens-market-1judf/

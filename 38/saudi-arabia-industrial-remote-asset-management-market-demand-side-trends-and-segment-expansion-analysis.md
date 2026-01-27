@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-industrial-remote-asset-management-yje0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-long-term-acute-care-products-market-demand-trends-e28vc/

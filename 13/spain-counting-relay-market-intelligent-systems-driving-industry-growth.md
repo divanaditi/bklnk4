@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-counting-relay-market-intelligent-systems-nw1cf/

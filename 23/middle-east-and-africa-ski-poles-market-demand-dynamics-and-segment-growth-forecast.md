@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ski-poles-market-demand-dynamics-vbfbf/

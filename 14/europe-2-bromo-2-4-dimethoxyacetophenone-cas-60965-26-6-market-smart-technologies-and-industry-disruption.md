@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-2-bromo-24-dimethoxyacetophenone-cas-60965-26-6-fkutc/

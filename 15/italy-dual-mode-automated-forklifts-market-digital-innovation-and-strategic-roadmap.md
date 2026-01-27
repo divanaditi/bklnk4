@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-dual-mode-automated-forklifts-market-digital-innovation-qmymf/

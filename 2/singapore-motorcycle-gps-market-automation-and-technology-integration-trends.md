@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-motorcycle-gps-market-automation-technology-wgmjc/

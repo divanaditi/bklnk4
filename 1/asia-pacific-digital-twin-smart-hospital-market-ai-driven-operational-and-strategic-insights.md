@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-digital-twin-smart-hospital-market-ai-driven-7oh4f/

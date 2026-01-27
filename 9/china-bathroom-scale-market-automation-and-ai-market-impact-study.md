@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bathroom-scale-market-automation-ai-impact-study-fu9vf/

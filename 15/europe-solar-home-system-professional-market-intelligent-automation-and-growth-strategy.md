@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-solar-home-system-professional-market-intelligent-pz2ef/

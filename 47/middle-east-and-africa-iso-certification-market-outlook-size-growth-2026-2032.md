@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-iso-certification-market-outlook-3nnff/

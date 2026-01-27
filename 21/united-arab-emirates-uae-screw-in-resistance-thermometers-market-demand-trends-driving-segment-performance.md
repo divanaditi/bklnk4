@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-screw-in-resistance-thermometers-5ysuf/

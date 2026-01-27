@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wood-core-materials-market-demand-side-trends-na07f/

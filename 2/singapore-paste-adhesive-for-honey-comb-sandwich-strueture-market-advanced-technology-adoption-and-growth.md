@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-paste-adhesive-honey-comb-sandwich-strueture-v5fmc/

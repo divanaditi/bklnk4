@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cased-telescoped-ammunition-1y7hf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spoolable-reinforced-pipe-market-technology-led-qtx2f/

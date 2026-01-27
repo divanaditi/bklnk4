@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cashless-payments-market-technology-driven-e1wwc/

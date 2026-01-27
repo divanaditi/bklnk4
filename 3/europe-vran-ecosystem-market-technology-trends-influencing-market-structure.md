@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-vran-ecosystem-market-technology-trends-influencing-gpxlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-virtual-data-room-physical-security-market-ai-adoption-bff8c/

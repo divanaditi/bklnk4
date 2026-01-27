@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pv-simulation-test-power-supply-market-ai-analytics-zuc9f/

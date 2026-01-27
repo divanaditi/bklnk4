@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-intraoperative-magnetic-resonance-imaging-ftcdc/

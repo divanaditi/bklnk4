@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-front-windshield-low-speed-cars-roydc/

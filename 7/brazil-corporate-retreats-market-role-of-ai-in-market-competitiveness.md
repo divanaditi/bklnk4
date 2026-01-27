@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-corporate-retreats-market-role-ai-competitiveness-fb5zf/

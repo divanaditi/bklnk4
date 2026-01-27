@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-wired-gateway-market-intelligent-automation-9ovuf/

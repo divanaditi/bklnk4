@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-bulked-glass-yarn-market-ai-automation-investment-sxqpf/

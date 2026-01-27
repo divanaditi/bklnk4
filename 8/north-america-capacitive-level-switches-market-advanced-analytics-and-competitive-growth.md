@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-capacitive-level-switches-market-advanced-zehmf/

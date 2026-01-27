@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-edible-spraying-paint-market-ai-adoption-across-core-7ynef/

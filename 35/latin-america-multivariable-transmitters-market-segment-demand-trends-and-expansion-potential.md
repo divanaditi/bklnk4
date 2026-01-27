@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-multivariable-transmitters-market-kl8zf/

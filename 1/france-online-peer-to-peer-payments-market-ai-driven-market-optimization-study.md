@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-online-peer-payments-market-ai-driven-optimization-cyzif/

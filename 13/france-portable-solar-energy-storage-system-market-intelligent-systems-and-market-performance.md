@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-portable-solar-energy-storage-system-bmfcf/

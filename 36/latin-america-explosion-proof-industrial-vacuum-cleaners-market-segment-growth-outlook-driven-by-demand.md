@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-explosion-proof-industrial-vacuum-pi4cf/

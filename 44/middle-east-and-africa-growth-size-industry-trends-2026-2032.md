@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-growth-size-industry-trends-2026-2032-quhnc/

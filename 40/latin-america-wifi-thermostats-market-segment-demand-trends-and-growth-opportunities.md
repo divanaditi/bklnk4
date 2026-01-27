@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wifi-thermostats-market-segment-demand-lw3of/

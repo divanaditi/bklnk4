@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-commercial-truck-starter-motor-market-smart-automation-cdwjf/

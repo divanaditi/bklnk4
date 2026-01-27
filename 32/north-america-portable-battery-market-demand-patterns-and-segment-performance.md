@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-portable-battery-market-demand-patterns-ljagf/

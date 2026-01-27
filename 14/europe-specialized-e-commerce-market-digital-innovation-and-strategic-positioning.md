@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-specialized-e-commerce-market-digital-u5wlc/

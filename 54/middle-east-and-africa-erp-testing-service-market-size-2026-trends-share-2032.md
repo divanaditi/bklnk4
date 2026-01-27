@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-erp-testing-service-market-wqe2f/

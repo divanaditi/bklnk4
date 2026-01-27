@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-card-gas-meter-market-technology-led-mhm0e/

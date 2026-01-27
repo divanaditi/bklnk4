@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-2-chlorobenzenesulfonyl-chloride-cas-351003-52-6-o6i0c/

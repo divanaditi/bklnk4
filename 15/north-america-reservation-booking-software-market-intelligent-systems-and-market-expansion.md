@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-reservation-booking-software-market-m2xbf/

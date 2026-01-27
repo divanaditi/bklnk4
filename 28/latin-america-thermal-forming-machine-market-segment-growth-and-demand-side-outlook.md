@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-forming-machine-market-segment-z1p7c/

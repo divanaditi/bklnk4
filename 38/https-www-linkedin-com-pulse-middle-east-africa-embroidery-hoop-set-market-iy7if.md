@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-embroidery-hoop-set-market-iy7if/

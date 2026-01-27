@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-recreational-boating-market-rzufc/

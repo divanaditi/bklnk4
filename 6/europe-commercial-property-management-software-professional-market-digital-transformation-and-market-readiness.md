@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-commercial-property-management-software-ltz3f/

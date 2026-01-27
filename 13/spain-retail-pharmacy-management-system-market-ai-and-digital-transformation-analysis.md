@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-retail-pharmacy-management-system-market-okg2f/

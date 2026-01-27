@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-printed-flexible-sensors-professional-market-3cuwf/

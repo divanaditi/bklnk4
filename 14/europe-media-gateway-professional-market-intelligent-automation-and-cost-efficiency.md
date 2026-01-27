@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-media-gateway-professional-market-intelligent-automation-moifc/

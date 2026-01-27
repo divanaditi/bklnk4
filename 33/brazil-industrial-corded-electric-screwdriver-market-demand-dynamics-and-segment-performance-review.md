@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-corded-electric-screwdriver-market-akxaf/

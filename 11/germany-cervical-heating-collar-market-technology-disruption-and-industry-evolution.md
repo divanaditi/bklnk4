@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cervical-heating-collar-market-technology-kgivc/

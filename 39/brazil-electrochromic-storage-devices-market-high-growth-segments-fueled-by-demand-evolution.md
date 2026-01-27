@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrochromic-storage-devices-market-high-growth-ruhgf/

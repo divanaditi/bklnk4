@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dental-chair-units-market-digital-transformation-0mg4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-metal-rail-power-supply-market-technology-vjeyf/

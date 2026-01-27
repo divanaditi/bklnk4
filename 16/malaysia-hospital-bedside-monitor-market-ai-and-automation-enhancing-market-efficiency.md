@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hospital-bedside-monitor-market-ai-automation-njfgf/

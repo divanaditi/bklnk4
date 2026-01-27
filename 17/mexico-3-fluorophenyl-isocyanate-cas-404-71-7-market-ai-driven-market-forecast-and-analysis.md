@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-fluorophenyl-isocyanate-cas-404-71-7-drwpc/

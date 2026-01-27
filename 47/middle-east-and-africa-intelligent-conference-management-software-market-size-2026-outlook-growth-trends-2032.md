@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-intelligent-conference-management-7rctf/

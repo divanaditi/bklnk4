@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crane-aftermarket-market-ai-led-operational-transformation-bzrhf/

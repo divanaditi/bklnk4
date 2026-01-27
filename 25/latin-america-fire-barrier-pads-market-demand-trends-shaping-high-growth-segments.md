@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fire-barrier-pads-market-demand-trends-jimvc/

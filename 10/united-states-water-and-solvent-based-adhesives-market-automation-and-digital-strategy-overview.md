@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-water-solvent-based-adhesives-market-automation-x2fxf/

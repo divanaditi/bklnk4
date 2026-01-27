@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-farm-variable-rate-technologies-vrt-market-sqeff/

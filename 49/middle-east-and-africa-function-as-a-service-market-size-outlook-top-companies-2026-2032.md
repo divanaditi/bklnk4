@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-function-as-a-service-market-size-7dh8f/

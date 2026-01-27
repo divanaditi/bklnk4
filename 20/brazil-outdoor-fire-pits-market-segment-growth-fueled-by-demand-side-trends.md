@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-outdoor-fire-pits-market-segment-growth-2rsrf/

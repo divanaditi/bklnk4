@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-home-textile-market-technology-innovation-dmogf/

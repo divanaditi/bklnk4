@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-2-thienyl-1-propanone-cas-13679-75-9-gxjlf/

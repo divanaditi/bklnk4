@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-methyl-tripropyl-ammonium-chloride-sicyf/

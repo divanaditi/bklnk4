@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-yzs-vibrating-motor-market-digital-transformation-jxstf/

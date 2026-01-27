@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-snp-genotyping-analysis-market-demand-outlook-o5gxf/

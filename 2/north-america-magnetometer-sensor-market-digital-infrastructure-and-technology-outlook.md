@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-magnetometer-sensor-market-digital-infrastructure-3e1vf/

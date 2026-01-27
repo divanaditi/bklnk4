@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-covid-19-crude-tall-oil-market-ai-kcl9f/

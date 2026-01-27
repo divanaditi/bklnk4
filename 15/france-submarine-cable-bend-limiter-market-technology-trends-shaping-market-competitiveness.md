@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-submarine-cable-bend-limiter-market-technology-wqk5f/

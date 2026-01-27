@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ar-cloud-professional-market-technology-led-business-1apdf/

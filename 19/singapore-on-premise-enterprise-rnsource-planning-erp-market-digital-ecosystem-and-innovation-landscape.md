@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-on-premise-enterprise-rnsource-planning-o0zse/

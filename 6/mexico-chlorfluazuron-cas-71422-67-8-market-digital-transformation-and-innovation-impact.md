@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-chlorfluazuron-cas-71422-67-8-market-08lif/

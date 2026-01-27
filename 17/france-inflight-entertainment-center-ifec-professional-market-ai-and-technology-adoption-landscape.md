@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-inflight-entertainment-center-ifec-professional-fvbnf/

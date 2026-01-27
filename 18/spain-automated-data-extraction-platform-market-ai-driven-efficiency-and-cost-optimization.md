@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automated-data-extraction-platform-market-ai-driven-xlaof/

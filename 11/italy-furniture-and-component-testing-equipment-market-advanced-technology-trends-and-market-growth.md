@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-furniture-component-testing-equipment-2iigf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ai-retail-e-commerce-market-ai-enabled-gwggf/

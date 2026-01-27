@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cardiac-rhythm-management-crm-devices-batteries-nu7jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gold-tester-market-demand-side-jvp8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-body-worn-video-market-ai-adoption-across-bgx4f/

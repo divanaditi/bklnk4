@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-fog-computing-market-demand-outlook-qdq0f/

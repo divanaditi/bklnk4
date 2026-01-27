@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-health-intelligent-virtual-assistant-p2vtf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-parking-management-solution-professional-hhemf/

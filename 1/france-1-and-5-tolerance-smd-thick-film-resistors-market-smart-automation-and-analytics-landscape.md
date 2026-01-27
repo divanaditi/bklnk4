@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-1-5-tolerance-smd-thick-film-resistors-market-7o42f/

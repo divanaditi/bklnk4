@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-agriculture-gps-market-digital-transformation-bvugf/

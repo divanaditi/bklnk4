@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-platter-substrate-material-market-segment-growth-w65zf/

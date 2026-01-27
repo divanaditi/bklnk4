@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-big-data-flight-operations-market-strategic-92v8f/

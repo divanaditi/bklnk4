@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stripping-pliers-market-segment-ep7bf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-voice-training-software-market-size-ky6df/

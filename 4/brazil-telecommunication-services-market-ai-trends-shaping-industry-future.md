@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-telecommunication-services-market-ai-trends-pjypf/

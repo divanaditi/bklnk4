@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-flat-wire-power-inductors-market-intelligent-xgpwf/

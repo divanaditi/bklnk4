@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-titanium-scrap-market-automation-6rbmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pullulan-market-high-growth-segments-q7luf/

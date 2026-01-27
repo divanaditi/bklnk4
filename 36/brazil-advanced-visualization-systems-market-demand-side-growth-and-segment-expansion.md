@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-advanced-visualization-systems-market-demand-side-evvkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-synthetic-rutile-market-demand-outlook-wwm8c/

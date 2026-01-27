@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-transcriptome-market-advanced-technologies-t2imf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-biomimetic-technology-market-growth-6bfqf/

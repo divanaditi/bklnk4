@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pick-and-place-machine-market-demand-analysis-pgyxf/

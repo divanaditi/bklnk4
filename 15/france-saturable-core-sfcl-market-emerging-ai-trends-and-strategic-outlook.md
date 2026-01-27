@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-saturable-core-sfcl-market-emerging-ai-trends-xw04f/

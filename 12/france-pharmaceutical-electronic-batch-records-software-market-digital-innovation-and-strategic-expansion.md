@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pharmaceutical-electronic-batch-records-software-o8awc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-aircraft-connected-cockpit-solution-market-qlptf/

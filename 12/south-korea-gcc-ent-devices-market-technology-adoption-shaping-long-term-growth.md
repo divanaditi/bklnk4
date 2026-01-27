@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-ent-devices-market-technology-adoption-3mhwf/

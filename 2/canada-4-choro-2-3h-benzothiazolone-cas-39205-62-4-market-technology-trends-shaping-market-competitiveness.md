@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-choro-23h-benzothiazolone-cas-39205-62-4-j1nef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wireless-mesh-networking-professional-market-role-dyvif/

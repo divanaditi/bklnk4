@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-counter-lightning-interference-market-jkwsf/

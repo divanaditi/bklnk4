@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plant-factory-grow-lights-market-demand-trends-driving-jt0lf/

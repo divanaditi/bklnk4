@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-z-glntrt-oh-cas-132388-60-4-market-ai-adoption-1nbgc/

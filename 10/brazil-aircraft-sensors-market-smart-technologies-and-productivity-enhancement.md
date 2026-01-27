@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aircraft-sensors-market-smart-technologies-hntuf/

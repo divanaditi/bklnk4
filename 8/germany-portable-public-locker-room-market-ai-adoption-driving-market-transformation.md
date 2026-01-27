@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-portable-public-locker-room-market-ai-adoption-2zd3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-metallic-foil-carrier-tapes-market-technology-c2aef/

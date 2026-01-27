@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-floor-polisher-market-demand-dynamics-lgjgc/

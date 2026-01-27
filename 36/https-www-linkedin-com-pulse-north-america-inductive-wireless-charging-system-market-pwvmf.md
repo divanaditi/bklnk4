@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-inductive-wireless-charging-system-market-pwvmf/

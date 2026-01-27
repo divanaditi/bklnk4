@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-insulated-electrical-wire-crimpers-market-technology-lklif/

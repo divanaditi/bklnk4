@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-printer-market-ai-analytics-sq4jf/

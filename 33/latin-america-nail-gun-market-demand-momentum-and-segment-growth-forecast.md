@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nail-gun-market-demand-momentum-nyjke/

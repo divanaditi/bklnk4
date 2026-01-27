@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-semantic-knowledge-discovery-software-rlngf/

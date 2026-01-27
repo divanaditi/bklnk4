@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mpw-service-market-automation-digital-s9bhf/

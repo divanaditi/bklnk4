@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-anti-rolling-gyro-arg-ky3ze/

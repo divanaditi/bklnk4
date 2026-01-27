@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-diamond-coatings-market-demand-momentum-zrkuc/

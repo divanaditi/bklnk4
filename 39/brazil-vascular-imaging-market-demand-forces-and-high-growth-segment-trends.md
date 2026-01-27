@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vascular-imaging-market-demand-forces-9j8kf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-geofencing-market-high-growth-segment-forecast-kzbsf/

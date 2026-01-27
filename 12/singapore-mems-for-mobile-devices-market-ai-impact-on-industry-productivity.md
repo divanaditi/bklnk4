@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mems-mobile-devices-market-ai-impact-industry-zvs5f/

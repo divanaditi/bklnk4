@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-electric-vehicle-battery-thermal-management-1lwef/

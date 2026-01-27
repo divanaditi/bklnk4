@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-lifting-slings-market-demand-drivers-xzazf/

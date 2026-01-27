@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-laptop-charging-trolley-market-ai-powered-v1l1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pend-drive-market-demand-landscape-segment-sysef/

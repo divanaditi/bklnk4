@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrosurgery-equipment-market-technology-adoption-minlf/

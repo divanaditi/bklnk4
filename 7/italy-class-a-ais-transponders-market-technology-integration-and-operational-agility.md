@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-class-ais-transponders-market-technology-ihprf/

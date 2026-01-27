@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cbd-vaping-pods-market-technology-integration-663ff/

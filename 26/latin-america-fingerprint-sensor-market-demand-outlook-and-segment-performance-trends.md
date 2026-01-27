@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fingerprint-sensor-market-demand-outlook-5zgqc/

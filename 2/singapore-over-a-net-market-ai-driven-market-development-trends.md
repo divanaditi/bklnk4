@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-over-net-market-ai-driven-development-trends-3k6rc/

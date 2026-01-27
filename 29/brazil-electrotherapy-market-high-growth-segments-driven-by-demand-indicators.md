@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrotherapy-market-high-growth-segments-driven-vyhqc/

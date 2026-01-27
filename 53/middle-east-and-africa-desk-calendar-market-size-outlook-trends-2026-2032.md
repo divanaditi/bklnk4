@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-desk-calendar-market-size-outlook-i3s9f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-straw-wrapping-paper-market-demand-6cocf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-voc-sensors-monitors-market-segment-growth-jrnlc/

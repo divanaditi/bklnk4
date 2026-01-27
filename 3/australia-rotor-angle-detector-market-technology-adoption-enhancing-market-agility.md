@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rotor-angle-detector-market-technology-adoption-5b7vf/

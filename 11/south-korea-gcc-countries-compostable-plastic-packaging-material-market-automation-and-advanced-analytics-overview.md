@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-countries-compostable-plastic-packaging-z9c8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heated-wiper-fluid-market-demand-trends-segment-f2zbc/

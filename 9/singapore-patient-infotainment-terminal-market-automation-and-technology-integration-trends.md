@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-patient-infotainment-terminal-market-automation-4vyzf/

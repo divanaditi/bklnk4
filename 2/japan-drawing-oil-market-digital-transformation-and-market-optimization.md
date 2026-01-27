@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-drawing-oil-market-digital-transformation-optimization-tjugc/

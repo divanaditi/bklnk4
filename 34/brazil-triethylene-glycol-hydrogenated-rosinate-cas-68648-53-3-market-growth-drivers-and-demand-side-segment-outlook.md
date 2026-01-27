@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-triethylene-glycol-hydrogenated-rosinate-cas-2hqhf/

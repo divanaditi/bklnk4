@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ecg-biometric-technology-market-demand-momentum-nwrle/

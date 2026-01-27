@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hand-protection-products-market-segment-demand-wkq0f/

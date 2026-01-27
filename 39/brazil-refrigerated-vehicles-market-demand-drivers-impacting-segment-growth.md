@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-refrigerated-vehicles-market-demand-drivers-impacting-vpdbf/

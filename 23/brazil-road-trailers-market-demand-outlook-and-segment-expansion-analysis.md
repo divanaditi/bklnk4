@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-road-trailers-market-demand-outlook-segment-hmvwf/

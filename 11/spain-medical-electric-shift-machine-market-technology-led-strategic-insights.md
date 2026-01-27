@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-electric-shift-machine-market-technology-led-j5h5f/

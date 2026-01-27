@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-navigation-shoes-market-demand-analysis-ipore/

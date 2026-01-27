@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-spelter-wire-rope-socket-market-size-use-7jdbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-desktop-reference-thermometer-market-ai-automation-ech4f/

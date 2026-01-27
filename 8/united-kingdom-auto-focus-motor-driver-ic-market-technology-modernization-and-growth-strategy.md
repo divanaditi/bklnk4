@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-auto-focus-motor-driver-ic-market-wk4jf/

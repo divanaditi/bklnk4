@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-fetal-heart-rate-monitor-market-technology-cycbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-macedonia-hydropower-market-digital-capabilities-gnb2c/

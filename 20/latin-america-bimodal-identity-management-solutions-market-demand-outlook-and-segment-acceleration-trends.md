@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bimodal-identity-management-zguef/

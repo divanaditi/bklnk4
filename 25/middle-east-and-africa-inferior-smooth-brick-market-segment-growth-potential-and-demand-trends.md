@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-inferior-smooth-brick-market-segment-5gkyf/

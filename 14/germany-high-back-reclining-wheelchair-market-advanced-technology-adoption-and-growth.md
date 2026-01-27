@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-high-back-reclining-wheelchair-market-advanced-zaqnc/

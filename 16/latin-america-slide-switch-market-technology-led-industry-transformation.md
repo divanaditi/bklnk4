@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-slide-switch-market-technology-led-egixf/

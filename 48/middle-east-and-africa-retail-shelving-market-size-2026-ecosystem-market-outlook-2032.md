@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-retail-shelving-market-size-2026-ecosystem-scaxf/

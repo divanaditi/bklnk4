@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-lightweight-machine-lwm2m-market-advanced-nr3bf/

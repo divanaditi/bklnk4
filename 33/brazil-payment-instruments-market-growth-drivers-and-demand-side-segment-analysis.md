@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-payment-instruments-market-growth-drivers-my9we/

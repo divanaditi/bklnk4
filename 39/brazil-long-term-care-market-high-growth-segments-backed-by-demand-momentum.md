@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-long-term-care-market-high-growth-segments-vkn9f/

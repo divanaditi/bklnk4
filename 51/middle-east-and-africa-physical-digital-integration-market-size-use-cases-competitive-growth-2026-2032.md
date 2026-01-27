@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-physical-digital-integration-scauc/

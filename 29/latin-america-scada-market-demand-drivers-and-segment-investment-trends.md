@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-scada-market-demand-drivers-segment-0982c/

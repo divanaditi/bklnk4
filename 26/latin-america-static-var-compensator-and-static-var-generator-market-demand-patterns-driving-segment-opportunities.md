@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-static-var-compensator-generator-market-vcc4c/

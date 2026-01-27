@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-curtain-wall-glass-market-technology-trends-0aalf/

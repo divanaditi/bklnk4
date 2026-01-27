@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blockchain-telecom-market-segment-growth-s9z0f/

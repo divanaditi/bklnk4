@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-power-lift-gate-system-market-qf3af/

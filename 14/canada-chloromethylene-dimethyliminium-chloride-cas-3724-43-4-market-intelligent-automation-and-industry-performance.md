@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-chloromethylenedimethyliminium-chloride-cas-j1jkc/

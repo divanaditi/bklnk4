@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-pendulum-anemometer-market-role-ai-risk-6ktsf/

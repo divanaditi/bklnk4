@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-usb-card-reader-market-high-growth-qlkwf/

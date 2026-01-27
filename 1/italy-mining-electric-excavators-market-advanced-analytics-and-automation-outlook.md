@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-mining-electric-excavators-market-advanced-xihbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-thermostat-market-automation-technologies-m4xgf/

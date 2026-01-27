@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-furnace-tube-surface-thermocouple-market-ai-enabled-jisof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-semiconductor-defect-automated-inspection-3pdnf/

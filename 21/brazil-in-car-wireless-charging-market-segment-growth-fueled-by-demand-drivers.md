@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-in-car-wireless-charging-market-segment-growth-ed6qf/

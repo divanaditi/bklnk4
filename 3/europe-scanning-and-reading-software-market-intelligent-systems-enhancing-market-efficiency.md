@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-scanning-reading-software-market-intelligent-ccxcf/

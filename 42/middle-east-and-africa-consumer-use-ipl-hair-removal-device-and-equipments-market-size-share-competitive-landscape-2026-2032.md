@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-consumer-use-ipl-hair-removal-duuff/

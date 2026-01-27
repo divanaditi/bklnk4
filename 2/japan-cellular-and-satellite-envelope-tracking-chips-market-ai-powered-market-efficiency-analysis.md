@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cellular-satellite-envelope-tracking-chips-market-2kryc/

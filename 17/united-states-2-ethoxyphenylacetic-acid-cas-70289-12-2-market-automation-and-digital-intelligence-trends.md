@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-2-ethoxyphenylacetic-acid-cas-70289-12-2-g3xoc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-watch-market-demand-dynamics-emerging-segment-imkze/

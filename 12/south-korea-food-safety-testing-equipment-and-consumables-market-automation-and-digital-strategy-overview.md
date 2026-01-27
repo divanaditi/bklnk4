@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-safety-testing-equipment-consumables-a9kjf/

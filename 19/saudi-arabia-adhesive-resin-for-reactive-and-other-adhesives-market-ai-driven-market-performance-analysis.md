@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-adhesive-resin-reactive-other-adhesives-rbnqe/

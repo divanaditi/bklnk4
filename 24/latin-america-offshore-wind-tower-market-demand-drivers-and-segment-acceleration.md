@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-offshore-wind-tower-market-demand-drivers-n8vzc/

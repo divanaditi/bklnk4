@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-photometric-detector-fpd-market-ai-analytics-zk7tc/

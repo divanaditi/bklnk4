@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-3d-cad-manufacturing-professional-ipodf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ambulatory-electrical-monitors-market-technology-v0adf/

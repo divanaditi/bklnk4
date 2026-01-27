@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-pocket-sized-ultrasound-device-market-advanced-2welf/

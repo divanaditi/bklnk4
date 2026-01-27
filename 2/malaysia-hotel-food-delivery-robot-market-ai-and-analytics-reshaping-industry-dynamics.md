@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hotel-food-delivery-robot-market-ai-az2mc/

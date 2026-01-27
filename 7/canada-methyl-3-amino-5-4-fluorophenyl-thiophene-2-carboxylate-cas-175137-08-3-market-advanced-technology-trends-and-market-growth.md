@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-methyl-3-amino-5-4-fluorophenylthiophene-2-carboxylate-s0xlf/

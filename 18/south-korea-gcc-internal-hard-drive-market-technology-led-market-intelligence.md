@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-internal-hard-drive-market-technology-led-tcl3f/

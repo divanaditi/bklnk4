@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-insulin-drug-delivery-technologies-market-demand-op3bf/

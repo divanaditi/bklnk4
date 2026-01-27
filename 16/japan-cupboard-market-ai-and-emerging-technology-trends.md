@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cupboard-market-ai-emerging-technology-trends-ireaf/

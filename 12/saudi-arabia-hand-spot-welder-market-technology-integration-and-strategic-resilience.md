@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hand-spot-welder-market-technology-integration-yymtc/

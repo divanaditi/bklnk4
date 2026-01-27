@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-storage-oscilloscopes-market-i2edf/

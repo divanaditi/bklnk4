@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-forage-seed-professional-market-ai-enabled-efficiency-d3euf/

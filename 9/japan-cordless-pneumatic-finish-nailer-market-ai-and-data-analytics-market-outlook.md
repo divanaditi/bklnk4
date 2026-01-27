@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cordless-pneumatic-finish-nailer-market-ai-data-7qvvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-long-carbon-fiber-thermoplastic-market-demand-h85if/

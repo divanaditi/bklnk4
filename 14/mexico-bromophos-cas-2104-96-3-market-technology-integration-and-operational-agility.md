@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-bromophos-cas-2104-96-3-market-technology-j2ewc/

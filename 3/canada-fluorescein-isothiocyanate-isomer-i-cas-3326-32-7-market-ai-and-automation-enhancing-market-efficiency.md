@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-fluorescein-isothiocyanate-isomer-i-cas-3326-32-7-twxdf/

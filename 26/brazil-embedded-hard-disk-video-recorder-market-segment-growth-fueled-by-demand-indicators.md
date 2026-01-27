@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-embedded-hard-disk-video-recorder-market-segment-growth-wdl3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-bone-mineral-densitometry-bmd-market-segment-ga23f/

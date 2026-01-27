@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-executive-contemporary-desk-market-6zr2f/

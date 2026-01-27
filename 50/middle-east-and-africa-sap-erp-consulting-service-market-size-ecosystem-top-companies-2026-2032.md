@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sap-erp-consulting-service-market-h7nqf/

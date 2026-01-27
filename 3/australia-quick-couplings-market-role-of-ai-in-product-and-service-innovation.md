@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quick-couplings-market-role-ai-product-r4hpf/

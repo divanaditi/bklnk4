@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-wiper-link-market-growth-drivers-t9tac/

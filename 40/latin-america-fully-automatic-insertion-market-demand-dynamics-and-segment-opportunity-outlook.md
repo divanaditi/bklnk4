@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fully-automatic-insertion-market-demand-3jcmf/

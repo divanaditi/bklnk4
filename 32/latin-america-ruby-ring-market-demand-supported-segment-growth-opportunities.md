@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ruby-ring-market-demand-supported-segment-9yswe/

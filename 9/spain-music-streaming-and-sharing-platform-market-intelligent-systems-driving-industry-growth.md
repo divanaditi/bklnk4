@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-music-streaming-sharing-platform-market-intelligent-ltatf/

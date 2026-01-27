@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-n-2-cyano11-biphenyl-4-ylmethyl-l-valine-jgpbf/

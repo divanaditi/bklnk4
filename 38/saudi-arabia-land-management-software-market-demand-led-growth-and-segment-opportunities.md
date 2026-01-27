@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-land-management-software-market-demand-led-zkwrc/

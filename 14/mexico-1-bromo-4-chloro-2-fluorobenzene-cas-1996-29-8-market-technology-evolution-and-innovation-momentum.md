@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-1-bromo-4-chloro-2-fluorobenzene-cas-1996-29-8-vjqnf/

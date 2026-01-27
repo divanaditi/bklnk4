@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-fall-detection-system-market-ai-digital-ecosystem-jl5hf/

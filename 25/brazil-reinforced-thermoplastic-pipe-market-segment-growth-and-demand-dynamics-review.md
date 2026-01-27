@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-reinforced-thermoplastic-pipe-market-segment-w8y8f/

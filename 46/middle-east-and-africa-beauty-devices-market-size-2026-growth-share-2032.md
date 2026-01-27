@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-beauty-devices-market-size-2026-pa8hf/

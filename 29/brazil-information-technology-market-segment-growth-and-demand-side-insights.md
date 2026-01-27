@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-information-technology-market-segment-growth-6icxf/

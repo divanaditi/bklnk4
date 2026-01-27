@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vessel-sealing-devices-market-size-f89zf/

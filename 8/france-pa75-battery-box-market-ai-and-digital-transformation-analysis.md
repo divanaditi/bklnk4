@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pa75-battery-box-market-ai-digital-oaw0f/

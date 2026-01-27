@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-dehydroabietylamine-cas-1446-61-3-market-gzgyf/

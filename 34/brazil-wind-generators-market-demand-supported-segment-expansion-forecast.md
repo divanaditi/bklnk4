@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-generators-market-demand-supported-segment-expansion-fwodf/

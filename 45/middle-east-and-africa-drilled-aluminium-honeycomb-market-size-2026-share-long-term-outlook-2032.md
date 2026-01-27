@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drilled-aluminium-honeycomb-u4tkc/

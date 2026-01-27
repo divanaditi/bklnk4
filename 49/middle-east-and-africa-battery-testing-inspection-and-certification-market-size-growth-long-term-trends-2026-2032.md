@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-battery-testing-inspection-certification-mhf9f/

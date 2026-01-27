@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-molded-interconnect-substrate-mis-market-ai-driven-ode7f/

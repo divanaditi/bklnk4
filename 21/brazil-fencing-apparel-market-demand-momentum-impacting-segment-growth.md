@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fencing-apparel-market-demand-momentum-impacting-vw5nf/

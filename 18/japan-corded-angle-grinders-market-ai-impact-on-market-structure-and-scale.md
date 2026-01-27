@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-corded-angle-grinders-market-ai-impact-structure-i6xjf/

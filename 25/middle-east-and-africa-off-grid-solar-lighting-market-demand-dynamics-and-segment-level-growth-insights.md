@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-off-grid-solar-lighting-market-jwcwf/

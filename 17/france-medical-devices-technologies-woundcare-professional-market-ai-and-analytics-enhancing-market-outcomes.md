@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-medical-devices-technologies-woundcare-9h4vf/

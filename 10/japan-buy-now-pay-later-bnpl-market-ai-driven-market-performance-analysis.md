@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-buy-now-pay-later-bnpl-market-ai-driven-performance-s11bf/

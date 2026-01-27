@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-manual-ranging-car-market-technology-yvvwf/

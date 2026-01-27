@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cloud-computing-market-demand-drivers-segment-a8iuf/

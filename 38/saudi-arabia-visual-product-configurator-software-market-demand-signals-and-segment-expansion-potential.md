@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-visual-product-configurator-software-9001c/

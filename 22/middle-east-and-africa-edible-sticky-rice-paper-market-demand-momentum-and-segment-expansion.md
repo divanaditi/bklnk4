@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-edible-sticky-rice-paper-market-zjlgf/

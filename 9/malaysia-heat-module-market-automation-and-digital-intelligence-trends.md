@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heat-module-market-automation-digital-intelligence-bmhif/

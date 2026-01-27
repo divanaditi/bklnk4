@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automatic-car-wash-machines-professional-market-technology-led-fbywf/

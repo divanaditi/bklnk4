@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-bras-market-ai-adoption-transformation-pvbrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-ropivacaine-hydrochloride-cas-98717-15-8-mx5ff/

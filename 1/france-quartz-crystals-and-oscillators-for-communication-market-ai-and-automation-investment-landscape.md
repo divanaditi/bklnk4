@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-quartz-crystals-oscillators-communication-privf/

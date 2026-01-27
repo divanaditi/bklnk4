@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-clinical-supply-chain-management-2ahvc/

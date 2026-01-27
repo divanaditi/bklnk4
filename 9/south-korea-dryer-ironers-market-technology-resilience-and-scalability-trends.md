@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-dryer-ironers-market-technology-resilience-bjmff/

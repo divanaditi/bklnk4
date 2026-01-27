@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-pentenylboronic-acid-cas-104376-24-1-aihlf/

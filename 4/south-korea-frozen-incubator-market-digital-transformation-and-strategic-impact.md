@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-frozen-incubator-market-digital-transformation-yofac/

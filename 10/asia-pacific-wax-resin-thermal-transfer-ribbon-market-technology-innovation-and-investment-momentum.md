@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-wax-resin-thermal-transfer-ribbon-market-egs7f/

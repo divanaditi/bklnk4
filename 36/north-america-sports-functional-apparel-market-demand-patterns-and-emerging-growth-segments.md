@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-sports-functional-apparel-market-m4fdf/

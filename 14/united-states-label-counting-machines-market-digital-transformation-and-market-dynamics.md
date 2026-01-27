@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-label-counting-machines-market-digital-t8acf/

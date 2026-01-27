@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-adaptive-footwear-market-ai-automation-transforming-xfjtf/

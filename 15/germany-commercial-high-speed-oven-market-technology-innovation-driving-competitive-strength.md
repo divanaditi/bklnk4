@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-commercial-high-speed-oven-market-technology-innovation-5zk0f/

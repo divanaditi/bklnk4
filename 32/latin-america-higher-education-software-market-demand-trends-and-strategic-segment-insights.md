@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-higher-education-software-market-demand-trends-pftqe/

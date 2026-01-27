@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gps-antenna-boats-market-size-2026-qtqjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-petrified-wood-market-ai-smart-technologies-nwk4c/

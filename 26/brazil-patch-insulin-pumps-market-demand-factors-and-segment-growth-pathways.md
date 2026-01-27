@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-patch-insulin-pumps-market-demand-factors-segment-blhnc/

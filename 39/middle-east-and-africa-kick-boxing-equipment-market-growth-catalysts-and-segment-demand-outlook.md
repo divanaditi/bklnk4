@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-kick-boxing-equipment-market-aro0f/

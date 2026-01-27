@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-d-10-camphorsulfonyl-chloride-cas-l2qgf/

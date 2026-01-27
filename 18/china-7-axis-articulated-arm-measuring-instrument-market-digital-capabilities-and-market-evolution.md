@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-7-axis-articulated-arm-measuring-instrument-qkvxf/

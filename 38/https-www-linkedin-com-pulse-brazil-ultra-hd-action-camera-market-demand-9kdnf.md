@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultra-hd-action-camera-market-demand-9kdnf/

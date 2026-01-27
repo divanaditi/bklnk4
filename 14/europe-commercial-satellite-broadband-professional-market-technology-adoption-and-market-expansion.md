@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-commercial-satellite-broadband-professional-market-9zrmc/

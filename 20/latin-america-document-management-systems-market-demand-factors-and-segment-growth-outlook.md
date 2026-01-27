@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-document-management-systems-market-demand-factors-mww5f/

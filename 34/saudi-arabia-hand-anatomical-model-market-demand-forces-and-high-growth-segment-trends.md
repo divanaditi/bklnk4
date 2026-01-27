@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hand-anatomical-model-market-demand-zt15f/

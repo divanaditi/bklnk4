@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-consent-management-software-market-qzmhf/

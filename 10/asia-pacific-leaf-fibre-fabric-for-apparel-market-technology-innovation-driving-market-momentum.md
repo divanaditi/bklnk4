@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-leaf-fibre-fabric-apparel-market-technology-fjbwf/

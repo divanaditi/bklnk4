@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ligases-market-ai-impact-efficiency-pn6rf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-advanced-sintering-technologies-rnokc/

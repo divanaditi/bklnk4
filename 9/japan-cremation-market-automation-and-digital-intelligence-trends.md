@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cremation-market-automation-digital-intelligence-w1l6f/

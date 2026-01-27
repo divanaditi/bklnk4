@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ptfe-packing-market-segment-demand-ttvxf/

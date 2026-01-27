@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-jacquard-machine-market-demand-analysis-teqwf/

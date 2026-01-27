@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-modem-chip-market-growth-catalysts-4n3pc/

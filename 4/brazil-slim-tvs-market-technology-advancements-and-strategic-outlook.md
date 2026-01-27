@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-slim-tvs-market-technology-advancements-cbl3f/

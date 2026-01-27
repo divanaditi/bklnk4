@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flexible-endoscopes-market-demand-dzbic/

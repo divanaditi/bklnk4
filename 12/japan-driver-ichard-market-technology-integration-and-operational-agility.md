@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-driver-ichard-market-technology-integration-operational-7rkof/

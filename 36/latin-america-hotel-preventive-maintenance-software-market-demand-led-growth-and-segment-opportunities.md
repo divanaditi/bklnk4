@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hotel-preventive-maintenance-software-8o2hf/

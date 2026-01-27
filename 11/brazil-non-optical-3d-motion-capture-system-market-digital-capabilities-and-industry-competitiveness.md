@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-non-optical-3d-motion-capture-system-sgbvc/

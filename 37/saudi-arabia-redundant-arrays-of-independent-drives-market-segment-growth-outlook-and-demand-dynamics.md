@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-redundant-arrays-independent-drives-kwxic/

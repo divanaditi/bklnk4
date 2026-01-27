@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-gumdam-model-market-automation-technology-zjybf/

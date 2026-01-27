@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-winding-smd-inductor-market-demand-dynamics-nsbae/

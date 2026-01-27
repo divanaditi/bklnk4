@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-chloro-4-methylthiophene-2-carbohydrazide-cas-ij65f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-grill-thermometers-market-automation-lcbof/

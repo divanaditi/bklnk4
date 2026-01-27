@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gpu-as-a-service-market-digital-capabilities-qjf9c/

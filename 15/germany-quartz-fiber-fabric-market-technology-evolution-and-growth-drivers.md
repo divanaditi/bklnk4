@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-quartz-fiber-fabric-market-technology-evolution-rb3vf/

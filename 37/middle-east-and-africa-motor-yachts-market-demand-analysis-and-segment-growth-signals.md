@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-motor-yachts-market-demand-analysis-1yhye/

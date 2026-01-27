@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ivd-contract-manufacturing-zevaf/

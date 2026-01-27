@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-power-monitoring-market-size-outlook-adrcf/

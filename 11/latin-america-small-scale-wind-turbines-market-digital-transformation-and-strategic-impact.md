@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-small-scale-wind-turbines-market-digital-re2zc/

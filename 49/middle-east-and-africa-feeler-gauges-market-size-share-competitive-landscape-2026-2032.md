@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-feeler-gauges-market-size-share-competitive-nn42f/

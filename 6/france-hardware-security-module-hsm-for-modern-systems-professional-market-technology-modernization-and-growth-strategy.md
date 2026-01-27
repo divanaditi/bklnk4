@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-hardware-security-module-hsm-modern-systems-y1t8f/

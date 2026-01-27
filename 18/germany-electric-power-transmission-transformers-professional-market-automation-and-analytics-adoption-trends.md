@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electric-power-transmission-transformers-professional-vkhjf/

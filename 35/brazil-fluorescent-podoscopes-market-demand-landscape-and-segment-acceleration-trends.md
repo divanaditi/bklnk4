@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fluorescent-podoscopes-market-demand-landscape-8dmwf/

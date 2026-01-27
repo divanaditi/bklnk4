@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-large-exhibition-market-digital-platforms-nhv0f/

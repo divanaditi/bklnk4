@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-connected-health-wellness-devices-nr2jc/

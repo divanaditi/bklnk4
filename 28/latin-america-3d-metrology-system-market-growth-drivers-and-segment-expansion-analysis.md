@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-3d-metrology-system-market-growth-spmbc/

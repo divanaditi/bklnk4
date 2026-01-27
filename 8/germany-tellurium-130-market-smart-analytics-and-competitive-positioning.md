@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-tellurium-130-market-smart-analytics-competitive-nog0f/

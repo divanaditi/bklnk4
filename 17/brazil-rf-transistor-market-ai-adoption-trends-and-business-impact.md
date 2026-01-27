@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rf-transistor-market-ai-adoption-trends-dyilf/

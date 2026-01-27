@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-3-dimethylaminoacrolein-cas-927-63-9-uwrzf/

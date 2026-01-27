@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-pallet-labeler-market-demand-side-f6ajf/

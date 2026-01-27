@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-ferrite-magnet-market-ai-adoption-driving-9vobf/

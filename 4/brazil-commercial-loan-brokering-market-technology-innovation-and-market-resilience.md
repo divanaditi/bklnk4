@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-loan-brokering-market-technology-wlucf/

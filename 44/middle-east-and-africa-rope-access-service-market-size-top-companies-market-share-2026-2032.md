@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rope-access-service-market-size-top-qddfc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medical-based-sensors-market-ai-analytics-jyvic/

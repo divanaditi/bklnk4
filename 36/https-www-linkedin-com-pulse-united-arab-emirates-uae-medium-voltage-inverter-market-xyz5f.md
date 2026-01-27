@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-medium-voltage-inverter-market-xyz5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-delivery-management-software-market-size-nk4xf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-product-information-management-b6nif/

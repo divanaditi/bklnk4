@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-2-pole-air-cooled-turbogenerators-c4fff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-solar-inverters-market-ai-digital-transformation-n8vmf/

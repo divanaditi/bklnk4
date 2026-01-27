@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-aesthetic-lasers-market-automation-digital-8fbpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-outdoor-gps-devices-market-digital-intelligence-2etzf/

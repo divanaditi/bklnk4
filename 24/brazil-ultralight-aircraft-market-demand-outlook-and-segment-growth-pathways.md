@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultralight-aircraft-market-demand-outlook-segment-tbgof/

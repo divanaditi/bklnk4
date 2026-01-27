@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-martius-yellow-cas-605-69-6-market-ai-analytics-sm3hf/

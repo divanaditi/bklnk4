@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dual-band-wi-fi-chipset-market-demand-by0jf/

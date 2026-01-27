@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-north-america-outdoor-living-structure-3532f/

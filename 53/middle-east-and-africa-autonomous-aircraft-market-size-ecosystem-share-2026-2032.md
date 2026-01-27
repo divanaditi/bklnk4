@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-autonomous-aircraft-market-size-cu81f/

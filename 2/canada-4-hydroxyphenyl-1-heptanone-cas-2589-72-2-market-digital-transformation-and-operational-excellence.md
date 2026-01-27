@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-hydroxyphenyl-1-heptanone-cas-2589-72-2-market-jrwgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-destination-management-services-market-intelligent-p11tf/

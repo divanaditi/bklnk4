@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-iso-caprylic-acid-market-ai-adoption-c9nff/

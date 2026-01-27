@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-fluoro-3-trifluoromethylanisole-cas-127271-65-2-7gnic/

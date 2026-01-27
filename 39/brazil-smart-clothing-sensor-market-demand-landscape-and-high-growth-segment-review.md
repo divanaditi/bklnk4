@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-clothing-sensor-market-demand-landscape-5bbnf/

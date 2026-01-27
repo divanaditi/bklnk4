@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rfid-transponder-coil-market-7hrff/

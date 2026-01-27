@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gps-navigator-market-advanced-technologies-wmjvc/

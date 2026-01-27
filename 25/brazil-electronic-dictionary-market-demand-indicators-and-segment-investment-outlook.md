@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-dictionary-market-demand-indicators-segment-bxbgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-soft-skills-training-market-size-hs6gc/

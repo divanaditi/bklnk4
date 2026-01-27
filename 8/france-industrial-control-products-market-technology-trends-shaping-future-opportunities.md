@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-control-products-market-technology-kizyf/

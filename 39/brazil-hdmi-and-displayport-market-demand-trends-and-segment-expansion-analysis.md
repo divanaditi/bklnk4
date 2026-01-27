@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hdmi-displayport-market-demand-trends-segment-expansion-dn5gf/

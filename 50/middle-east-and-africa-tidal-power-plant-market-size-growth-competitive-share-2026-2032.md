@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tidal-power-plant-market-size-growth-xth7f/

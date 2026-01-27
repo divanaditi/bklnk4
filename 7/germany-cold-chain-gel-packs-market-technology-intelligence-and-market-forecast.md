@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cold-chain-gel-packs-market-technology-intelligence-i4jzf/

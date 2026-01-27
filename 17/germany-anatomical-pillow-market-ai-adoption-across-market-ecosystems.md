@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-anatomical-pillow-market-ai-adoption-across-arsnf/

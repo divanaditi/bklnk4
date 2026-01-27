@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-display-kiosk-totem-market-automation-analytics-mzrmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-domain-name-system-security-extensions-xck3c/

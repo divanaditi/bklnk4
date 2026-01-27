@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-business-management-market-demand-outlook-3cwjf/

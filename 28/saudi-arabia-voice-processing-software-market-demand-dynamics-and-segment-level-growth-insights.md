@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-voice-processing-software-market-demand-dynamics-lhesf/

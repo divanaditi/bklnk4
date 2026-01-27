@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-medium-heavy-duty-commercial-vehicles-professional-sf8if/

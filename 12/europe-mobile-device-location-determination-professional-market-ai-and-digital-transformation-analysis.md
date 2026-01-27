@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-device-location-determination-professional-xrgcc/

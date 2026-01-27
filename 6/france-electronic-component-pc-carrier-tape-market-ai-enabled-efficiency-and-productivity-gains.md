@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-electronic-component-pc-carrier-tape-market-mz2ff/

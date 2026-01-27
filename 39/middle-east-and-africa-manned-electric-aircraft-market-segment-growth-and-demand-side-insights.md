@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-manned-electric-aircraft-market-ay2vf/

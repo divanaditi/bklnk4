@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-ethyl-heptafluorobutyrate-cas-356-27-4-rp4vf/

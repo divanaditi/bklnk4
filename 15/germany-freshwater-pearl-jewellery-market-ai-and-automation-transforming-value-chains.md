@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-freshwater-pearl-jewellery-market-ai-automation-dchcf/

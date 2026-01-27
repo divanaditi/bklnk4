@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-imaging-information-system-market-demand-m6abf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-swimwear-beachwear-market-segment-demand-ps59c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fruit-beer-market-ai-technology-landscape-analysis-lakfe/

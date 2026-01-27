@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6-fluoro-2-oxindole-cas-56341-39-0-market-gcloc/

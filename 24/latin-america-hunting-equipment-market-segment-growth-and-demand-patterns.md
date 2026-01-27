@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hunting-equipment-market-segment-growth-3bzxc/

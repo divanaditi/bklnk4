@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-tralkoxydim-cas-87820-88-0-market-technology-innovation-gncjf/

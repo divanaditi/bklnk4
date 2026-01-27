@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-2-acetamido-5-nitrothiazole-cas-140-40-9-tansc/

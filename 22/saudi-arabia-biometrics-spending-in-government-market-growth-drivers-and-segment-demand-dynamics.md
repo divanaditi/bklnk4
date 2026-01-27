@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-biometrics-spending-government-market-dd71f/

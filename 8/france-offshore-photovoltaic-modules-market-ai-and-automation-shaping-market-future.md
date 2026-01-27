@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-offshore-photovoltaic-modules-market-usz6f/

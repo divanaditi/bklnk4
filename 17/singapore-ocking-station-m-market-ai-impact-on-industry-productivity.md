@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-ocking-station-m-market-ai-impact-industry-fxvbf/

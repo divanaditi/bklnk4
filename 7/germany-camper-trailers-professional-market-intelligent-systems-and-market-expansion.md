@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-camper-trailers-professional-market-intelligent-bq8vf/

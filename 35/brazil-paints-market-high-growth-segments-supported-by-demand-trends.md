@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-paints-market-high-growth-segments-nut7f/

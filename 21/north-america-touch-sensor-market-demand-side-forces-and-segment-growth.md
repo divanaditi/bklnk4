@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-touch-sensor-market-demand-side-forces-ajttf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-aircraft-nose-craft-market-ai-smart-technology-jtydf/

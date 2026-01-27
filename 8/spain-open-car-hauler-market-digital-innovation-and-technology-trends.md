@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-open-car-hauler-market-digital-innovation-mijff/

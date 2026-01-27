@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2233-tetrafluoropropyl-methacrylate-cas-45102-52-1-etqcf/

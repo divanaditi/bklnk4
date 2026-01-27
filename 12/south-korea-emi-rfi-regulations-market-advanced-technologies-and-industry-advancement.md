@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emirfi-regulations-market-advanced-technologies-k6jcf/

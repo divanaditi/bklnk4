@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sbs-hma-market-demand-trends-high-growth-2vt7f/

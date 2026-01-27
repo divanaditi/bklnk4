@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-real-time-text-translation-provider-services-ckayf/

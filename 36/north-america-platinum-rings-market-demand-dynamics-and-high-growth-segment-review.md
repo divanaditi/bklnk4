@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-platinum-rings-market-demand-dynamics-high-growth-dxhlf/

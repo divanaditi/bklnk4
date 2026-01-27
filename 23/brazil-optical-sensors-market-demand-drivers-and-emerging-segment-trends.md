@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-optical-sensors-market-demand-drivers-emerging-vrjkf/

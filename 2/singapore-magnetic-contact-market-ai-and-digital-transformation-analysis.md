@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-magnetic-contact-market-ai-digital-transformation-fwr7c/

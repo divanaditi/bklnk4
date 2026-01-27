@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-banking-platform-market-ai-emerging-technology-qawuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-serial-port-io-module-market-role-automation-vljaf/

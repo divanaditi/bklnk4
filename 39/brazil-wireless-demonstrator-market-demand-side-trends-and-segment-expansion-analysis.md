@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-demonstrator-market-demand-side-trends-tyjjf/

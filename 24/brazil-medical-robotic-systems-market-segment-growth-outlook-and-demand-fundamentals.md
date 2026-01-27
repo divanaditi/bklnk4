@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-robotic-systems-market-segment-growth-sfytf/

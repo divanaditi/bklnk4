@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-elastic-bonding-adhesive-market-3qyqc/

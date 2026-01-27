@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-property-management-software-market-wn8cf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-plm-consumer-goods-market-demand-evolution-a0osc/

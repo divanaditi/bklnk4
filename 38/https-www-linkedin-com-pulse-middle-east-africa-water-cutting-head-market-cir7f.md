@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-water-cutting-head-market-cir7f/

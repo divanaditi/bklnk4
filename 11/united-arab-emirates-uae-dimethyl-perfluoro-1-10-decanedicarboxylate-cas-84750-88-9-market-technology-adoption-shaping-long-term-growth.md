@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-dimethyl-perfluoro-110-decanedicarboxylate-ft81c/

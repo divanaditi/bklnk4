@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-electric-laparoscopic-scissors-market-ai-impact-structure-6xbgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-photography-editing-software-market-0takf/

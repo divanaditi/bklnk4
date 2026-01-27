@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nand-flash-sales-market-growth-drivers-segment-iyhwf/

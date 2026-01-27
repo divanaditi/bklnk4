@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-glufosinate-ammonium-technical-market-ai-analytics-gmxnf/

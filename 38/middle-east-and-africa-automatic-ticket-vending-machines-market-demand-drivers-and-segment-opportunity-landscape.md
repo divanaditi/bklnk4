@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automatic-ticket-vending-machines-qrxlf/

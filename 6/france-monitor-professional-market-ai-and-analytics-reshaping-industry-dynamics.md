@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-monitor-professional-market-ai-analytics-15nxf/

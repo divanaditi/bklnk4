@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pay-tv-video-encoder-market-digital-innovation-orute/

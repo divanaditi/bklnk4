@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-military-laser-systems-izm4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-resin-color-developer-market-ai-adoption-bjhjf/

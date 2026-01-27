@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-haptics-actuators-market-digital-muk9f/

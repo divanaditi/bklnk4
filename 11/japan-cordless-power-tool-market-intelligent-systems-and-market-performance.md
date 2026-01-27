@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cordless-power-tool-market-intelligent-systems-0ud0f/

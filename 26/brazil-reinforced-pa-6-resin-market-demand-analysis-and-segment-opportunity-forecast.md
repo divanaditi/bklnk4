@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-reinforced-pa-6-resin-market-demand-4jcac/

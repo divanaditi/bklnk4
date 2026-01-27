@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-stationary-solid-oxide-fuel-cell-sofc-systems-lnlef/

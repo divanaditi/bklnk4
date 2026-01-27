@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-35-diiodo-4-pyridone-1-acetic-acid-cas-jgjic/

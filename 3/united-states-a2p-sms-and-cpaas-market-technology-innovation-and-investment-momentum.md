@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-a2p-sms-cpaas-market-technology-innovation-sdrkf/

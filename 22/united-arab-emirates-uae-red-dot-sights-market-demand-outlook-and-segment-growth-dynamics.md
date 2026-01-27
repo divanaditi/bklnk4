@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-red-dot-sights-market-demand-s9rqf/

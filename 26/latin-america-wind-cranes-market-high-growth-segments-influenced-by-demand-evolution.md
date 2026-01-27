@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wind-cranes-market-high-growth-segments-k9txc/

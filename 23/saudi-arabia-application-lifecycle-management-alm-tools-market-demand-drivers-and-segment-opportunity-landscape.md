@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-application-lifecycle-management-alm-tools-7hvqf/

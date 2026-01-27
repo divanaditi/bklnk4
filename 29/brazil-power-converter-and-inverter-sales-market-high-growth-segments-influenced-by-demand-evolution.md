@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-power-converter-inverter-sales-market-mamzf/

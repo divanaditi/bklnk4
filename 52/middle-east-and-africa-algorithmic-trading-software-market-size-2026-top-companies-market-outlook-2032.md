@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-algorithmic-trading-software-market-o1xwe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cold-chain-monitoring-equipment-4qzlf/

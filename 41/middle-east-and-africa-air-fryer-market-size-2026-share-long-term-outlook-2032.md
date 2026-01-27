@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-air-fryer-market-size-2026-share-efkzf/

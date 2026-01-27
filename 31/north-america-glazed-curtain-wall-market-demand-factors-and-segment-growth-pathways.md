@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-glazed-curtain-wall-market-demand-factors-segment-2lmlf/

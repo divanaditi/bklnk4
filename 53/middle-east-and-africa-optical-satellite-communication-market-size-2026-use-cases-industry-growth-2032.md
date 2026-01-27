@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-optical-satellite-communication-joe5f/

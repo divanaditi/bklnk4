@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-lipase-lps-activity-assay-kit-market-automation-pzjhf/

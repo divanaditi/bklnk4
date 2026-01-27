@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lake-management-professional-market-ai-impact-sr4if/

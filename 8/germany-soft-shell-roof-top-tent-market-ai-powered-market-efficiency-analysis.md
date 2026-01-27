@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-soft-shell-roof-top-tent-market-ai-powered-okxtf/

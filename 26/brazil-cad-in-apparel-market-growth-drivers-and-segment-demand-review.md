@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cad-apparel-market-growth-drivers-segment-demand-iokkc/

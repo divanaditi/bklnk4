@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-propulsion-system-market-size-2026-e9tsc/

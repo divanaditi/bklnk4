@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-work-orders-management-software-market-advanced-2twbc/

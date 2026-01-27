@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-s-glyceraldehyde-acetonide-cas-22323-80-4-kiuhc/

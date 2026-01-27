@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-fluorinated-triethylene-glycol-monomethyl-we5kc/

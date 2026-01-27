@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-door-open-detent-market-automation-technology-y2cpc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-combo-washer-dryer-professional-market-digital-gvrlf/

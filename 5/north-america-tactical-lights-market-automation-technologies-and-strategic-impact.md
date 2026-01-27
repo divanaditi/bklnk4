@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-tactical-lights-market-automation-12osf/

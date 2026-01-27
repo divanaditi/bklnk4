@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-corrugated-packaging-inkjet-press-market-ai-automation-18daf/

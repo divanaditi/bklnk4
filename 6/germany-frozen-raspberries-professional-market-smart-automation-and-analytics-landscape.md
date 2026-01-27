@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-frozen-raspberries-professional-market-smart-wjx1f/

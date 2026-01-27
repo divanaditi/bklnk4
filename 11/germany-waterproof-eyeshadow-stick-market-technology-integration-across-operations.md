@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-waterproof-eyeshadow-stick-market-technology-i6ayc/

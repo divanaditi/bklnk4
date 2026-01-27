@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-elastic-laminates-market-demand-t9caf/

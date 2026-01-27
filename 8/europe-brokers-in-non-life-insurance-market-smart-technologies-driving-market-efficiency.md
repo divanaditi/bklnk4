@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-brokers-non-life-insurance-market-smart-technologies-rzeuf/

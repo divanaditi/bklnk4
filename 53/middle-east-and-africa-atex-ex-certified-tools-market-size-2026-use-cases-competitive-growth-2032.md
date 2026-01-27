@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-atexex-certified-tools-market-fvcef/

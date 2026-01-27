@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-waterproof-lantern-flashlights-market-zk8hf/

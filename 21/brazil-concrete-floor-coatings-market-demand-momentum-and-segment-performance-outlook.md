@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-concrete-floor-coatings-market-demand-momentum-rw77f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laser-diode-market-demand-patterns-lzhcf/

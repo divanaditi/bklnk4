@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-air-gap-trimmer-capacitor-market-smart-technologies-9mftf/

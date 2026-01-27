@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-tethered-power-drone-market-technology-advancements-lxvjf/

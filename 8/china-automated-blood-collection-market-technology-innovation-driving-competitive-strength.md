@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automated-blood-collection-market-technology-innovation-8hxgf/

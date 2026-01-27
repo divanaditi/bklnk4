@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dashboard-skeleton-market-ai-analytics-reshaping-n7rbf/

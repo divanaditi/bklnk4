@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-power-over-ethernet-poe-chipsets-market-gkycc/

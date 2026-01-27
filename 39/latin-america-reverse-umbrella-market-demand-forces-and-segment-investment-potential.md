@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-reverse-umbrella-market-demand-forces-rgirf/

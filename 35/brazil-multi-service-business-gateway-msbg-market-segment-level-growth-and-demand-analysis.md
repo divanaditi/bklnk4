@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multi-service-business-gateway-msbg-x7vzf/

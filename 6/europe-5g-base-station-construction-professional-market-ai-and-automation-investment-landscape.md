@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-5g-base-station-construction-professional-c21of/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-keycard-locks-market-demand-trends-kmo1c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-strain-insulator-market-smart-technologies-yxvdf/

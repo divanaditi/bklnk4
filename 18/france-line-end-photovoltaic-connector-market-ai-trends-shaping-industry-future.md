@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-line-end-photovoltaic-connector-market-a8c5f/

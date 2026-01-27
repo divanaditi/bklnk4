@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-intermittent-fasting-apps-market-de7sc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-clean-coal-technology-professional-market-ml0qf/

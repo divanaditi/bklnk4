@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-contactless-ticketing-market-demand-dynamics-ujkyc/

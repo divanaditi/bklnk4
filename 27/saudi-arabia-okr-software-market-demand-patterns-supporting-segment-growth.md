@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-okr-software-market-demand-patterns-supporting-01tef/

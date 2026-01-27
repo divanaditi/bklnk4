@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-extreme-tourism-market-size-2026-ebcff/

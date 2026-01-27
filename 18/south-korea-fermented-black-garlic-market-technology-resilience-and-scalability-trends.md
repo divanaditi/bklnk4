@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fermented-black-garlic-market-technology-5c14f/

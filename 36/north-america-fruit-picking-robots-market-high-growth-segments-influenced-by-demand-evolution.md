@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fruit-picking-robots-market-high-growth-bydef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-embedded-system-electric-vehicle-market-demand-supported-0lwxf/

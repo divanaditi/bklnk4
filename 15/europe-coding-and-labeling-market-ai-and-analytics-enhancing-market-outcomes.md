@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-coding-labeling-market-ai-analytics-enhancing-adi7f/

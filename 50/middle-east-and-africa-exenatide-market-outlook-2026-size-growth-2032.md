@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-exenatide-market-outlook-2026-size-cewkf/

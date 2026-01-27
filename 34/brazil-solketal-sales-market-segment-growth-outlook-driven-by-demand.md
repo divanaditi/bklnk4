@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solketal-sales-market-segment-growth-rcijf/

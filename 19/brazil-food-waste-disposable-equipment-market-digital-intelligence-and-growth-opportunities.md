@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-food-waste-disposable-equipment-market-digital-ke8me/

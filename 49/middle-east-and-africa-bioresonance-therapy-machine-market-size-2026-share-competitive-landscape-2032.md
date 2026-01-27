@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bioresonance-therapy-machine-market-qmj3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-hexafluoroglutaric-acid-cas-376-73-8-market-5oaff/

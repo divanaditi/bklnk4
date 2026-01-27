@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-methacrylic-acid-market-demand-outlook-szake/

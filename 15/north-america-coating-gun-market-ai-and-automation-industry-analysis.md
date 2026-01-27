@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-coating-gun-market-ai-automation-industry-w8r2f/

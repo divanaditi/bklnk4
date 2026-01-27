@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hydraulic-adapters-market-demand-factors-jl7of/

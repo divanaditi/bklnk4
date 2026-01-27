@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-spraying-quick-setting-rubber-asphalt-9kc3f/

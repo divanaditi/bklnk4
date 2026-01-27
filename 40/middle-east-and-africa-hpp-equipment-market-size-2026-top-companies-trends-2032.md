@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hpp-equipment-market-size-2026-ehgkf/

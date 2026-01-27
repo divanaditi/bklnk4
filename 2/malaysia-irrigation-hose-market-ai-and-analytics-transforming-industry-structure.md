@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-irrigation-hose-market-ai-analytics-transforming-xvlqc/

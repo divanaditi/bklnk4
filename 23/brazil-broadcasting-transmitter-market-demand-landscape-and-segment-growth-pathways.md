@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-broadcasting-transmitter-market-demand-landscape-89rff/

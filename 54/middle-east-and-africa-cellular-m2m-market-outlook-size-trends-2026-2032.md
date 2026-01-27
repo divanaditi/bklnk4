@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cellular-m2m-market-outlook-size-zxc7f/

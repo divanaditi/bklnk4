@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-fire-cloud-platform-l097f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-low-noise-block-lnbs-market-growth-drivers-koqgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-rifle-shooting-target-market-technology-punxc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pivalate-market-ai-smart-technology-impact-a8mcf/

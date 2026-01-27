@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-amorphous-alloy-band-market-segment-ngijc/

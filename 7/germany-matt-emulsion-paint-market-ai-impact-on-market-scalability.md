@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-matt-emulsion-paint-market-ai-impact-pbe7f/

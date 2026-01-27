@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-stratospheric-uav-payloads-market-demand-landscape-xbu5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-door-position-switches-market-segment-demand-trends-80a7c/

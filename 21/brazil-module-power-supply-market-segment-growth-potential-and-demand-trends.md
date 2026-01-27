@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-module-power-supply-market-segment-growth-bqvxf/

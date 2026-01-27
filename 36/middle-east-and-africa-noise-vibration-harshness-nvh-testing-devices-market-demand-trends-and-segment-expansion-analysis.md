@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-noise-vibration-harshnessnvh-testing-kg5de/

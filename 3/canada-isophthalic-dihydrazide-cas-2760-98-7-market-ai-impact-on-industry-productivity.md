@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-isophthalic-dihydrazide-cas-2760-98-7-market-yebkf/

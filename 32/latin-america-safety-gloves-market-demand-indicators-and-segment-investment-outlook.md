@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-safety-gloves-market-demand-indicators-tfqae/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-device-lifecycle-management-service-market-digital-g5jxf/

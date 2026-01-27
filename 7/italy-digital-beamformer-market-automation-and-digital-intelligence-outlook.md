@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-digital-beamformer-market-automation-intelligence-xvdmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-synchronous-condensers-market-advanced-hzgjc/

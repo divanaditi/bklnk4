@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-pc-camera-market-technology-evolution-x8d1c/

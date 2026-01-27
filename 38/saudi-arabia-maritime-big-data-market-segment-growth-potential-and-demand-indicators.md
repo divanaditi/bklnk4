@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-maritime-big-data-market-segment-growth-obimf/

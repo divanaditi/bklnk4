@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-genuine-leather-market-growth-drivers-segment-pgmkf/

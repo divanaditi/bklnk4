@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hot-dip-galvanized-metal-market-n6cac/

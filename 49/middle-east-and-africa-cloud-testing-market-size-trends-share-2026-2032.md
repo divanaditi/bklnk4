@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cloud-testing-market-size-n6pnf/

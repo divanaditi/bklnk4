@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oil-gas-transportation-market-technology-b96df/

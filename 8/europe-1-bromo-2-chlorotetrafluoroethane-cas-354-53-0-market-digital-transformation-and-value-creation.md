@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-1-bromo-2-chlorotetrafluoroethane-cas-354-53-0-ovxqf/

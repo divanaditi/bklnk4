@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pa6-12-market-demand-forces-rckbf/

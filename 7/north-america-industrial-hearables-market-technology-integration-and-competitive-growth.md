@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-hearables-market-technology-pfg4f/

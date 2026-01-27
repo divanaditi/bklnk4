@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electronic-document-records-management-oh2df/

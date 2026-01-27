@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-scissor-awp-market-ai-driven-performance-ivv6c/

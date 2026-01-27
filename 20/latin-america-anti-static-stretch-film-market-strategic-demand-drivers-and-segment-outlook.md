@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-anti-static-stretch-film-market-strategic-demand-dm3jf/

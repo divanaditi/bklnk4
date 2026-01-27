@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-load-cell-simulator-market-technology-transformation-xlxcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-data-governance-software-market-demand-soabf/

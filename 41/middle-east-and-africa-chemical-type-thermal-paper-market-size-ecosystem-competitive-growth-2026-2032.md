@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-chemical-type-thermal-paper-market-fhrcf/

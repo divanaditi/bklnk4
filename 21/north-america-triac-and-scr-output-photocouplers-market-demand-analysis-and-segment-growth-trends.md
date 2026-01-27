@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-triac-scr-output-photocouplers-market-aexof/

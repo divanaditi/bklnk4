@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-industrial-operational-intelligence-s6oyf/

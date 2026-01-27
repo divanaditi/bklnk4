@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-uav-platform-market-segment-growth-yltff/

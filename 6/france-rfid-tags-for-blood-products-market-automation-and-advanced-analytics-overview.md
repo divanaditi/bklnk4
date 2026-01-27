@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rfid-tags-blood-products-market-automation-4s0jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hand-push-power-trowel-market-smart-technology-sztsc/

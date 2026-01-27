@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-galanthus-nivalis-agglutinin-gna-market-digital-mijpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heat-shrink-film-market-demand-outlook-lkate/

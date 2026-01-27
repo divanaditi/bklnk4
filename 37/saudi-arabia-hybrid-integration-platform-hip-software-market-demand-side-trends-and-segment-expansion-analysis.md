@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hybrid-integration-platform-hip-software-vr1if/

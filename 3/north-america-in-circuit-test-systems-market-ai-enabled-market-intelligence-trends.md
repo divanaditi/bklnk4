@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-in-circuit-test-systems-market-ai-enabled-w6ccf/

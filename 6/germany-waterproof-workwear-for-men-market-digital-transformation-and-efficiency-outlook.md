@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-waterproof-workwear-men-market-digital-9xmif/

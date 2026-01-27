@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-trifluoromethyl-thiazol-2-ylamine-cas-349-49-5-3z9of/

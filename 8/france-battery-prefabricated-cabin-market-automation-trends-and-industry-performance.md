@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-battery-prefabricated-cabin-market-automation-uujgf/

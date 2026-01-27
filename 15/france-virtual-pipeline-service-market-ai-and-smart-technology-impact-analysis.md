@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-virtual-pipeline-service-market-ai-smart-technology-tzjbf/

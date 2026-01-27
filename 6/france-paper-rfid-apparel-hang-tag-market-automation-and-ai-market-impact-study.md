@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-paper-rfid-apparel-hang-tag-market-automation-n0knf/

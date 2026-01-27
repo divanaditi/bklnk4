@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-portable-automotive-wi-fi-router-market-suisf/

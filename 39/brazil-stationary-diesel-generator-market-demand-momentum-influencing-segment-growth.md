@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-stationary-diesel-generator-market-demand-momentum-bjnhf/

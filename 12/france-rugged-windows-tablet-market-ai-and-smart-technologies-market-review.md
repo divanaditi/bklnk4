@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rugged-windows-tablet-market-ai-smart-olhgc/

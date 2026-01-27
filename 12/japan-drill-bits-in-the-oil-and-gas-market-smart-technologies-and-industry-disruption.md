@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-drill-bits-oil-gas-market-smart-technologies-industry-te8uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-high-waist-period-underwear-market-technology-knetf/

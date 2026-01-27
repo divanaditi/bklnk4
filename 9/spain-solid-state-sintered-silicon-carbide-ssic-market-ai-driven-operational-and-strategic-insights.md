@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-solid-state-sintered-silicon-carbide-olraf/

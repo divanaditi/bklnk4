@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-26-difluoro-4-methoxybenzaldehyde-cas-256417-10-4-ox4gf/

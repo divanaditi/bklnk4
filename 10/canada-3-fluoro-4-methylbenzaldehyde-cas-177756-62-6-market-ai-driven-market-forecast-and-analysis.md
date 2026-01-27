@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-fluoro-4-methylbenzaldehyde-cas-177756-62-6-eptbf/

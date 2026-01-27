@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bag-valves-market-demand-trends-strategic-segment-rrn6f/

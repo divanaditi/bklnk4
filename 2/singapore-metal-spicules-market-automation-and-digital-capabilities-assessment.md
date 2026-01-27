@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metal-spicules-market-automation-digital-capabilities-ywujc/

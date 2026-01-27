@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-room-thermostat-market-digital-egvmc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-flannel-market-size-2026-outlook-hdilf/

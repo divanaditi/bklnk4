@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-6-fluoroveratraldehyde-cas-71924-62-4-market-sutcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-military-truck-market-size-use-cases-kv0af/

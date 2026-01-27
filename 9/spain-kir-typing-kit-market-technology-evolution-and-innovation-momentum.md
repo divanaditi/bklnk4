@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-kir-typing-kit-market-technology-evolution-b5zof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vocational-truck-market-size-i4hdc/

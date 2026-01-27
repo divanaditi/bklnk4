@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enterprise-wireless-lan-solutions-market-kp0rf/

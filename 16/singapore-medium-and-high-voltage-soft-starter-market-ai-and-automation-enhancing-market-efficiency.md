@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medium-high-voltage-soft-starter-2mo7f/

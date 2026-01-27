@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ignition-platinums-market-demand-drivers-gxrzf/

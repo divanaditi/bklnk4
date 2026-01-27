@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concrete-pump-truck-market-intelligent-automation-5belc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-tennis-sensor-market-machine-learning-qf1ef/

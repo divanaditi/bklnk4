@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-type-2-diabetes-medication-market-ai-smart-technologies-cqe7f/

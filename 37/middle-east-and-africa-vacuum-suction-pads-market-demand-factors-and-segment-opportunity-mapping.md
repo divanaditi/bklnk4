@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vacuum-suction-pads-market-demand-ta88e/

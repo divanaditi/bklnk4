@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-speed-engine-market-ai-adoption-driving-fd3gf/

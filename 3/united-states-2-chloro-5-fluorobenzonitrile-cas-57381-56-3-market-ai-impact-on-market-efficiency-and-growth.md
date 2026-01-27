@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-2-chloro-5-fluorobenzonitrile-cas-57381-56-3-0bwbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-saturated-fatty-acids-market-yjd3f/

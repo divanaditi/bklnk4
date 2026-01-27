@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wet-dry-hair-straighteners-9qigf/

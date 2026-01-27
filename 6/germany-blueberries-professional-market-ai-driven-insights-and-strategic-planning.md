@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-blueberries-professional-market-ai-driven-a78cf/

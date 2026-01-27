@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-methyl-perfluorotetradecanoate-cas-203302-99-2-qf7wc/

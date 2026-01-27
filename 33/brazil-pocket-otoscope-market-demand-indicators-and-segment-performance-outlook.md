@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pocket-otoscope-market-demand-indicators-j5k0e/

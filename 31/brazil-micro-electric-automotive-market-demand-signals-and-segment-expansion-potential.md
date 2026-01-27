@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-micro-electric-automotive-market-demand-signals-qmf0c/

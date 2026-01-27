@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ranitidine-bismuth-citrate-cas-128345-62-0-re1jf/

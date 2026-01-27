@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-methyl-1h-pyrazole-4-carboxylic-acid-cas-5952-92-1-ncxbf/

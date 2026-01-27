@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-resuscitation-trolley-market-ai-impact-ildcf/

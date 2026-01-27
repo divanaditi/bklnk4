@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-camera-flashes-market-demand-trends-driving-segment-jeegf/

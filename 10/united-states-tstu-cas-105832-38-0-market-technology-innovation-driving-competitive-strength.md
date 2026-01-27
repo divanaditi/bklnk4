@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-tstu-cas-105832-38-0-market-4c0rf/

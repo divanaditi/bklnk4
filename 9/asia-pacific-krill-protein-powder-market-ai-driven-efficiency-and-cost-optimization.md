@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-krill-protein-powder-market-ai-driven-aq7jf/

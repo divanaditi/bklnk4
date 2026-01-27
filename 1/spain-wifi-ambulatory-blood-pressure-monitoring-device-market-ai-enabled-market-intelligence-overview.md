@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-wifi-ambulatory-blood-pressure-monitoring-device-kmy4f/

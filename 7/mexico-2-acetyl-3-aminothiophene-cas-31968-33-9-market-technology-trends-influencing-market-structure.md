@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-acetyl-3-aminothiophene-cas-31968-33-9-fdywf/

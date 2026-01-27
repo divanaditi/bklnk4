@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloro-24-difluoroacetophenone-cas-51336-94-8-lcjcc/

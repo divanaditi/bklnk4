@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-sensors-environmental-agricultural-kw5kf/

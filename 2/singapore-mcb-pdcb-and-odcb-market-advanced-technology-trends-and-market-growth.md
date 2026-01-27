@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mcb-pdcb-odcb-market-advanced-technology-trends-yd7ec/

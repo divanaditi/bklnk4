@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cloud-video-conferencing-professional-market-q7zac/

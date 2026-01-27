@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-interlock-sewing-machines-4fyof/

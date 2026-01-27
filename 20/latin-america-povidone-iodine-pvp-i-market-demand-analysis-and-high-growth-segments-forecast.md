@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-povidone-iodine-pvp-i-market-demand-guwnf/

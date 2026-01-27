@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-waste-management-system-market-high-growth-64qnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-speed-photodetector-market-demand-lds5f/

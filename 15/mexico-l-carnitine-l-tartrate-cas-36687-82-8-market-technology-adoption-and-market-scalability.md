@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-l-carnitine-l-tartrate-cas-36687-82-8-market-odh9f/

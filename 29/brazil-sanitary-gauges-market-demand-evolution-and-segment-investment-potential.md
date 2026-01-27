@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sanitary-gauges-market-demand-evolution-segment-vo6uf/

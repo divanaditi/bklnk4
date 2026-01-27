@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-near-field-communication-nfc-chip-market-olyuf/

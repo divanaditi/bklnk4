@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-smart-garbage-can-market-technology-trends-g89uf/

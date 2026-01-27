@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-help-desk-software-professional-market-ai-driven-4zghf/

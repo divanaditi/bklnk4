@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-legal-ai-software-market-high-growth-rtkoc/

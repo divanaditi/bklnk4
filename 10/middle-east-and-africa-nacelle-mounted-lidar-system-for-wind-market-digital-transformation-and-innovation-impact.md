@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nacelle-mounted-lidar-system-wind-q7uif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-industrial-gas-turbine-market-technology-trends-zz1xf/

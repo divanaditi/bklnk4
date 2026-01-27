@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-autonomous-power-supply-system-market-ai-data-w17sf/

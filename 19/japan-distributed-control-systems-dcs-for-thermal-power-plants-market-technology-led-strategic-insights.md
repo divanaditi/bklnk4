@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-distributed-control-systems-dcs-thermal-power-hfa8f/

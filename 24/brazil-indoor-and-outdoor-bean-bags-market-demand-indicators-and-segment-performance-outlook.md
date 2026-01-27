@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-indoor-outdoor-bean-bags-market-demand-indicators-zae0f/

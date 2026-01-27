@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-flat-bar-market-ai-driven-development-ehbmf/

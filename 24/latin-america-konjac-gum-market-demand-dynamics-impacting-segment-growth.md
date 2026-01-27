@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-konjac-gum-market-demand-dynamics-im3wc/

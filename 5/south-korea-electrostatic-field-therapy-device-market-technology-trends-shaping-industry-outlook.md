@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electrostatic-field-therapy-5azbf/

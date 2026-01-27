@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-home-use-wifi-router-market-demand-1qtmc/

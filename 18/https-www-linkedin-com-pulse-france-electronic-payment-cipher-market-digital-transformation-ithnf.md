@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-electronic-payment-cipher-market-digital-transformation-ithnf/

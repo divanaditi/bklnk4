@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-watch-type-oximeter-market-technology-innovation-3fsof/

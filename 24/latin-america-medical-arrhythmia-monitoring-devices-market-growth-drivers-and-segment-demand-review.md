@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-arrhythmia-monitoring-devices-mivlc/

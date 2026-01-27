@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-traction-inverter-market-cjb1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-small-motor-market-demand-drivers-wa3hf/

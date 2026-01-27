@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-purified-protein-derivative-market-demand-landscape-9y2gf/

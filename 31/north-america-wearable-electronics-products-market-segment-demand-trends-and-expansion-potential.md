@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wearable-electronics-products-market-segment-p4xif/

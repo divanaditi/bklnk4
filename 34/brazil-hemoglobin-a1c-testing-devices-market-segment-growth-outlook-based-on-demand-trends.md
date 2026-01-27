@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hemoglobin-a1c-testing-devices-market-amhaf/

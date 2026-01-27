@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-semiconductor-laser-acupuncture-market-demand-9zhcf/

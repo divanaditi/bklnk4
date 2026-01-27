@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-light-vehicle-hvac-market-demand-trends-strategic-wcy6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-intelligent-soft-sensor-market-key-demand-nwlnc/

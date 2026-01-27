@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thin-film-silicon-photovoltaic-jvhkf/

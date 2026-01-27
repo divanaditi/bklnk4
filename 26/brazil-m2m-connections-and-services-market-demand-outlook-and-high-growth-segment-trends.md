@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-m2m-connections-services-market-demand-rbm5f/

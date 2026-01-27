@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-chloro-4-fluorothiobenzamide-cas-130560-97-3-dm53f/

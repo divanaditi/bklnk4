@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-open-banking-market-digital-ecosystem-snnze/

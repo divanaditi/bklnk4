@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-visible-light-communication-vlc-equipment-kda3f/

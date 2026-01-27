@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smd-carrier-tape-market-ai-driven-competitive-x3hlf/

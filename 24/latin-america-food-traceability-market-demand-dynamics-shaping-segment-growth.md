@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-food-traceability-market-demand-dynamics-kf3sc/

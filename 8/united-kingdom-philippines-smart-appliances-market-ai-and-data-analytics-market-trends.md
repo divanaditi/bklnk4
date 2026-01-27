@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-philippines-smart-appliances-market-w7atf/

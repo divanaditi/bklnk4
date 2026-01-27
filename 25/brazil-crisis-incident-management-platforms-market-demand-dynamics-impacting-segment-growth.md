@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-crisisincident-management-platforms-market-slzvf/

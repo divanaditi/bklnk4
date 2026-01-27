@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-telecom-infrastructure-market-segment-uaduc/

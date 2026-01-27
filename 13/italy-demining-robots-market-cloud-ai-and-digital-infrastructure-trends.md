@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-demining-robots-market-cloud-felrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-platform-rigs-market-growth-drivers-segment-doqke/

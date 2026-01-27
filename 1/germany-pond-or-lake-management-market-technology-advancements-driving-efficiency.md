@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-pond-lake-management-market-technology-wwbwf/

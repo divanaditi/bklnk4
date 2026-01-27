@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wrist-sphygmomanometer-market-segment-gnple/

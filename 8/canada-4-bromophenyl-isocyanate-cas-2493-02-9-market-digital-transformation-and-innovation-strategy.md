@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-bromophenyl-isocyanate-cas-2493-02-9-market-lb5af/

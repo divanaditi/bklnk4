@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automotive-grade-high-side-switches-market-qsuaf/

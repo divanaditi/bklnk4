@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automotive-smart-3d-bin-picking-system-market-gy7tf/

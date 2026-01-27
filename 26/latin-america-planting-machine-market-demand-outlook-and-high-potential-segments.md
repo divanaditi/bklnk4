@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-planting-machine-market-demand-outlook-u3roc/

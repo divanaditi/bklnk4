@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-authoring-publishing-software-market-high-growth-qlboe/

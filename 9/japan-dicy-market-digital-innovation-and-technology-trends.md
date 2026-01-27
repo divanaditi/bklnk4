@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dicy-market-digital-innovation-technology-apktf/

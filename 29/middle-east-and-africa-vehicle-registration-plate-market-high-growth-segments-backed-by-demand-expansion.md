@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vehicle-registration-plate-market-mdayf/

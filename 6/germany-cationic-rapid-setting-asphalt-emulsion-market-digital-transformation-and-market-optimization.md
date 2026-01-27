@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cationic-rapid-setting-asphalt-emulsion-adylf/

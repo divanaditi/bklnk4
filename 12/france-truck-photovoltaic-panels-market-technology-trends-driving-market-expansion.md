@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-truck-photovoltaic-panels-market-technology-5wt2c/

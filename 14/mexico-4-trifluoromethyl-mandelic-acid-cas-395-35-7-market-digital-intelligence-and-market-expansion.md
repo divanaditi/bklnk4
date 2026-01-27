@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-trifluoromethylmandelic-acid-cas-395-35-7-ri7rf/

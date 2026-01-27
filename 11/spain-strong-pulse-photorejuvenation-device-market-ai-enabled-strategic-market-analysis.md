@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-strong-pulse-photorejuvenation-device-market-wjpaf/

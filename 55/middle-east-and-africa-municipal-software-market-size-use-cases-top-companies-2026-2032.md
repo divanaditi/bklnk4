@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-municipal-software-market-size-dyngf/

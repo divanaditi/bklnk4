@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ultrasonic-proximity-switch-market-growth-pi8ef/

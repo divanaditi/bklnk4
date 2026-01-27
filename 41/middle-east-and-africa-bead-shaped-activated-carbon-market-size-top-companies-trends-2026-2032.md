@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bead-shaped-activated-ue3yf/

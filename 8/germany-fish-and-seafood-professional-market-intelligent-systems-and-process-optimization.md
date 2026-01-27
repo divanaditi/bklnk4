@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-fish-seafood-professional-market-intelligent-csu2f/

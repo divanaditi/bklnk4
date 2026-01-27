@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-muconic-acid-market-size-ecosystem-hbk5f/

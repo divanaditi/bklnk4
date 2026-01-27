@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electronic-health-records-software-professional-soonf/

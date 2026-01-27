@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bedside-dr-market-ai-powered-efficiency-3i28f/

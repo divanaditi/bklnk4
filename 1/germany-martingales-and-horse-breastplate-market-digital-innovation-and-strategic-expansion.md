@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-martingales-horse-breastplate-market-digital-innovation-vombf/

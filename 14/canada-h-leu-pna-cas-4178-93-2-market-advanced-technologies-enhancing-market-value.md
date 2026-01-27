@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-h-leu-pna-cas-4178-93-2-market-advanced-qedgc/

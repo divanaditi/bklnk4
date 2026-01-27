@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-die-to-die-d2d-ip-market-ai-analytics-enhancing-g9suf/

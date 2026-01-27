@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bulk-bag-market-segment-level-demand-growth-gi1uc/

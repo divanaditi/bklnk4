@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-structural-dynamics-testing-equipment-market-ywrof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-public-safety-lte-market-size-2026-yrukc/

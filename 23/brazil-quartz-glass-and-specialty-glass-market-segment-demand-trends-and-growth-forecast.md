@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-quartz-glass-specialty-market-segment-demand-z8ynf/

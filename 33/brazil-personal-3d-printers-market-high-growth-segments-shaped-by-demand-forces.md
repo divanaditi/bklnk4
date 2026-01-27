@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-personal-3d-printers-market-high-growth-segments-0phpe/

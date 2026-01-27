@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-molecular-scissoring-technology-market-ai-driven-ip7wf/

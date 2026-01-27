@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-quantitative-loading-skid-market-ai-automation-6ti4f/

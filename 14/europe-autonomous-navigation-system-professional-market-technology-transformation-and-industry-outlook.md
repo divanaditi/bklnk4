@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-autonomous-navigation-system-professional-market-9lukc/

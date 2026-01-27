@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-shielding-strips-market-technology-innovation-strategic-lxn1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-soft-serve-ice-cream-machine-market-demand-iyhsf/

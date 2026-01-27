@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/d-sub-adapter-male-female-connector-converters-market-qxffc/

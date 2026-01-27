@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-garden-tent-market-automation-trends-industry-7ngyf/

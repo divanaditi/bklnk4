@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ski-pole-market-technology-trends-dsnhc/

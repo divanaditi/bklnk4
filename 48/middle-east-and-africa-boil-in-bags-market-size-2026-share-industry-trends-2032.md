@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-boil-in-bags-market-size-2026-llu0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-onychomycosis-market-demand-drivers-impacting-ock7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-stainless-beam-seating-market-smart-technologies-bh9yf/

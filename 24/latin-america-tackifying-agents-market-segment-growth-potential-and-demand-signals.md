@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tackifying-agents-market-segment-growth-r7a0c/

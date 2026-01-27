@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personal-mobility-device-market-technology-hykyf/

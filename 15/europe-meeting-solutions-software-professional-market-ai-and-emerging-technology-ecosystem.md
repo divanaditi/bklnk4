@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-meeting-solutions-software-professional-aaj1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ctc-batteries-market-role-ai-product-service-innovation-9qiuf/

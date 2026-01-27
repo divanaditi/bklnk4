@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-user-generated-content-ugc-platforms-ei6gf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fishing-kayak-market-demand-drivers-xi1we/

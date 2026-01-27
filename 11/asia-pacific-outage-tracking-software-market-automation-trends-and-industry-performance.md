@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-outage-tracking-software-market-automation-hfq0f/

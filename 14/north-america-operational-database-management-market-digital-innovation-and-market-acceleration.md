@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-operational-database-management-market-digital-bonpc/

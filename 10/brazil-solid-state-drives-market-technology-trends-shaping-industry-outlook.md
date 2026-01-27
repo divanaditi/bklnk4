@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solid-state-drives-market-technology-trends-shaping-sbjof/

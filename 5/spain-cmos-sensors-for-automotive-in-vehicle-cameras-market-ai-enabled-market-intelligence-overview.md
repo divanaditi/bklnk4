@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cmos-sensors-automotive-in-vehicle-cameras-6bc5f/

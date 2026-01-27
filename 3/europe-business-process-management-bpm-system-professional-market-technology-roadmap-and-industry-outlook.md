@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-business-process-management-bpm-system-professional-e06lf/

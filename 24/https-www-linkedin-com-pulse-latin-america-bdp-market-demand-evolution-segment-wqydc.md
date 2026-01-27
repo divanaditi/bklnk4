@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bdp-market-demand-evolution-segment-wqydc/

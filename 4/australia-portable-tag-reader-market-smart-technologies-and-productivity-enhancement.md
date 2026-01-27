@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-portable-tag-reader-market-smart-technologies-uwmxc/

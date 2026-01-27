@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-womens-handbags-market-size-growth-530de/

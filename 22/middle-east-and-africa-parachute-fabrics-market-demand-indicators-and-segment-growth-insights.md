@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-parachute-fabrics-market-demand-3l3jf/

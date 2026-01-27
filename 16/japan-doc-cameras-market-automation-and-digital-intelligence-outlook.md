@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-doc-cameras-market-automation-digital-intelligence-ez3tf/

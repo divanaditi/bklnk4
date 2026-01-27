@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sign-board-market-size-trends-share-jtb0f/

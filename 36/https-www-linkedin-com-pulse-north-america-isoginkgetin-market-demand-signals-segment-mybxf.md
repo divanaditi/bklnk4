@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-isoginkgetin-market-demand-signals-segment-mybxf/

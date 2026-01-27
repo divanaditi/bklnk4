@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ski-lift-market-segment-level-demand-dtlif/

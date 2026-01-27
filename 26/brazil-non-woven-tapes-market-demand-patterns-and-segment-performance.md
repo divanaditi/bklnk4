@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-non-woven-tapes-market-demand-patterns-segment-performance-xhj9c/

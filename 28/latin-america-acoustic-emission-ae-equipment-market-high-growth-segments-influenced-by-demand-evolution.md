@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-acoustic-emission-ae-equipment-b9wrc/

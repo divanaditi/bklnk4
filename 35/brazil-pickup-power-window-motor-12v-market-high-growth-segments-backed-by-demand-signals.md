@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pickup-power-window-motor-12v-market-high-growth-l80qf/

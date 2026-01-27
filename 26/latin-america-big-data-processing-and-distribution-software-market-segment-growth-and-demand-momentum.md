@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-big-data-processing-distribution-software-h7kkc/

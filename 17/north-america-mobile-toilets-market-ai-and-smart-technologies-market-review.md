@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-mobile-toilets-market-ai-smart-guzic/

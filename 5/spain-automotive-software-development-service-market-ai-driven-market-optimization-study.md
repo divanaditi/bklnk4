@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-software-development-service-market-jmdlf/

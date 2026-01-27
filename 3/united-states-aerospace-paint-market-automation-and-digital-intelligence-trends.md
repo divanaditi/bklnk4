@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-aerospace-paint-market-automation-digital-zyt3f/

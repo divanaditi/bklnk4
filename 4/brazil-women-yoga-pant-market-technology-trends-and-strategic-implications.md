@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-yoga-pant-market-technology-trends-llzgf/

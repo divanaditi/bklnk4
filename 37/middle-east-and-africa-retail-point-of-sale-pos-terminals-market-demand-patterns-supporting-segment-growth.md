@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-retail-point-of-sale-pos-terminals-gwdze/

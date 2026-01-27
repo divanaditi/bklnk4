@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-portable-home-care-ventilator-market-ai-integration-r3lzf/

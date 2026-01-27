@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-lights-sales-market-segment-growth-okp7f/

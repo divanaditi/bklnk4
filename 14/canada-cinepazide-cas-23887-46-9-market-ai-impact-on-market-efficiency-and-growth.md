@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-cinepazide-cas-23887-46-9-market-ai-impact-ntblc/

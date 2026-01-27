@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-organic-textile-market-technology-ewntc/

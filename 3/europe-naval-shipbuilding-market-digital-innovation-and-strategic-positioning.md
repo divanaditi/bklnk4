@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-naval-shipbuilding-market-digital-innovation-strategic-zaawf/

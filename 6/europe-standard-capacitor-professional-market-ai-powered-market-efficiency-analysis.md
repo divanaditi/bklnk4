@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-standard-capacitor-professional-market-ai-powered-hb6if/

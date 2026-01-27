@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-central-inverter-professional-market-technology-vensf/

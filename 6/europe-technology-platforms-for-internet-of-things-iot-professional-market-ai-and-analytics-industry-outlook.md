@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-technology-platforms-internet-things-smupf/

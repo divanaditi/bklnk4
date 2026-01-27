@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electromagnetic-field-tester-market-jtatf/

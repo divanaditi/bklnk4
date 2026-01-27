@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-hardware-market-advanced-technology-trends-omxjf/

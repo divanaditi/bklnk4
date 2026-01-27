@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-device-analytical-testing-outsourcing-rmogf/

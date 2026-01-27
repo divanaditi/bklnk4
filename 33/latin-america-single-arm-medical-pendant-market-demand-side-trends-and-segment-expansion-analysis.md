@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-single-arm-medical-pendant-market-demand-side-aqdme/

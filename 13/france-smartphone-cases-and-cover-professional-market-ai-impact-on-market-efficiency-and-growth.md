@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smartphone-cases-cover-professional-market-rbhqf/

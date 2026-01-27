@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-team-sports-apparel-market-ai-technology-f6mpf/

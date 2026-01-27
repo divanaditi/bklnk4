@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-device-server-market-intelligent-automation-gevuf/

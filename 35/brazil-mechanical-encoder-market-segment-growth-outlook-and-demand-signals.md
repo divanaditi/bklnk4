@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mechanical-encoder-market-segment-growth-kinwf/

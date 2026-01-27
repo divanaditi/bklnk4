@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shockwave-therapy-device-market-demand-momentum-segment-scalability-g76cf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-macromolecule-hydrogel-market-demand-sztnc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-non-contact-type-pos-machine-market-advanced-epsnf/

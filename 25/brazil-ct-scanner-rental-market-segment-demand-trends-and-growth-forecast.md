@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ct-scanner-rental-market-segment-demand-ydfnf/

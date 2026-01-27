@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-crystal-device-market-qt4ac/

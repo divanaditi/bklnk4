@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-infrared-thermal-imaging-drones-market-ai-smart-bp4wf/

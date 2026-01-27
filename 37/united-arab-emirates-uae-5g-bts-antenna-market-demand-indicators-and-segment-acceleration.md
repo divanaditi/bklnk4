@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-5g-bts-antenna-market-demand-vzhlc/

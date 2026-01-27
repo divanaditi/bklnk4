@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-30kw-above-power-module-ev-charger-market-mjz5f/

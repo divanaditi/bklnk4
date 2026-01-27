@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-distribution-transformer-monitoring-systems-yp35f/

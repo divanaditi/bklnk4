@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-online-small-business-lending-i0zjf/

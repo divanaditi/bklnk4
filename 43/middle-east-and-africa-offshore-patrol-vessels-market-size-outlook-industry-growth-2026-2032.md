@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-offshore-patrol-vessels-market-size-outlook-0k2wc/

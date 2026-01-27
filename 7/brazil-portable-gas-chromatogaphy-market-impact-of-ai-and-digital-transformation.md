@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-gas-chromatogaphy-market-impact-ai-digital-2ogcf/

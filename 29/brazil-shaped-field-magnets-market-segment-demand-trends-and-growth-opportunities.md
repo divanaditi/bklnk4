@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shaped-field-magnets-market-segment-gefmf/

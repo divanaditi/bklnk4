@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-product-lifecycle-management-plm-market-icvpf/

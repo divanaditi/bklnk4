@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-retail-spending-market-demand-patterns-rjk0f/

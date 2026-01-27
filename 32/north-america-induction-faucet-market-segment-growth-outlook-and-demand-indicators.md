@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-induction-faucet-market-segment-growth-outlook-k1fuf/

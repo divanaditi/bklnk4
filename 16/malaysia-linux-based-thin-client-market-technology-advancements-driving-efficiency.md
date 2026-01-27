@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-linux-based-thin-client-market-technology-4uqtf/

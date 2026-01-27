@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-photoacoustic-imaging-market-segment-3wz7c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-his-cameras-market-segment-growth-demand-5iwyf/

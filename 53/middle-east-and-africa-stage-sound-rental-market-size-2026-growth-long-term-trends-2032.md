@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stage-sound-rental-market-size-2026-wr7ff/

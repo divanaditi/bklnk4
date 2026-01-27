@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-scenic-spot-ticket-management-system-market-smart-lrodf/

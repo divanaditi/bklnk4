@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-4-badpf-market-automation-ai-impact-weznf/

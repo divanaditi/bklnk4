@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-pistachio-nuts-professional-market-automation-sjpif/

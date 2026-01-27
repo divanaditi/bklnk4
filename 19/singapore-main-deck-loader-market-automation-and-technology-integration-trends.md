@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-main-deck-loader-market-automation-technology-integration-ucvce/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tetra-land-mobile-wireless-system-s24sc/

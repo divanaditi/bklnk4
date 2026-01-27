@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vaccum-evaporators-market-demand-landscape-67fgf/

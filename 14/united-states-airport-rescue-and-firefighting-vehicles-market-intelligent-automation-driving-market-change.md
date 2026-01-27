@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-airport-rescue-firefighting-vehicles-ybvgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-multi-part-barcode-labels-market-high-growth-dtktf/

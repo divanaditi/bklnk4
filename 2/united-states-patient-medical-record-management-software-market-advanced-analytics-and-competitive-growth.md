@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-patient-medical-record-management-citqf/

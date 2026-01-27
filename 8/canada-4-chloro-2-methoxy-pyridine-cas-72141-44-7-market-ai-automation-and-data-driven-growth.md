@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-chloro-2-methoxy-pyridine-cas-72141-44-7-yztlf/

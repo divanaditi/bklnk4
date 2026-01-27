@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mems-micro-speaker-market-size-skcpf/

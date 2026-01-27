@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-current-transducer-market-i1asf/

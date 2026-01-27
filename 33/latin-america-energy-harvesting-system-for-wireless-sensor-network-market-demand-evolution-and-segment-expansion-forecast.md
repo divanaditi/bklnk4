@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-energy-harvesting-system-wireless-sensor-kgvde/

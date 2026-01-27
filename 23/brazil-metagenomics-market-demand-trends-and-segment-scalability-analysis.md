@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-metagenomics-market-demand-trends-segment-scalability-s9a2f/

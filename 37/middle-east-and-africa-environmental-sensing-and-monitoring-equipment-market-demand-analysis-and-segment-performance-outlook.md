@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-environmental-sensing-monitoring-ov5ae/

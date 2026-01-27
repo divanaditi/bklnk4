@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-pcr-dpcr-market-demand-trends-strategic-mmkrc/

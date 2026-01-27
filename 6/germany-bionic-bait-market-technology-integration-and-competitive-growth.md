@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-bionic-bait-market-technology-integration-ecf6f/

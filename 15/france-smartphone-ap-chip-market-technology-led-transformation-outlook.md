@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smartphone-ap-chip-market-technology-led-transformation-chehf/

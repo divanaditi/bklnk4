@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-retrievable-bridge-plug-market-un9yc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lithium-battery-pack-drones-market-b5zef/

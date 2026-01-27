@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-virtual-charter-market-intelligent-automation-saebf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hi-tech-medical-devices-market-high-growth-x2mvc/

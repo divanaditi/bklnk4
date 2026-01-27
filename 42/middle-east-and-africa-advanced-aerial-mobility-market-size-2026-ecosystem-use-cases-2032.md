@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-advanced-aerial-mobility-market-size-2026-lahwf/

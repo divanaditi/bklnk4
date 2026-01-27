@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gun-safes-market-size-ecosystem-w8dxf/

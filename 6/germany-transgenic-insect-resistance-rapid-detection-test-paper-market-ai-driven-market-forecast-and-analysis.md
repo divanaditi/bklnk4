@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-transgenic-insect-resistance-rapid-detection-iuopf/

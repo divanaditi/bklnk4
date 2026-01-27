@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-homecare-dermatology-energy-based-devices-k2tuf/

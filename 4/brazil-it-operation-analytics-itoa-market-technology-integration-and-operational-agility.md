@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-operation-analytics-itoa-market-technology-gqnff/

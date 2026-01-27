@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-carport-charging-station-market-ai-analytics-g0vre/

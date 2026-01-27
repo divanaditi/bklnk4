@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fashion-market-ai-data-analytics-klzwf/

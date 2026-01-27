@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-5g-technology-readiness-commercialization-market-nvc4f/

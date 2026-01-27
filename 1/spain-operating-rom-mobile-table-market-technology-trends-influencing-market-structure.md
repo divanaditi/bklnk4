@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-operating-rom-mobile-table-market-technology-trends-jgyqf/

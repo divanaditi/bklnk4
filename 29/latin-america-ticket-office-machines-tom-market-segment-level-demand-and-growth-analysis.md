@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ticket-office-machines-tom-market-segment-level-6tlvc/

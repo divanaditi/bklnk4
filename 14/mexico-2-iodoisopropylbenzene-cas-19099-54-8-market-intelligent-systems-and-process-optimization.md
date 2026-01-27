@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-iodoisopropylbenzene-cas-19099-54-8-market-bri0c/

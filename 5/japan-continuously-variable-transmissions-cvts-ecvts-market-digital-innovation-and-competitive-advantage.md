@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-continuously-variable-transmissions-cvts-ecvts-xjpyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-glass-diamond-market-ai-adoption-iyn1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-diamond-bur-market-demand-dynamics-segment-lsb3f/

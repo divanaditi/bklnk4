@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-polymerase-chain-reactionpcrfor-point-of-carepocdiagnostics-i1bgf/

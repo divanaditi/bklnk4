@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-marketing-consulting-market-demand-evolution-4jyef/

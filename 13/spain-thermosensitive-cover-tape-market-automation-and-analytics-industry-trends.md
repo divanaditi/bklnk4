@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-thermosensitive-cover-tape-market-automation-analytics-hobhf/

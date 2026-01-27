@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hospitality-property-management-y0w9f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automatic-bedpan-washers-professional-o91zf/

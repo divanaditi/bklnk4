@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-methyl-triglycol-cas-112-35-6-market-vlsnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gtaw-welding-machine-market-automation-twdtf/

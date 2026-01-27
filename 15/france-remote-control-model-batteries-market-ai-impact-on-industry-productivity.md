@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-remote-control-model-batteries-market-ai-impact-hhwsf/

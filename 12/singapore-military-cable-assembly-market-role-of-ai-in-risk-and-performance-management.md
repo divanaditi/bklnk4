@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-military-cable-assembly-market-role-ai-risk-tvecf/

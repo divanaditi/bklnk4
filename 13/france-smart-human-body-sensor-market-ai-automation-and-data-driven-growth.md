@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-human-body-sensor-market-ai-automation-r7fdf/

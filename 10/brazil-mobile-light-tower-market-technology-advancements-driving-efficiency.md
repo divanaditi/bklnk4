@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-light-tower-market-technology-advancements-2mluf/

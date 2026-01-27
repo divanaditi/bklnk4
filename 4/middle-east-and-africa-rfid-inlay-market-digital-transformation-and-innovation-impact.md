@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rfid-inlay-market-digital-transformation-ne6xf/

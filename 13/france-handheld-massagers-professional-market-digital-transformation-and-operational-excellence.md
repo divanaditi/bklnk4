@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-handheld-massagers-professional-market-digital-hyt5f/

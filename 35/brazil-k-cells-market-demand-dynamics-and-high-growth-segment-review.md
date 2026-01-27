@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-k-cells-market-demand-dynamics-high-growth-kprff/

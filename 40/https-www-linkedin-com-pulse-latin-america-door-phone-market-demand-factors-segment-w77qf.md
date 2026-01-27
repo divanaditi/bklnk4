@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-door-phone-market-demand-factors-segment-w77qf/

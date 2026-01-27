@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automated-optical-metrology-market-demand-side-h9e6c/

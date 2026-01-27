@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lanthanum-fluoride-market-demand-outlook-h9awc/

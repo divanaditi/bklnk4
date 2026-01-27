@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-flying-car-battery-market-digital-platforms-gwdff/

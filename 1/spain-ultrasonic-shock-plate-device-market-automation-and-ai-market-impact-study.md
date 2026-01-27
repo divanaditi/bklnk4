@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ultrasonic-shock-plate-device-market-automation-isjyf/

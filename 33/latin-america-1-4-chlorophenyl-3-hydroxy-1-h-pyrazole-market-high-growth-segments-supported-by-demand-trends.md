@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-1-4-chlorophenyl-3-hydroxy-1-h-pyrazole-wrcve/

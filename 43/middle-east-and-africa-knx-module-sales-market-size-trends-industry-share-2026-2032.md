@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-knx-module-sales-market-size-trends-3w3gf/

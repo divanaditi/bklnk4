@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-touch-screen-gloves-professional-market-emerging-qvppf/

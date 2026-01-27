@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mechanical-latch-market-demand-side-q40af/

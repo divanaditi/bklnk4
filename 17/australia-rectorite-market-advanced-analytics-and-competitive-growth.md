@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rectorite-market-advanced-analytics-competitive-0a5cf/

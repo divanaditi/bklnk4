@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-235-triiodobenzoic-acid-cas-88-82-4-market-vwfff/

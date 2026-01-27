@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-measuring-scale-market-digital-transformation-udbcf/

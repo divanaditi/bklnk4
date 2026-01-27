@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-narrowband-temperature-sensor-market-ai-led-tq5ef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-19-decadiyne-cas-1720-38-3-market-technology-8g04f/

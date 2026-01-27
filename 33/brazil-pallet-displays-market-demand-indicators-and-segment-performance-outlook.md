@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pallet-displays-market-demand-indicators-15sre/

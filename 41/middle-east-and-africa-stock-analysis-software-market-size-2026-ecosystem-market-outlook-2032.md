@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stock-analysis-software-market-size-2026-2udzf/

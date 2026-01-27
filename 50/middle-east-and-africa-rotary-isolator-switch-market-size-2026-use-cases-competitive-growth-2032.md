@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rotary-isolator-switch-market-size-k89wf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lung-function-tester-market-demand-forces-zw11f/

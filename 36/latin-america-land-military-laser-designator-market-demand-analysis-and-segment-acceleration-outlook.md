@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-land-military-laser-designator-market-a6hzf/

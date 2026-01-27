@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vechicle-generator-market-demand-7vtbf/

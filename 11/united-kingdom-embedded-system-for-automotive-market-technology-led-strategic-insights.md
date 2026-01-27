@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-embedded-system-automotive-market-technology-led-kogpf/

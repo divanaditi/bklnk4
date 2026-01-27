@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-whole-wardrobe-market-technology-trends-influencing-bsfqf/

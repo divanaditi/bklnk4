@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-integrated-vision-system-robot-market-automation-ezg2c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-catering-self-checkout-kiosk-market-ai-enabled-kwlac/

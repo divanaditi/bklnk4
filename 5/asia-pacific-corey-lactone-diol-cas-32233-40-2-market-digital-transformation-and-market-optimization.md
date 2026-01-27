@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-corey-lactone-diol-cas-32233-40-2-op62f/

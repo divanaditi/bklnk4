@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-scrum-software-market-demand-drivers-impacting-hfenf/

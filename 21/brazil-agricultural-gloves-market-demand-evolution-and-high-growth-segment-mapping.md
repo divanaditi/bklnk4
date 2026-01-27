@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-agricultural-gloves-market-demand-evolution-i2ysf/

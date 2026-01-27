@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-ethyl-7-nitro-1234-tetrahydroquinoline-cas-940xf/

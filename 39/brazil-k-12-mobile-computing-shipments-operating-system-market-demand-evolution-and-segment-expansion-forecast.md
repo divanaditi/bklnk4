@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-k-12-mobile-computing-shipments-operating-otntf/

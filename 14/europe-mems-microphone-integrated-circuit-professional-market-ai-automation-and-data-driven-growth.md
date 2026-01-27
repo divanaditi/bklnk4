@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mems-microphone-integrated-circuit-professional-45udc/

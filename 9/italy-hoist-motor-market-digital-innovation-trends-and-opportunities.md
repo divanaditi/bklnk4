@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-hoist-motor-market-digital-innovation-trends-opportunities-iuxuf/

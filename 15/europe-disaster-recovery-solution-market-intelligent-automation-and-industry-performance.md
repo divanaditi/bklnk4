@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-disaster-recovery-solution-market-v4gcf/

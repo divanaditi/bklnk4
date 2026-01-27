@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-extra-heavy-crude-oil-market-ai-automation-dynamics-tzd9f/

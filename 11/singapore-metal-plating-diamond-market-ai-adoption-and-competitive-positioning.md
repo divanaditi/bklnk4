@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metal-plating-diamond-market-ai-adoption-j3zrc/

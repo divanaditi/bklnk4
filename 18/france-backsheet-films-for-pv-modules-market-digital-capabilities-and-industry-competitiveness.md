@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-backsheet-films-pv-modules-market-digital-capabilities-ekzpf/

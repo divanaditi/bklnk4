@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-single-loop-controllers-market-segment-growth-2ukqc/

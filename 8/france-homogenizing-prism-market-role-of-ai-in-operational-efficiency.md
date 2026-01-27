@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-homogenizing-prism-market-role-ai-operational-ozdyf/

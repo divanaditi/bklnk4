@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-land-mobile-radio-market-size-ecosystem-6gwtf/

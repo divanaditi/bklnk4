@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-commercial-air-ski-erg-stand-market-ai-automation-qlp7f/

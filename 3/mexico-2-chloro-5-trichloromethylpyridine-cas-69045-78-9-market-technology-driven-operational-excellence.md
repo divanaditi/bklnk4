@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-chloro-5-trichloromethylpyridine-cas-69045-78-9-sfthf/

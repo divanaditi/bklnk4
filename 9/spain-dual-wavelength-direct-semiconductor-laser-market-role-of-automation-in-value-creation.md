@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dual-wavelength-direct-semiconductor-laser-market-zo7xf/

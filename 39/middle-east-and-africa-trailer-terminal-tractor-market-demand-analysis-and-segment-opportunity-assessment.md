@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trailer-terminal-tractor-market-demand-c8lkf/

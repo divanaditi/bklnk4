@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gan-industrial-devices-market-growth-drivers-hfrtf/

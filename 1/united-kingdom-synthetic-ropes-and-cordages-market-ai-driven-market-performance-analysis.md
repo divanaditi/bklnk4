@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-synthetic-ropes-cordages-market-ai-driven-ko7gf/

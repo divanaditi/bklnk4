@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fume-extraction-market-ai-adoption-driving-pwgoc/

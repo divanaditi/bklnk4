@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-business-consumer-b2c-delivery-5txsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobility-scooters-market-ai-smart-technologies-xj8fe/

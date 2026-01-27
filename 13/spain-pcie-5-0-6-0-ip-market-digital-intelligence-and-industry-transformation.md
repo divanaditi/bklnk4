@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-pcie-5060-ip-market-digital-intelligence-industry-obgyf/

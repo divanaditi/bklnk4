@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-rapid-oral-fluid-test-instrument-market-technology-rml4f/

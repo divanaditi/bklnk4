@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-s-3-amino-12-propanediol-cas-61278-21-5-qitcf/

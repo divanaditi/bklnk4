@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-covid-19-non-destructive-testing-inspection-46obf/

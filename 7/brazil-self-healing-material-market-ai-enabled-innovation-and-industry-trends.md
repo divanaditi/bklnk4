@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-self-healing-material-market-ai-enabled-6j2vf/

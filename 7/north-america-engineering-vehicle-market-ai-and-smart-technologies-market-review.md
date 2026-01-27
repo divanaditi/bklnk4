@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-engineering-vehicle-market-ai-smart-technologies-nbhff/

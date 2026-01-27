@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ceramic-classification-impeller-market-ai-enabled-nvrmf/

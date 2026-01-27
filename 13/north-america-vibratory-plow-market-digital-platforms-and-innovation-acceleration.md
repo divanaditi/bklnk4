@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-vibratory-plow-market-digital-platforms-d78nc/

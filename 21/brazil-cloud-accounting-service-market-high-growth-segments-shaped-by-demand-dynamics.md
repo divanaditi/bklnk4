@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-accounting-service-market-high-growth-icx3f/

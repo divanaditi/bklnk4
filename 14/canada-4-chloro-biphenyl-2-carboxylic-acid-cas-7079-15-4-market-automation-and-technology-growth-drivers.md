@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-chloro-biphenyl-2-carboxylic-acid-cas-7079-15-4-9yptc/

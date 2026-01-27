@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-campaign-management-solution-market-segment-ez9dc/

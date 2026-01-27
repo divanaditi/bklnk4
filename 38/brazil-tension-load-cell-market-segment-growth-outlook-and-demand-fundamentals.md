@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-tension-load-cell-market-segment-growth-outlook-zbfbf/

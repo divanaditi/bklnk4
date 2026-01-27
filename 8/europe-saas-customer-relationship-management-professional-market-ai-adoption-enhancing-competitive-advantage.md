@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-saas-customer-relationship-management-professional-jreff/

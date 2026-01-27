@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerostat-system-market-size-7dftf/

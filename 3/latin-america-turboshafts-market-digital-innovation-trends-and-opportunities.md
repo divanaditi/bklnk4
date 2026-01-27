@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-turboshafts-market-digital-innovation-wka1f/

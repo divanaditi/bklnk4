@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-online-audio-professional-market-ai-trends-shaping-fptuc/

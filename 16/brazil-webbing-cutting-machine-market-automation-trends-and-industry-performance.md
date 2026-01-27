@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-webbing-cutting-machine-market-automation-htsff/

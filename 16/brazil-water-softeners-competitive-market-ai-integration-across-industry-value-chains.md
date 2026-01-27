@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-softeners-competitive-market-ai-y9rpf/

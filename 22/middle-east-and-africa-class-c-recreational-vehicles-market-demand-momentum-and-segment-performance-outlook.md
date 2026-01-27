@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-class-c-recreational-vehicles-market-qtg0f/

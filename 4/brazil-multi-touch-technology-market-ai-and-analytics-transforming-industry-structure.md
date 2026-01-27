@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multi-touch-technology-market-ai-analytics-smpff/

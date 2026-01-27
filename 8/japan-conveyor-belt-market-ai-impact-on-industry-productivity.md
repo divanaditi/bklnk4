@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-conveyor-belt-market-ai-impact-industry-productivity-dnx5f/

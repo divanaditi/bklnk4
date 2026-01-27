@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-acoustic-emission-testing-service-market-ctgbf/

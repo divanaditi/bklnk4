@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-5g-from-space-market-advanced-analytics-zrryf/

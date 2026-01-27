@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-body-contouring-market-demand-drivers-k29pe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-handset-rf-ic-market-advanced-technology-e6ywf/

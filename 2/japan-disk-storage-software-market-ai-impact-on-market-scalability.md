@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-disk-storage-software-market-ai-impact-scalability-v4hac/

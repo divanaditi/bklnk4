@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hand-assisted-devices-market-high-growth-fajlc/

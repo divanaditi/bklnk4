@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-life-fitness-equipment-market-ai-automation-2scof/

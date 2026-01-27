@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-offset-pole-outdoor-umbrellas-9fspc/

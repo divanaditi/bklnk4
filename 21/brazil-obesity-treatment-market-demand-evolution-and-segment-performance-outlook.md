@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-obesity-treatment-market-demand-evolution-segment-9jvqf/

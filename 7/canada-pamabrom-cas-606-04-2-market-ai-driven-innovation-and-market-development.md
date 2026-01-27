@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pamabrom-cas-606-04-2-market-ai-driven-innovation-39vqf/

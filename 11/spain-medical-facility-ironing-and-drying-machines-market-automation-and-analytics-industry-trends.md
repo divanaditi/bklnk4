@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-facility-ironing-drying-machines-market-epdsf/

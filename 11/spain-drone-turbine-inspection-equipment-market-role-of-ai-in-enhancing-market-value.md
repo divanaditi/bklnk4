@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-drone-turbine-inspection-equipment-market-hiwff/

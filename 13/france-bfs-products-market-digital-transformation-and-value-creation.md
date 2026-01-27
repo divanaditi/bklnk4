@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-bfs-products-market-digital-transformation-8dyef/

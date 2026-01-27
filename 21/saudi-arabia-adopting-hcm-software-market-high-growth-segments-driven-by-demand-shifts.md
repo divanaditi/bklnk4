@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-adopting-hcm-software-market-high-growth-odjrf/

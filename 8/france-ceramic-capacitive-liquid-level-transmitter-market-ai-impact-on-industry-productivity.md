@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ceramic-capacitive-liquid-level-transmitter-jjarf/

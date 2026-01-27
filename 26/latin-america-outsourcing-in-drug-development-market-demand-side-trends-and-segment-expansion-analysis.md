@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-outsourcing-drug-development-market-demand-side-9hwcc/

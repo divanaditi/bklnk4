@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-semi-automated-parking-management-systems-8fmkf/

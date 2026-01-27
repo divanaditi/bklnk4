@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carrot-powder-market-size-r9ggc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-double-sided-tap-market-technology-convergence-yoxbf/

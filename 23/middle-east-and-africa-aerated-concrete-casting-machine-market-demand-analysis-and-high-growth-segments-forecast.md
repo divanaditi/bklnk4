@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerated-concrete-casting-machine-4z8of/

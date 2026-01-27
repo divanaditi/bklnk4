@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-luggage-bag-market-demand-outlook-segment-kyogc/

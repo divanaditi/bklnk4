@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-rotating-anode-x-ray-generator-yvnaf/

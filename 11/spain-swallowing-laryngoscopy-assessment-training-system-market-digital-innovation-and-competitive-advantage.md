@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-swallowing-laryngoscopy-assessment-training-jdpmf/

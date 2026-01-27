@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pos-printerz-market-technology-innovation-ggupe/

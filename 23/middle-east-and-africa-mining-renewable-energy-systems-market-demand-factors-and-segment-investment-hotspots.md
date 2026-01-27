@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mining-renewable-energy-systems-zy74f/

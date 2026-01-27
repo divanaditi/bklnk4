@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-hooded-wetsuit-market-technology-innovation-khdkf/

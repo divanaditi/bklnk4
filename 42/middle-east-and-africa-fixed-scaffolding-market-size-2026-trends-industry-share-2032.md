@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fixed-scaffolding-market-size-2026-minvc/

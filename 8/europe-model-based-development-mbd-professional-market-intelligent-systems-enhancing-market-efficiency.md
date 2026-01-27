@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-model-based-development-mbd-professional-duwbf/

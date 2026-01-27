@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-intelligent-cash-registers-market-j842c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-customer-360-professional-market-technology-kuqjc/

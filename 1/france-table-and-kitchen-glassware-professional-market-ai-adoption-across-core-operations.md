@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-table-kitchen-glassware-professional-market-ai-adoption-jahyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cylindrical-htc-lithium-titanate-battery-rx5yf/

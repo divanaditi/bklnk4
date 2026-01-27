@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-torrefied-pellets-market-size-2026-xautf/

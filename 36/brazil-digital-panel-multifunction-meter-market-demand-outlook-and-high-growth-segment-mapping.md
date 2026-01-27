@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-panel-multifunction-meter-market-demand-zyqqe/

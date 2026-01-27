@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-smoke-alarm-market-demand-forces-q1lnf/

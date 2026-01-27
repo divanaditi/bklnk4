@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mechanical-puller-market-ai-adoption-across-ecosystems-uy3mf/

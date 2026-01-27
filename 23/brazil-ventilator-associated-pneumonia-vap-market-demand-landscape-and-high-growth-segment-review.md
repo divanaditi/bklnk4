@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ventilator-associated-pneumonia-vap-market-demand-3yfhf/

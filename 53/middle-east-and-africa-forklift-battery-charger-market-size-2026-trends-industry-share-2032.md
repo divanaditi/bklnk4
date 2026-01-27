@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-forklift-battery-charger-market-236hf/

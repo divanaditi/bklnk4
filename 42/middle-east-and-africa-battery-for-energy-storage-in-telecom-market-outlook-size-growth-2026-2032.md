@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-battery-energy-storage-telecom-market-i1upc/

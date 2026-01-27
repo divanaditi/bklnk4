@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-casing-collar-locator-market-demand-drivers-impacting-otygf/

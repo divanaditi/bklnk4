@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-skin-barrier-patches-market-ai-enabled-process-cfjaf/

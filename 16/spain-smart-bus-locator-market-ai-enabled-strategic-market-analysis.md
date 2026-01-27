@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-bus-locator-market-ai-enabled-strategic-lotzf/

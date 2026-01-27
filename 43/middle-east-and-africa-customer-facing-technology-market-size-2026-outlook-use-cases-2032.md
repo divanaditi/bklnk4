@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-customer-facing-technology-market-s924c/

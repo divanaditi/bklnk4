@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-pre-cooling-warehouse-market-automation-nm8bf/

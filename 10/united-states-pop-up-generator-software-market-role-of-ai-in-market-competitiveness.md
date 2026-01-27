@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-pop-up-generator-software-market-role-gyknf/

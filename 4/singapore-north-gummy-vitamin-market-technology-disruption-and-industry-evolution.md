@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-north-gummy-vitamin-market-technology-disruption-ndxbc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6-aminocoumarin-hydrochloride-cas-o71cf/

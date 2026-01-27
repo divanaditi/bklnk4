@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-chloro-2-fluorobenzoic-acid-cas-161957-55-7-i7glf/

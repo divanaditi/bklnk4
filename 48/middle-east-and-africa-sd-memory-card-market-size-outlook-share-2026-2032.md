@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sd-memory-card-market-size-o4f4f/

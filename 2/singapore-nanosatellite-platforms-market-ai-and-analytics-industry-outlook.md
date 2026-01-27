@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nanosatellite-platforms-market-ai-analytics-vbv5c/

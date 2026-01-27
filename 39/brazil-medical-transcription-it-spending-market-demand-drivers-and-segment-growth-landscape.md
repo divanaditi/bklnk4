@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-transcription-spending-market-demand-drivers-okahf/

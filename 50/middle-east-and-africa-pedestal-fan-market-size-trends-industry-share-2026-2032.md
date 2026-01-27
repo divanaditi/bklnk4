@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pedestal-fan-market-size-trends-7h0vf/

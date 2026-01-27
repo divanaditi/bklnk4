@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-embedded-infrastructure-devices-internet-things-jyftc/

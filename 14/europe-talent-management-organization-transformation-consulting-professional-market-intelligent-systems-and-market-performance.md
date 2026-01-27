@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-talent-management-organization-transformation-consulting-umaic/

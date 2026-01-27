@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cva-market-demand-side-trends-segment-71vef/

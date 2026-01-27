@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ping-pang-racket-market-ai-data-driven-l6pvf/

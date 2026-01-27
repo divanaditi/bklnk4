@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gynecology-software-market-segment-demand-ofylc/

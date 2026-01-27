@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-solid-pcd-market-demand-outlook-segment-u3paf/

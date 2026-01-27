@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-24-bistrifluoromethylbenzonitrile-cas-177952-38-4-ylpvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-anomaly-detection-professional-market-impact-ai-sunil-bade-8e18c/

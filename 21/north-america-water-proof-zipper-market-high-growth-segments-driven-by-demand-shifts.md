@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-water-proof-zipper-market-high-growth-zmqff/

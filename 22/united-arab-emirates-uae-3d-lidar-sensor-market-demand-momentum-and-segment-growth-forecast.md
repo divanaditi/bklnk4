@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-3d-lidar-sensor-market-demand-momentum-cl2wf/

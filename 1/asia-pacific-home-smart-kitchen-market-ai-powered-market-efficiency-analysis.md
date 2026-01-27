@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-home-smart-kitchen-market-ai-powered-efficiency-6cemc/

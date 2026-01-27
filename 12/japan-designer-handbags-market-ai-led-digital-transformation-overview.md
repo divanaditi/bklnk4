@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-designer-handbags-market-ai-led-digital-transformation-ym7wf/

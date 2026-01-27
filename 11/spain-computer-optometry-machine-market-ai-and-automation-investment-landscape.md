@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-computer-optometry-machine-market-ai-automation-sbzbf/

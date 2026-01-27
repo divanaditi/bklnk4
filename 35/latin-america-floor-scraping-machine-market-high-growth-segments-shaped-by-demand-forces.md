@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-floor-scraping-machine-market-high-growth-s0caf/

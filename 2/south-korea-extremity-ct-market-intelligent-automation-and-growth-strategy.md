@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-extremity-ct-market-intelligent-automation-cadpc/

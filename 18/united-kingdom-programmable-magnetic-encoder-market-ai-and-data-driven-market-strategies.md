@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-programmable-magnetic-encoder-market-stw6f/

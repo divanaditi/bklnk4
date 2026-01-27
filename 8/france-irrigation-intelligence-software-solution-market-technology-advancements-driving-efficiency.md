@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-irrigation-intelligence-software-solution-sdgpf/

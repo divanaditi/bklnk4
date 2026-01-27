@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-trailer-mounted-fire-fighting-pump-market-yybpf/

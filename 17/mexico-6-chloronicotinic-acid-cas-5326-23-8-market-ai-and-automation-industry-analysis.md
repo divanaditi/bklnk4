@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-6-chloronicotinic-acid-cas-5326-23-8-market-ai-ibwpc/

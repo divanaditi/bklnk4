@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-compact-variable-frequency-drive-market-digital-bvref/

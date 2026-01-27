@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-slatwall-market-smart-automation-1kdnf/

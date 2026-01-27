@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-all-electric-trucks-market-size-ze14f/

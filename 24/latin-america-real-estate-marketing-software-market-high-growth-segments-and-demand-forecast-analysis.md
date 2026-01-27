@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-real-estate-marketing-software-28n7c/

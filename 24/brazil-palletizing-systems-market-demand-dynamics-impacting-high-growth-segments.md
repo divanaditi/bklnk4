@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-palletizing-systems-market-demand-dynamics-impacting-7vfnf/

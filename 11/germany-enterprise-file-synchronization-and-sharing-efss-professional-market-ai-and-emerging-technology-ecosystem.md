@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-enterprise-file-synchronization-sharing-hreoc/

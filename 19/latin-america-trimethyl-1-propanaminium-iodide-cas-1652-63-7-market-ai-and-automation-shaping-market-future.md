@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-trimethyl-1-propanaminium-iodide-cas-9zdje/

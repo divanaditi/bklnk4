@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-die-attach-equipment-market-demand-dynamics-t5qqf/

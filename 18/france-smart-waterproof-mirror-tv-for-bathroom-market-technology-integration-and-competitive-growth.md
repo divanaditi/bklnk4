@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-waterproof-mirror-tv-bathroom-market-mg5bf/

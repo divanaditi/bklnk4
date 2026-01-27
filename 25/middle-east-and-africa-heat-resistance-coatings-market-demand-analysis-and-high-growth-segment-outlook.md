@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heat-resistance-coatings-market-demand-8qt1f/

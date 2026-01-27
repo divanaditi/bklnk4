@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-alpha-pinene-resin-market-technology-qavlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-real-estate-agency-software-professional-market-ixwof/

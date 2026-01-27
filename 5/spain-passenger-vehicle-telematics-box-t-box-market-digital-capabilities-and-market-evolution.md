@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-passenger-vehicle-telematics-box-t-box-market-s2gtf/

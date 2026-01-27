@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-5g-communication-equipment-market-segment-jrrdf/

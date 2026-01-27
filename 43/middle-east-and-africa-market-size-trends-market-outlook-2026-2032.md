@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-market-size-trends-outlook-2026-2032-f5y3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-brand-intelligence-software-9xtjc/

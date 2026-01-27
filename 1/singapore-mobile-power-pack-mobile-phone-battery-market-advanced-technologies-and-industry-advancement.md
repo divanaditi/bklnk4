@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-power-packmobile-phone-battery-market-8xj1c/

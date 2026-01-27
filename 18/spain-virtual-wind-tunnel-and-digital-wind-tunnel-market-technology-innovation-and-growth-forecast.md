@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-virtual-wind-tunnel-digital-market-technology-yoiwf/

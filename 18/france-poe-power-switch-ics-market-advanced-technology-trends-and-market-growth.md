@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-poe-power-switch-ics-market-advanced-technology-rwfhf/

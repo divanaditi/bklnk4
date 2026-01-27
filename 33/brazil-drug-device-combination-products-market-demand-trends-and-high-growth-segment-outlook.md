@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drug-device-combination-products-market-demand-w3dse/

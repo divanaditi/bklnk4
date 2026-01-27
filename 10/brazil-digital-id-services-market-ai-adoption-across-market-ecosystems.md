@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-id-services-market-ai-adoption-across-kip2f/

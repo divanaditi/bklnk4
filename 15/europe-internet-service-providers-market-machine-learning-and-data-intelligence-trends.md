@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-internet-service-providers-market-machine-s9cpf/

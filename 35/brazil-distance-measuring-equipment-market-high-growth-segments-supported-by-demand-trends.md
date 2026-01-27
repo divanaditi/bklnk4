@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-distance-measuring-equipment-market-high-growth-7lzaf/

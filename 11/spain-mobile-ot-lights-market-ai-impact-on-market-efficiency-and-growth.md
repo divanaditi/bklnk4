@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mobile-ot-lights-market-ai-impact-efficiency-say3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-receiving-tracking-software-market-growth-ngsic/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-prepacked-column-market-growth-drivers-segment-expansion-x686f/

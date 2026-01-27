@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sign-board-market-demand-landscape-segment-0jnvf/

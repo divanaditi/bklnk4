@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hot-rolled-bar-market-demand-dynamics-ed2ec/

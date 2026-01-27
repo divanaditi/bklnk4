@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pv-water-pump-market-technology-innovation-piyrf/

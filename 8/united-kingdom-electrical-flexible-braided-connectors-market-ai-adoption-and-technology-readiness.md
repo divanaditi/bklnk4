@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-electrical-flexible-braided-connectors-q5o8f/

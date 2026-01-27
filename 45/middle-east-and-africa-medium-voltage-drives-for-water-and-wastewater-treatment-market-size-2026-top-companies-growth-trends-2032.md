@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medium-voltage-drives-water-wastewater-ybu7c/

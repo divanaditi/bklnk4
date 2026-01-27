@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-end-user-construction-equipment-machine-skfpf/

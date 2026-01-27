@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-echo-type-diagnostic-ultrasound-devices-l2hcf/

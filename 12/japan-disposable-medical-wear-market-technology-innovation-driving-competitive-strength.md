@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-disposable-medical-wear-market-technology-oorlf/

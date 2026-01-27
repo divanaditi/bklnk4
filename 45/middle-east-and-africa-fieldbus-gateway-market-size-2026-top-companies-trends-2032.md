@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fieldbus-gateway-market-size-2026-oxnhc/

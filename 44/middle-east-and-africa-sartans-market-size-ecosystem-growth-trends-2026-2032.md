@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sartans-market-size-ecosystem-growth-r5wic/

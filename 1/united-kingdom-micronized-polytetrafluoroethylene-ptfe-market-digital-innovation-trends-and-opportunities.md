@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-micronized-polytetrafluoroethylene-ptfe-a0spf/

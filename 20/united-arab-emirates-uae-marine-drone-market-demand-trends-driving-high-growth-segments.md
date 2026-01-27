@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-marine-drone-market-demand-trends-pgbgf/

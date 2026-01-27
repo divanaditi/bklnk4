@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shading-powder-market-segment-qjkwc/

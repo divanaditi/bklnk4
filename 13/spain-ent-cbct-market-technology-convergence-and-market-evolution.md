@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ent-cbct-market-technology-convergence-evolution-kc5wf/

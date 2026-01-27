@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-forex-crm-software-market-ai-adoption-technology-wlc0f/

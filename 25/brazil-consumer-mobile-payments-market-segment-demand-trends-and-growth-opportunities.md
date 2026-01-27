@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-consumer-mobile-payments-market-segment-demand-bzd3f/

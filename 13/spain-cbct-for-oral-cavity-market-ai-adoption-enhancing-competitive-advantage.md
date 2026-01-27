@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cbct-oral-cavity-market-ai-adoption-enhancing-competitive-ftxef/

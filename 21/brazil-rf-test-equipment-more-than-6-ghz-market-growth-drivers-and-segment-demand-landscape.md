@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rf-test-equipment-more-than-6-ghz-market-growth-wmnbf/

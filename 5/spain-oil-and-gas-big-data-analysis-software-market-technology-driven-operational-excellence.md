@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-oil-gas-big-data-analysis-software-market-zmeof/

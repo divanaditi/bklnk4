@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-powder-metal-detector-market-demand-xya8f/

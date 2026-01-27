@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-chain-handcuffs-market-ai-impact-structure-xaj4f/

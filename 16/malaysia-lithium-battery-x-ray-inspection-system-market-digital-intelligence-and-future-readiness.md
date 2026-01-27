@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-lithium-battery-x-ray-inspection-3b4if/

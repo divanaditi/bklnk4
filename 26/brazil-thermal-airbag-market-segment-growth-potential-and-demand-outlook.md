@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermal-airbag-market-segment-growth-potential-o26yc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-transformation-strategy-consulting-market-76gqc/

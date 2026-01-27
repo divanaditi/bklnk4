@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-manzanate-market-demand-factors-mx0gf/

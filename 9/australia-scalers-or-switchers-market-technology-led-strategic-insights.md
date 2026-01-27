@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-scalers-switchers-market-technology-led-j0ypf/

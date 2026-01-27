@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-barrier-coatings-disposable-packaging-market-digital-obcac/

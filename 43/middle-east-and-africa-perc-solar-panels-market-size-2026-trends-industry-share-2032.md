@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-perc-solar-panels-market-size-2026-1tcif/

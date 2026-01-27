@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fishing-ship-winch-market-demand-73kqf/

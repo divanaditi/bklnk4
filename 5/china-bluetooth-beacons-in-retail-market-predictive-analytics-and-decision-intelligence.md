@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bluetooth-beacons-retail-market-predictive-6kfdf/

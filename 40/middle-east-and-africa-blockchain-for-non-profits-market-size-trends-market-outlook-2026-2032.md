@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-blockchain-non-profits-market-co88f/

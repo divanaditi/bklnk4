@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enterprise-cloud-services-market-demand-ujcwf/

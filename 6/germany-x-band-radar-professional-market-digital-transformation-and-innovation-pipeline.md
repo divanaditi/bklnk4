@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-x-band-radar-professional-market-digital-aw3lf/

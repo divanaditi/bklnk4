@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-medical-housings-market-strategic-demand-nlvyf/

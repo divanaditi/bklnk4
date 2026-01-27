@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-legal-accounting-software-market-qyo9c/

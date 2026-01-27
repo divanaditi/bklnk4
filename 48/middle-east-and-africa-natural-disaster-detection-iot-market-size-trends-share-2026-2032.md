@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-natural-disaster-detection-l3vwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-dental-practice-market-ai-adoption-competitive-cpttf/

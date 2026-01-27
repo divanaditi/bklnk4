@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-friability-testers-market-demand-0cs5f/

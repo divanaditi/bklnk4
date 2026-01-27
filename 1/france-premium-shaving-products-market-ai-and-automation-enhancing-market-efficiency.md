@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-premium-shaving-products-market-ai-automation-6as8f/

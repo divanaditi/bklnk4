@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wi-fi-hotspot-market-ai-smart-technologies-rfybf/

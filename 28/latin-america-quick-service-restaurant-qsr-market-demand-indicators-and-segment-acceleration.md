@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-quick-service-restaurant-qsr-market-pnnac/

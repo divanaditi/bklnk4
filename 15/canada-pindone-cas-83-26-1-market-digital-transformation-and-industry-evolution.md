@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pindone-cas-83-26-1-market-digital-transformation-pq2lf/

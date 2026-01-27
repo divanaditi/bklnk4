@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-privacy-policy-generator-software-professional-ylxnf/

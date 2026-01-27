@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-operating-room-cameras-market-wzzmc/

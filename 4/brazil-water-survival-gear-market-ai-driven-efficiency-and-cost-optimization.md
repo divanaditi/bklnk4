@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-survival-gear-market-ai-driven-mb3kf/

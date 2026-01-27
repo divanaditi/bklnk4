@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-low-code-development-platform-si9wf/

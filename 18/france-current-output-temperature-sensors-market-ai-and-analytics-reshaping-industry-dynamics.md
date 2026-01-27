@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-current-output-temperature-sensors-market-1q0df/

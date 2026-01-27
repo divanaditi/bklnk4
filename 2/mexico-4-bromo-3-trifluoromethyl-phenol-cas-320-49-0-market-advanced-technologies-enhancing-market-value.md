@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-3-trifluoromethylphenol-cas-320-49-0-4qhef/

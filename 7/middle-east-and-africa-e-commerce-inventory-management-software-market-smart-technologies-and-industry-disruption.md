@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-e-commerce-inventory-management-e52ff/

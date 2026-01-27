@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-on-board-diagnostic-obd-system-iqjvf/

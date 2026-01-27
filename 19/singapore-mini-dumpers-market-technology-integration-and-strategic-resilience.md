@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mini-dumpers-market-technology-integration-q90ve/

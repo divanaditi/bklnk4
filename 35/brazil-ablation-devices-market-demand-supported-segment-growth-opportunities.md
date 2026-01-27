@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ablation-devices-market-demand-supported-segment-g0dof/

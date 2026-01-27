@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-colored-water-based-ink-market-digital-platforms-1omrf/

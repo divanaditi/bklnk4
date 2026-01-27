@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-dynamic-scheduling-softwares-market-demand-czs4c/

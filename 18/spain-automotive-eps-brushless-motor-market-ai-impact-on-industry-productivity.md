@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-eps-brushless-motor-market-ai-impact-industry-vrdnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-capsule-drawer-market-impact-ai-digital-transformation-ypgcf/

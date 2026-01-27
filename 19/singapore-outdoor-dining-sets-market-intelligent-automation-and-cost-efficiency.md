@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-outdoor-dining-sets-market-intelligent-jwyqe/

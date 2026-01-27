@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-radiation-curable-ink-market-ai-smart-1w4ef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-data-center-power-market-size-2026-qqamf/

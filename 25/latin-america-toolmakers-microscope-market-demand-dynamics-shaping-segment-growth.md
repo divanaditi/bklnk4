@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-toolmakers-microscope-market-demand-gk9rc/

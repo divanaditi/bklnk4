@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lateral-flow-readers-market-demand-drivers-u8ycf/

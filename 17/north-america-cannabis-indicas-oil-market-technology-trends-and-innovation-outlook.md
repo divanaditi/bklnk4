@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-cannabis-indicas-oil-market-technology-n7x1c/

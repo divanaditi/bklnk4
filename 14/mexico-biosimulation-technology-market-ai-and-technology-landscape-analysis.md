@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-biosimulation-technology-market-ai-landscape-yzufc/

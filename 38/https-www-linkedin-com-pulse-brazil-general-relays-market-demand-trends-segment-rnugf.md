@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-general-relays-market-demand-trends-segment-rnugf/

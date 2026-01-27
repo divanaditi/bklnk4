@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hook-lift-trailer-market-ai-adoption-across-nypdc/

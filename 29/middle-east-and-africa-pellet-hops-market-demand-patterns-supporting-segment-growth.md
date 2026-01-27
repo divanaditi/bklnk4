@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pellet-hops-market-demand-patterns-sgl2f/

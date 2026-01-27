@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-logo-design-tools-software-market-digital-intelligence-6k3gf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-echo-cardiography-market-demand-supported-holvf/

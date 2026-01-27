@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-2-fluoro-6-methoxybenzaldehyde-cas-146137-74-8-1mfhf/

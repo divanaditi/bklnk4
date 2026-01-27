@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-reusable-lcd-writing-tablets-market-eddke/

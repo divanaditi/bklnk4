@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hair-removal-devices-market-smart-automation-kzfxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ring-metal-oxide-varistor-mov-market-demand-led-qvnae/

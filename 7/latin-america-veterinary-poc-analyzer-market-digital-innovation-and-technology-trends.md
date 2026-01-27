@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-veterinary-poc-analyzer-market-digital-innovation-u3m1f/

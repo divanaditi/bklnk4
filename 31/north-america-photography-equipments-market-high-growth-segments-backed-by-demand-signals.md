@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-photography-equipments-market-high-growth-xz71f/

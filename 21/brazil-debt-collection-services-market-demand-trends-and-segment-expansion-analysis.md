@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-debt-collection-services-market-demand-yrblf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-battery-cable-professional-market-v4mmf/

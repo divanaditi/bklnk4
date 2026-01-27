@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flexible-lead-piezo-film-sensor-yhgjf/

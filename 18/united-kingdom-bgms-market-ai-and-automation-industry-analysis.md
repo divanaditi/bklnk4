@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-bgms-market-ai-automation-industry-dixhf/

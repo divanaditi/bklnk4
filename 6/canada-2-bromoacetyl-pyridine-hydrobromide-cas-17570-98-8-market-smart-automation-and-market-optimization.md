@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromoacetylpyridine-hydrobromide-cas-b2yuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-artificial-sausage-casings-market-segment-bovlf/

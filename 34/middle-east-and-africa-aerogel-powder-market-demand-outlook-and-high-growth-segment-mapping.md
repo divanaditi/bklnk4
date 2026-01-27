@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aerogel-powder-market-demand-outlook-lnscf/

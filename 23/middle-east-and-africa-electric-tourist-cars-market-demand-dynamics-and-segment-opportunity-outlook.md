@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-tourist-cars-market-demand-ddcrf/

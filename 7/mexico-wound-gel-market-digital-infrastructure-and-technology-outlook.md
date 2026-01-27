@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-wound-gel-market-digital-infrastructure-technology-ugiif/

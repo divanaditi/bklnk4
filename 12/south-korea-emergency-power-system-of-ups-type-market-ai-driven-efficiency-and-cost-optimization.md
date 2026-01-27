@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emergency-power-system-ups-type-sc5of/

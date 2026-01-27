@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-curling-irons-market-intelligent-gp15f/

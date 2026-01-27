@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-used-kart-market-technology-led-efficiency-cost-optimization-vquef/

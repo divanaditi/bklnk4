@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hydraulic-torque-wrench-market-high-growth-mirkf/

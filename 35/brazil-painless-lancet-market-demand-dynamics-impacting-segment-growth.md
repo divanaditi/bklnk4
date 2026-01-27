@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-painless-lancet-market-demand-dynamics-impacting-q9yhf/

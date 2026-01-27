@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-platelet-storage-box-market-growth-drivers-9anef/

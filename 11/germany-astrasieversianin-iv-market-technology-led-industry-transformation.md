@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-astrasieversianin-iv-market-technology-led-swcic/

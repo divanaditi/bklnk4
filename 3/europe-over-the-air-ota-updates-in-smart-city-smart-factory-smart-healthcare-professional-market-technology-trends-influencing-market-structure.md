@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-over-the-air-ota-updates-smart-city-factory-k3hbf/

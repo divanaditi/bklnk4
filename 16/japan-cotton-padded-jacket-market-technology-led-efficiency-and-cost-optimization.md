@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cotton-padded-jacket-market-technology-led-jgjsf/

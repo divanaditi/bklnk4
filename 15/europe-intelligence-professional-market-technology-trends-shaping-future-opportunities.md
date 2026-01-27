@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-intelligence-professional-market-technology-sb7ef/

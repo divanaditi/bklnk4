@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wire-winding-surface-mount-inductor-market-segment-y5cef/

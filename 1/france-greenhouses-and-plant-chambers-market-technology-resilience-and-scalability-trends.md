@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-greenhouses-plant-chambers-market-technology-ebshf/

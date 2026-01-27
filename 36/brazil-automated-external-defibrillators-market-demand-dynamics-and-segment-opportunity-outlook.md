@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automated-external-defibrillators-market-demand-p88bf/

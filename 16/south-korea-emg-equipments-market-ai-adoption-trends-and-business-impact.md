@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emg-equipments-market-ai-adoption-trends-business-mbuhf/

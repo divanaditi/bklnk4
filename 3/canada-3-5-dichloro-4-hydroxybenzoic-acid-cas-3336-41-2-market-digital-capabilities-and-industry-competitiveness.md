@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-35-dichloro-4-hydroxybenzoic-acid-cas-3336-41-2-h9v5f/

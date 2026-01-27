@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-toilets-sales-market-segment-demand-iumgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-women-leather-jacket-market-segment-4hsvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-offshore-drilling-market-8szkc/

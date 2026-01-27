@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-battery-electric-truck-bet-market-7uf2c/

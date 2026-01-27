@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-navigation-site-market-demand-outlook-segment-t2zuf/

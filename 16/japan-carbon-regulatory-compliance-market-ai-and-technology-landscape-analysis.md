@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-regulatory-compliance-market-ai-technology-09fzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-spline-measuring-instrument-market-automation-arkuf/

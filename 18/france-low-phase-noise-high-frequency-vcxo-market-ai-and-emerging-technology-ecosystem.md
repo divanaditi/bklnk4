@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-low-phase-noise-high-frequency-vcxo-market-ai-08llf/

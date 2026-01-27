@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-freeze-dreid-foods-market-automation-digital-8wmsf/

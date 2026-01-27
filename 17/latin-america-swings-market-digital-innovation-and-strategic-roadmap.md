@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-swings-market-digital-innovation-7ie2f/

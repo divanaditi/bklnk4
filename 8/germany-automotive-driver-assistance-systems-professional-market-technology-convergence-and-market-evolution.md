@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-driver-assistance-systems-hi4mf/

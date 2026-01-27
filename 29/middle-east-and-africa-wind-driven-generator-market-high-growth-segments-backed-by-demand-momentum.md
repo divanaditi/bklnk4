@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wind-driven-generator-4zp5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-resistor-trimmer-automatic-laser-trimming-system-vx3se/

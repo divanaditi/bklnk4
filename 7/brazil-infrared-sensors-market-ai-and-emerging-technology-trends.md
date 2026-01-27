@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-infrared-sensors-market-ai-emerging-technology-trends-sfcmf/

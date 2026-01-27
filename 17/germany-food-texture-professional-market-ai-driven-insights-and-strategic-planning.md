@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-food-texture-professional-market-ai-driven-j6lqf/

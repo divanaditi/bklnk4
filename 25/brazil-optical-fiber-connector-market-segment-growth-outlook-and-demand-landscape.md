@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-optical-fiber-connector-market-segment-fww8f/

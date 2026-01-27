@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-advanced-power-sweeper-market-demand-drivers-emerging-q9rkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aluminum-silicon-carbide-alsic-packaging-pq8nf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-trailers-excavator-market-av8nf/

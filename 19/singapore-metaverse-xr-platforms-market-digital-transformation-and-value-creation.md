@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-metaverse-xr-platforms-market-digital-y6y7e/

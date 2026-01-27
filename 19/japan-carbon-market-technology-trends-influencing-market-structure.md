@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-market-technology-trends-influencing-structure-r6unf/

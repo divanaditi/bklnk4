@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-specialty-trade-contractors-market-demand-b25wf/

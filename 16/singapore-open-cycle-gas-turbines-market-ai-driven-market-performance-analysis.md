@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-open-cycle-gas-turbines-market-ai-driven-tsfgf/

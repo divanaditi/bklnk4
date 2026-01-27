@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-covid-19-automotive-spray-booth-market-w2isf/

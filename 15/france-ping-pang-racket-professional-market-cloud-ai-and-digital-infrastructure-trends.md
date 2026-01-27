@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ping-pang-racket-professional-market-cloud-ai-mws1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6-bromo-13-benzothiazole-cas-53218-26-1-tuyif/

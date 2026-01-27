@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-carp-pliers-market-key-demand-factors-fastest-growing-wmb9f/

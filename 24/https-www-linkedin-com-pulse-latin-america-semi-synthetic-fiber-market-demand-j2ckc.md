@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-semi-synthetic-fiber-market-demand-j2ckc/

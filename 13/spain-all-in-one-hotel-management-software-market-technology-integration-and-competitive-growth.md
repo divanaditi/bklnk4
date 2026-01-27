@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-all-in-one-hotel-management-software-market-technology-ti2rf/

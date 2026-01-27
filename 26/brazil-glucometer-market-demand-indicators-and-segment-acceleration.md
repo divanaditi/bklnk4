@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-glucometer-market-demand-indicators-segment-acceleration-0reuc/

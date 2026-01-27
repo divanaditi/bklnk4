@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-fluoro-3-formylphenylboronic-acid-cas-374538-01-9-sggkf/

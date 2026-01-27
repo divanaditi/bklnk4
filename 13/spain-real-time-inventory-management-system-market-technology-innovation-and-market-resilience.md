@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-real-time-inventory-management-system-market-cuqbf/

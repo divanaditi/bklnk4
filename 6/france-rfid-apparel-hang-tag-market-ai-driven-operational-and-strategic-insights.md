@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rfid-apparel-hang-tag-market-ai-driven-b6dbf/

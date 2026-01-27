@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-microencapsulation-market-demand-trends-lty7f/

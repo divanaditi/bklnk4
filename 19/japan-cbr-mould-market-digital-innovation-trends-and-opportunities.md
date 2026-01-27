@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cbr-mould-market-digital-innovation-trends-n4apf/

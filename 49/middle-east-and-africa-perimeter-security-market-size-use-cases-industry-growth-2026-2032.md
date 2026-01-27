@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-perimeter-security-market-size-7m14f/

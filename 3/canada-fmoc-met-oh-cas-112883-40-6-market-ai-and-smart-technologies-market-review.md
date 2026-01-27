@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-fmoc-met-oh-cas-112883-40-6-market-ai-smart-technologies-ofn1f/

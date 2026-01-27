@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-racks-market-digital-transformation-5a85c/

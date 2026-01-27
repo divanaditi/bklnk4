@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-structural-adhesive-tapes-market-size-x4y5f/

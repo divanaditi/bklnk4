@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-covid-19-paralleling-switchgear-market-technology-z6zxc/

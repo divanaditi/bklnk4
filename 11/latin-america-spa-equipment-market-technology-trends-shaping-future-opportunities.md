@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spa-equipment-market-technology-bjd4c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-trade-finance-technology-professional-market-tr1wc/

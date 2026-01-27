@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-isocetyl-myristate-market-demand-szbbc/

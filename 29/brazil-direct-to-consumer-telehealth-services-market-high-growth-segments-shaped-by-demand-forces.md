@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-direct-consumer-telehealth-services-x1ilc/

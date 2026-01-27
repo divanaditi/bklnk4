@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-drilling-completion-fluids-market-growth-jqqyf/

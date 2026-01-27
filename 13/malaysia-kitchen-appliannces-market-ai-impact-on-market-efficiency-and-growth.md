@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-kitchen-appliannces-market-ai-impact-nh4kf/

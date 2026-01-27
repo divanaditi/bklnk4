@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bisphenol-bpa-market-demand-drivers-cw4yc/

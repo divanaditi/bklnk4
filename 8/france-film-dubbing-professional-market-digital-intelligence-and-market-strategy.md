@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-film-dubbing-professional-market-digital-tg0kf/

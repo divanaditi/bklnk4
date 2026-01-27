@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uav-software-market-size-2026-trends-7lrif/

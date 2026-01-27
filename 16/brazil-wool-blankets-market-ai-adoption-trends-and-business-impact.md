@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wool-blankets-market-ai-adoption-trends-business-eqbrf/

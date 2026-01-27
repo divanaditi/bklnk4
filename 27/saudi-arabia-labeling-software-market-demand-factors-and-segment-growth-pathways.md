@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-labeling-software-market-demand-factors-jsgzf/

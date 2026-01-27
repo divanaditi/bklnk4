@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electric-overblankets-market-demand-8rprc/

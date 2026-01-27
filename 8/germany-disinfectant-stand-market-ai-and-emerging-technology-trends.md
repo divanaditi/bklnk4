@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-disinfectant-stand-market-ai-emerging-technology-vdtrf/

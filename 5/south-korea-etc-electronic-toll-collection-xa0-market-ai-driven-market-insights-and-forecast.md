@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-etc-electronic-toll-collectionxa0-vunsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-multi-touch-screens-market-demand-side-gubqc/

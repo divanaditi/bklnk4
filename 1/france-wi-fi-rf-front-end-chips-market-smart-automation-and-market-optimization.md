@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wi-fi-rf-front-end-chips-market-smart-automation-w4wqf/

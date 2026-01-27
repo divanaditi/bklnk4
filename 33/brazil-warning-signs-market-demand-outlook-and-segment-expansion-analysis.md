@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-warning-signs-market-demand-outlook-segment-xczyf/

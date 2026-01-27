@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-loss-prevention-market-demand-momentum-ajurf/

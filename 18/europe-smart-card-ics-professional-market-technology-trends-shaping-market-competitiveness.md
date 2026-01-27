@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smart-card-ics-professional-market-technology-r3jxf/

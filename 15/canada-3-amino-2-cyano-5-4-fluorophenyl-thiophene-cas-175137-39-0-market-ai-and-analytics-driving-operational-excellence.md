@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-amino-2-cyano-5-4-fluorophenylthiophene-cas-175137-39-0-d5cpf/

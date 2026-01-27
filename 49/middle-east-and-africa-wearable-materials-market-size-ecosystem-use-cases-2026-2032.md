@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wearable-materials-market-size-ecosystem-rlcif/

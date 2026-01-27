@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-stadium-market-size-2026-g5jee/

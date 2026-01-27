@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ai-server-accelerated-processing-unit-gkzvf/

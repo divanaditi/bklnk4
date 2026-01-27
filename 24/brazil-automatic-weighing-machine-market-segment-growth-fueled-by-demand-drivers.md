@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-weighing-machine-market-segment-gbwpf/

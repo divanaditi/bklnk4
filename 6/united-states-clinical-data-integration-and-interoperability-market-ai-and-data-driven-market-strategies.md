@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-clinical-data-integration-interoperability-tvhef/

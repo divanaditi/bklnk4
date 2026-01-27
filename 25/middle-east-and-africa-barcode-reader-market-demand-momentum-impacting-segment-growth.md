@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-barcode-reader-market-demand-bu50f/

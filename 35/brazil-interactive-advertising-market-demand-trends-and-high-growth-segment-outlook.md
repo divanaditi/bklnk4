@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-interactive-advertising-market-demand-trends-ikdkf/

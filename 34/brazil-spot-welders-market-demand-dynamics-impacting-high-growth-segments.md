@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-spot-welders-market-demand-dynamics-yxnxf/

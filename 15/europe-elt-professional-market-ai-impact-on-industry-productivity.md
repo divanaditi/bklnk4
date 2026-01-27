@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-elt-professional-market-ai-impact-industry-nrfgf/

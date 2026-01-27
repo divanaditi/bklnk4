@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-size-2026-ecosystem-trends-2032-bzkkf/

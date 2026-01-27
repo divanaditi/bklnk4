@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-touch-screen-interface-market-technology-bdnie/

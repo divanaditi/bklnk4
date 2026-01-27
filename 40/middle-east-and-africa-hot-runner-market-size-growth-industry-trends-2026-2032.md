@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hot-runner-market-size-growth-industry-fhexf/

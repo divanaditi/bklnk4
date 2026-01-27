@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mechanized-rehabilitation-systems-market-automation-8lqkf/

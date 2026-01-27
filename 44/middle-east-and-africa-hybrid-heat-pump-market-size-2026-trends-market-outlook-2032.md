@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hybrid-heat-pump-market-size-ulptc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-33-diindolylmethane-cas-1968-05-4-qyacf/

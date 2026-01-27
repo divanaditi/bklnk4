@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-indoor-food-delivery-robot-market-technology-ugxgf/

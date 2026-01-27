@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-electronic-whiteboard-market-role-ai-competitiveness-h9kve/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloroquinoline-3-boronic-acid-cas-128676-84-6-ow8uc/

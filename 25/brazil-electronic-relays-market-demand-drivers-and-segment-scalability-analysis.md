@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-relays-market-demand-drivers-segment-8hfif/

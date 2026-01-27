@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-frameless-direct-drive-torque-motor-market-a9dof/

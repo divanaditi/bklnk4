@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-mobile-multi-gas-detector-market-automation-j1rbf/

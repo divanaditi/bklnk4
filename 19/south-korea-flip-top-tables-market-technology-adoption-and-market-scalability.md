@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-flip-top-tables-market-technology-adoption-mrczf/

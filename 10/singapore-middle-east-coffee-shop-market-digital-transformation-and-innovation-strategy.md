@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-middle-east-coffee-shop-market-digital-transformation-lhzcf/

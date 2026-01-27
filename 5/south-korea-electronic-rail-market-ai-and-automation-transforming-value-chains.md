@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electronic-rail-market-ai-automation-9qckf/

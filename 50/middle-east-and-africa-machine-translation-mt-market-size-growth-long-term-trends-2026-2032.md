@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-machine-translation-mt-market-size-kz2qf/

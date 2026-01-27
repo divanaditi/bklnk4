@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-130%CE%BCm-ultra-thin-pv-silicon-wafer-f8mnf/

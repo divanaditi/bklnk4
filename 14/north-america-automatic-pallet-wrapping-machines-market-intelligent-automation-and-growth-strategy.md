@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-automatic-pallet-wrapping-machines-market-bs6hc/

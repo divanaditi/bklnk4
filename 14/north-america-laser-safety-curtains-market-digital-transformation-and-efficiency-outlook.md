@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-laser-safety-curtains-market-digital-m0vec/

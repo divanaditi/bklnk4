@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-vegetable-vacuum-skin-packaging-market-metlf/

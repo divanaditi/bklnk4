@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-frequency-analyzer-market-digital-innovation-sgbkc/

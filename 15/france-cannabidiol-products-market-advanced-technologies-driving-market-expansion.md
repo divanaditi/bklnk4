@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cannabidiol-products-market-advanced-technologies-xxu9f/

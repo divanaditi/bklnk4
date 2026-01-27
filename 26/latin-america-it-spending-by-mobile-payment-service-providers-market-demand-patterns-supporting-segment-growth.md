@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spending-mobile-payment-service-providers-hg8ac/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transportation-payments-solution-market-technology-gujof/

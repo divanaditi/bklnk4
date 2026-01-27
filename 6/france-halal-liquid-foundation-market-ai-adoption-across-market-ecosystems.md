@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-halal-liquid-foundation-market-ai-adoption-xrtkf/

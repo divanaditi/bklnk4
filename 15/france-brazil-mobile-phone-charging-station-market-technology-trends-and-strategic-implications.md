@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-brazil-mobile-phone-charging-station-market-hd3xf/

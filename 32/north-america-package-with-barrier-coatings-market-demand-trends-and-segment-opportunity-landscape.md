@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-package-barrier-coatings-market-demand-bgclf/

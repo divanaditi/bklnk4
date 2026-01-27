@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hydrogenated-bisphenol-hbpa-epoxy-resin-hkfjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-passenger-vehicle-smart-0oeje/

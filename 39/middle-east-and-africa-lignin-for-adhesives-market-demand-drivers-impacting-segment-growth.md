@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lignin-adhesives-market-demand-drivers-q3tpf/

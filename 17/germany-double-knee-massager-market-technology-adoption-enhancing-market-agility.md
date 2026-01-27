@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-double-knee-massager-market-technology-g2fqf/

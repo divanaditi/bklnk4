@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-lcd-timing-controller-market-demand-3gxpc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-phenolic-wood-bonding-adhesives-market-jozkf/

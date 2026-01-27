@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-dichloro-3-fluorobenzonitrile-cas-o6ukc/

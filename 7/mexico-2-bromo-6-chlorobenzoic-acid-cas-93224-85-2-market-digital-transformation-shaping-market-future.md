@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-bromo-6-chlorobenzoic-acid-cas-93224-85-2-3o5zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-armchairs-footrest-market-demand-indicators-hdtjf/

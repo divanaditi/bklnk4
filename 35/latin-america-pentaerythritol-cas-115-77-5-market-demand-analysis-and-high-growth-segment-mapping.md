@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pentaerythritol-cas-115-77-5-market-e9hhf/

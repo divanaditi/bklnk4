@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-intra-body-ultradound-imaging-3eguf/

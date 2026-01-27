@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-emergency-drinking-water-market-technology-y3wsf/

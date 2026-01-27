@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-photovoltaic-market-size-2026-hwt3f/

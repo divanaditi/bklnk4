@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-reactive-ink-market-demand-patterns-segment-performance-5vc5f/

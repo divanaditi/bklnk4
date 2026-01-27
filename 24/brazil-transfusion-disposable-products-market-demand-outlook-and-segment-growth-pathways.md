@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-transfusion-disposable-products-c5ruf/

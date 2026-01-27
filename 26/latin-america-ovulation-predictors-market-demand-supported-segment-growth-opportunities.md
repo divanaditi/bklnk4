@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ovulation-predictors-market-demand-supported-il19c/

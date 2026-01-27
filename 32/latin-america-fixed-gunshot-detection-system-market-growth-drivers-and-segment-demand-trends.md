@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixed-gunshot-detection-system-market-growth-cw0fe/

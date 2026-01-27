@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coal-market-digital-transformation-innovation-c01uf/

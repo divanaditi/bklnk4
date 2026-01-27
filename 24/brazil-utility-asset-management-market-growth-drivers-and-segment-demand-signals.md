@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-utility-asset-management-market-growth-drivers-sqmvf/

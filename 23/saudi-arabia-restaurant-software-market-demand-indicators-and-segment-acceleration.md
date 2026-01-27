@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-restaurant-software-market-demand-indicators-s1owf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-57-difluoroindole-cas-301856-25-7-market-miqtf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cell-petri-dishes-market-ai-adoption-competitive-rp6hf/

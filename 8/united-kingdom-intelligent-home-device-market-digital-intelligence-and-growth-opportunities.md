@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-intelligent-home-device-market-digital-eywxf/

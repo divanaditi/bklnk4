@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-paper-tester-market-high-growth-ctp2f/

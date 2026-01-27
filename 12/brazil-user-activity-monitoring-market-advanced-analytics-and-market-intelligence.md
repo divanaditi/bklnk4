@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-user-activity-monitoring-market-advanced-v0z1c/

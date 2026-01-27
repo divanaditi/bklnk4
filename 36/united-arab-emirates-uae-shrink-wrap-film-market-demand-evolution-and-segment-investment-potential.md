@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-shrink-wrap-film-market-demand-8lvaf/

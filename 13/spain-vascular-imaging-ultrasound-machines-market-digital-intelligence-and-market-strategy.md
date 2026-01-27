@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-vascular-imaging-ultrasound-machines-market-bi2tf/

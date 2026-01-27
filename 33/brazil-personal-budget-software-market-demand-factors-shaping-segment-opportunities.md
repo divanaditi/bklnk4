@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-personal-budget-software-market-demand-lpmbe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-data-catalog-market-demand-outlook-fs4lc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-drug-refrigerated-storage-box-market-technology-spamf/

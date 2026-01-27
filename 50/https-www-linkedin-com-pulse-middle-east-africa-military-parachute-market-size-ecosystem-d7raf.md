@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-military-parachute-market-size-ecosystem-d7raf/

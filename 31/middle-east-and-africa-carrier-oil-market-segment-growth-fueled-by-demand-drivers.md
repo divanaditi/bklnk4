@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carrier-oil-market-segment-growth-x6nsc/

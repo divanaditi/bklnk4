@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-data-analysis-software-market-qi0gf/

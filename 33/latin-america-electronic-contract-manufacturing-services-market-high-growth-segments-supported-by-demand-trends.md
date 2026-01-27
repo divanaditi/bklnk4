@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electronic-contract-manufacturing-services-oyade/

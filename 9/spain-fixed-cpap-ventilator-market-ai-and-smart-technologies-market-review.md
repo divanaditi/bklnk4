@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-fixed-cpap-ventilator-market-ai-smart-technologies-ukkrf/

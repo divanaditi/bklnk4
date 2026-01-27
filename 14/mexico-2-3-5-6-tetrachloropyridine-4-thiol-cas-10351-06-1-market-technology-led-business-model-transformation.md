@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2356-tetrachloropyridine-4-thiol-cas-10351-06-1-chd4c/

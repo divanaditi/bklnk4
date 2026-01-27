@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fuselage-to-fairing-market-digital-intelligence-o4nyf/

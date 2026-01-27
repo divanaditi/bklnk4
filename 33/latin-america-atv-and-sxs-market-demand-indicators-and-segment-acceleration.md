@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-atv-sxs-market-demand-indicators-segment-acceleration-4powe/

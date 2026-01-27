@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-insulation-displacement-connectors-market-technology-driven-upyxf/

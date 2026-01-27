@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-multimodal-language-models-llms-market-technology-dja4f/

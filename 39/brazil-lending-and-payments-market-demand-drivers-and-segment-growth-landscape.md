@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lending-payments-market-demand-drivers-e28xf/

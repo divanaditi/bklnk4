@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-furniture-knob-market-automation-trends-g7jnc/

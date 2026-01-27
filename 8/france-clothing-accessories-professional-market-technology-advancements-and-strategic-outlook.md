@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-clothing-accessories-professional-market-technology-eaqdf/

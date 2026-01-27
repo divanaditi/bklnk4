@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solid-state-switch-market-segment-growth-cjfrf/

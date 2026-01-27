@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-open-iot-platform-professional-market-6uzkf/

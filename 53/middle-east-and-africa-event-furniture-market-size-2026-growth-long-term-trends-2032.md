@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-event-furniture-market-size-2026-h5lgf/

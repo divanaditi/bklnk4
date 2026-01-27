@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-countries-wireless-bridge-market-technology-driven-llqqc/

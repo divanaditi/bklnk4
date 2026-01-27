@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-swimwear-beachwear-professional-market-digital-0vcrf/

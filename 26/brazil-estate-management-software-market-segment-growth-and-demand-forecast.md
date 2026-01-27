@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-estate-management-software-market-segment-i1lpc/

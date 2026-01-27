@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-graphic-design-software-product-market-demand-tgsgf/

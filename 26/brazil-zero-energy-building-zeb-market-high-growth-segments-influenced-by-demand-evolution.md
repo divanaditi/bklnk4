@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zero-energy-building-zeb-market-high-growth-segments-ygyac/

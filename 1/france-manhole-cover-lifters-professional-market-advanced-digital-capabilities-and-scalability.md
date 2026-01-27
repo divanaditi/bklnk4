@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-manhole-cover-lifters-professional-market-advanced-ershf/

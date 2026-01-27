@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-visible-reversing-system-market-segment-growth-i3s1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-belt-pulleys-market-size-2026-xdzec/

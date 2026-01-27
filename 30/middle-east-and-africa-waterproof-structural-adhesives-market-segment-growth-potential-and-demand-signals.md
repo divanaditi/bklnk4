@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-waterproof-structural-adhesives-jo3sf/

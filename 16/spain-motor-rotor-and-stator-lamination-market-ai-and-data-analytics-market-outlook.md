@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-motor-rotor-stator-lamination-market-ai-data-8wsff/

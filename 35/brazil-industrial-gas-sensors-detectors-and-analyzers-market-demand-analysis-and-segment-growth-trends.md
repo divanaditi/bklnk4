@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-gas-sensors-detectors-analyzers-6p6wf/

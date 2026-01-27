@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cleansing-cotton-professional-market-ai-impact-cx1ff/

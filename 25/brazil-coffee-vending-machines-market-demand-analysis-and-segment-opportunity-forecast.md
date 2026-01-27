@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coffee-vending-machines-market-demand-analysis-wxfnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mdi-based-polyurethane-tdi-based-qos3f/

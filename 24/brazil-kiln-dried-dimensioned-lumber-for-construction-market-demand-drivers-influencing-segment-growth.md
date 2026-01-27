@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-kiln-dried-dimensioned-lumber-construction-market-ioq1f/

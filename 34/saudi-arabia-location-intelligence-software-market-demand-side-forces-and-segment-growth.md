@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-location-intelligence-software-market-anb4f/

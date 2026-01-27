@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carrier-wi-fi-equipments-market-technology-2qsef/

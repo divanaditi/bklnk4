@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-rvrecreational-vehicle-professional-market-technology-qv8kf/

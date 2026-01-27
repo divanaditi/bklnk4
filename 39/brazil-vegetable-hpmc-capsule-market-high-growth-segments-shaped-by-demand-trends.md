@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vegetable-hpmc-capsule-market-high-growth-segments-qdbtf/

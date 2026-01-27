@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-soldering-machine-market-demand-outlook-segment-fgtxc/

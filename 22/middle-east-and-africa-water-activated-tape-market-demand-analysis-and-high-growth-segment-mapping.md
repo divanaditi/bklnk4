@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-water-activated-tape-market-demand-46axf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-router-market-size-2026-xxymf/

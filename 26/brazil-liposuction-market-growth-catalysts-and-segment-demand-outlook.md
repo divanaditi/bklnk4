@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-liposuction-market-growth-catalysts-segment-62huc/

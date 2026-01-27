@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-esports-management-software-professional-market-qpzvc/

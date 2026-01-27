@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-water-based-pressure-sensitive-adhesives-n0rgf/

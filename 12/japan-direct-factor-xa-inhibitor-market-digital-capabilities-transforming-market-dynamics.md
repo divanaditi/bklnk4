@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-direct-factor-xa-inhibitor-market-digital-capabilities-qabbf/

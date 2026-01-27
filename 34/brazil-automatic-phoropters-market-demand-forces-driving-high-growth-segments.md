@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-phoropters-market-demand-forces-orntf/

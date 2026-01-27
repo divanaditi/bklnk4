@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-10-deacetylbaccatin-cas-32981-86-5-market-mn2xf/

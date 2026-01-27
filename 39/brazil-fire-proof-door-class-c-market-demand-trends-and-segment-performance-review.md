@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fire-proof-door-class-c-market-demand-trends-segment-hc6if/

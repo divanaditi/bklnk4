@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coagulation-testing-instrument-market-intelligent-lkf9c/

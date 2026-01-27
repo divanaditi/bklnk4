@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-very-light-aircraft-market-pd55f/

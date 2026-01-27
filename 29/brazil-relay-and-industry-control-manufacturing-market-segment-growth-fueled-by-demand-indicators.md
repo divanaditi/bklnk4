@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-relay-industry-control-manufacturing-v2hyf/

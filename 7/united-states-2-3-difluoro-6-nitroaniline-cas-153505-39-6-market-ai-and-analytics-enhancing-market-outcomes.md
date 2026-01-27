@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-23-difluoro-6-nitroaniline-cas-153505-39-6-xlnrf/

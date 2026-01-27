@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-medical-power-supplies-market-ai-enabled-hga3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-labeling-market-segment-growth-k0mff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-clinical-outcome-assessment-ecoa-i2gqc/

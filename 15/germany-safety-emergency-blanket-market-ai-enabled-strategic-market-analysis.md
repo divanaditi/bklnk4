@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-safety-emergency-blanket-market-ai-enabled-brbwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-scratch-lottery-ticket-market-technology-innovation-majnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automated-gates-market-segment-growth-vd8jc/

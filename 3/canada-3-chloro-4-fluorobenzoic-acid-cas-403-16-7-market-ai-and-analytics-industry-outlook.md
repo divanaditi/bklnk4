@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-chloro-4-fluorobenzoic-acid-cas-403-16-7-market-gy1bf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-iot-security-professional-market-smart-technologies-ylx8c/

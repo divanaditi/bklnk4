@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-collets-market-size-outlook-industry-ni5vc/

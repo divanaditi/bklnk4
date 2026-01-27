@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-kazakhstan-oil-gas-market-size-xkeyf/

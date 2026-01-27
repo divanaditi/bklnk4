@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-advanced-traffic-management-smart-cities-isozf/

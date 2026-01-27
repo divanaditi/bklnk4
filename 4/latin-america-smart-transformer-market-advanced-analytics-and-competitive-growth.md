@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-transformer-market-advanced-analytics-4wsmf/

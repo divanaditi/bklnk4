@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-liver-ai-assisted-diagnosis-software-market-ai-enabled-b0lvf/

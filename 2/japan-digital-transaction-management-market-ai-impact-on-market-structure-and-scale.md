@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-transaction-management-market-ai-impact-structure-8i1yc/

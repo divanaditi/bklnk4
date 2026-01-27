@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automobile-internal-external-ornaments-vpgrf/

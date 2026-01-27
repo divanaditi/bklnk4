@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-ovens-market-size-2026-outlook-nd9uf/

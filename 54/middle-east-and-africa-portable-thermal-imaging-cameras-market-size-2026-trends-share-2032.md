@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-portable-thermal-imaging-cameras-kys5f/

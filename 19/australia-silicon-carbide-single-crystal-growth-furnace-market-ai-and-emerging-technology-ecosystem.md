@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-silicon-carbide-single-crystal-growth-furnace-qge5e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-quantity-control-instrument-market-ai-uzn7f/

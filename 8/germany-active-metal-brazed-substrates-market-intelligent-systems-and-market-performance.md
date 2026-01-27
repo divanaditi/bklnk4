@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-active-metal-brazed-substrates-market-intelligent-zap1f/

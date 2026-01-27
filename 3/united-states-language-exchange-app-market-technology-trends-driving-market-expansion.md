@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-language-exchange-app-market-technology-2ob3f/

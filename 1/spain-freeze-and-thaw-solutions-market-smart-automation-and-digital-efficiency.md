@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-freeze-thaw-solutions-market-smart-automation-i72pf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gcc-indoor-location-based-services-waamf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-url-shortener-professional-market-ai-driven-knymc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-analytics-bi-software-market-high-growth-vb3wf/

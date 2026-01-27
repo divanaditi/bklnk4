@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electrical-testing-services-professional-xrdsf/

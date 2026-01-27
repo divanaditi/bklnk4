@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-intimate-underwear-apparel-market-ai-adoption-2casf/

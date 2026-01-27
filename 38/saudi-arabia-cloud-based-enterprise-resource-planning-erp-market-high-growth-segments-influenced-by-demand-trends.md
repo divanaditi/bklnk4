@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cloud-based-enterprise-resource-i4hbc/

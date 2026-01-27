@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-ecdis-system-market-digital-platforms-wpvzf/

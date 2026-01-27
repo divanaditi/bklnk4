@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-iot-enabled-smart-toilet-bowl-cleaning-system-iwptf/

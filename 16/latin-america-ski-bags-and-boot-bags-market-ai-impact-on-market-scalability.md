@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ski-bags-boot-market-ai-impact-k3xef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-leather-boots-market-demand-outlook-rhbic/

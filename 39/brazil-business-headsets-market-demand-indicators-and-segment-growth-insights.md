@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-business-headsets-market-demand-indicators-segment-wxs4f/

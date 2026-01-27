@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-safety-interlock-switches-market-segment-growth-kaj4f/

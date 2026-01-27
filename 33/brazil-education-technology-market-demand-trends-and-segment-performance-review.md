@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-education-technology-market-demand-trends-6jmle/

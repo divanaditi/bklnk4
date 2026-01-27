@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-synthetic-indigo-cas-482-89-3-market-pxlef/

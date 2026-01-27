@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wire-winding-chip-inductors-market-high-growth-f2ehf/

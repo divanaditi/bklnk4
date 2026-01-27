@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-inland-barge-market-ai-integration-across-industry-ctief/

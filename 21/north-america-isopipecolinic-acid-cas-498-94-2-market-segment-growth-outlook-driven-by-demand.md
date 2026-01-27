@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-isopipecolinic-acid-cas-498-94-2-market-owwpf/

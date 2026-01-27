@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fintech-blockchain-market-high-growth-segments-htelf/

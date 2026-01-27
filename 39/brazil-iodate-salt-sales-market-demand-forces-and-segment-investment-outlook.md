@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-iodate-salt-sales-market-demand-forces-segment-oxy7f/

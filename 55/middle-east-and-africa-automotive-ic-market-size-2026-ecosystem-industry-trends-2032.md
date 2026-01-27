@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-ic-market-size-2026-ecosystem-espcf/

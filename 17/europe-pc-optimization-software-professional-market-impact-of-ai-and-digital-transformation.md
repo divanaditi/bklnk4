@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-pc-optimization-software-professional-market-impact-jspof/

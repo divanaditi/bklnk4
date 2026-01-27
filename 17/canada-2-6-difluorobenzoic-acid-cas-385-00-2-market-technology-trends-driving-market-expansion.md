@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-26-difluorobenzoic-acid-cas-385-00-2-market-4cokc/

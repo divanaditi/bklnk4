@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-multifunctional-soybean-combine-harvester-aphtf/

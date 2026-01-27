@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lighting-transformer-market-technology-disruption-nccnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waste-heat-recovery-oil-gas-market-demand-analysis-rglxf/

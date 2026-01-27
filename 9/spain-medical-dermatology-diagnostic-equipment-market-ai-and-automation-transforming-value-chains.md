@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-dermatology-diagnostic-equipment-po5hf/

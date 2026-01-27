@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-incubator-analyzers-market-segment-growth-on8re/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-indole-3-carbinol-cas-700-06-1-market-zmqbc/

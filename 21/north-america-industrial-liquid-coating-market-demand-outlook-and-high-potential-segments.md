@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-liquid-coating-market-demand-mcgff/

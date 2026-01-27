@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wall-scanner-market-demand-patterns-3gc4c/

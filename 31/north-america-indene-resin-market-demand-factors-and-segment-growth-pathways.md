@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-indene-resin-market-demand-factors-7wbnf/

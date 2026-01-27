@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shigh-availability-clustering-software-market-b6xuf/

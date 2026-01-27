@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-perfluoro-12-dimethylcyclohexane-cas-306-98-9-phmbf/

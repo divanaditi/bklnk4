@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-corrosion-coupons-market-demand-signals-eqhyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thermal-imaging-infrared-camera-f6b5f/

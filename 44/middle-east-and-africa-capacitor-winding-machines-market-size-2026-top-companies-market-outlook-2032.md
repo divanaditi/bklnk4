@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-capacitor-winding-machines-g0h8f/

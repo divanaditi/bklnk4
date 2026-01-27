@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-aminothiazole-hydrochloride-cas-6142-05-8-h66hf/

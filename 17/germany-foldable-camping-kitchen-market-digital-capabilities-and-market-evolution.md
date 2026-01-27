@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-foldable-camping-kitchen-market-digital-capabilities-zwo2f/

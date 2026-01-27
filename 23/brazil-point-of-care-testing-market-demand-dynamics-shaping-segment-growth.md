@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-point-care-testing-market-demand-dynamics-shaping-rmetf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ultrasound-platform-market-intelligent-rovbe/

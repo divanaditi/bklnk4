@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-offshore-welding-equipment-market-intelligent-systems-6lltf/

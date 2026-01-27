@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-automatic-opening-laparoscopic-retrieval-bag-pgu2c/

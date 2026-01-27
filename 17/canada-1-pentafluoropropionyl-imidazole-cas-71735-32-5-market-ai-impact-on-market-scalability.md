@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-pentafluoropropionylimidazole-cas-71735-32-5-pbqac/

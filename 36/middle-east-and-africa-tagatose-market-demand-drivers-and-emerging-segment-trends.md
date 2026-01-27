@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tagatose-market-demand-2kjqe/

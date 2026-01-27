@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-m2m-platform-market-high-growth-segment-8l9wf/

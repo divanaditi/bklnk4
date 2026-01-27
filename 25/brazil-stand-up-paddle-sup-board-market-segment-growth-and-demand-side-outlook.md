@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-stand-up-paddle-sup-board-market-segment-lqfxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-1-phenyl-1h-pyrazole-4-carboxylic-t24ef/

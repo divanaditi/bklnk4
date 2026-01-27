@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-pvt-solar-plus-storage-commercial-pv-professional-pywdf/

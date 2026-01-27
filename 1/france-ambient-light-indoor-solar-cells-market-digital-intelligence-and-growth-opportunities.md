@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ambient-light-indoor-solar-cells-market-ngo6f/

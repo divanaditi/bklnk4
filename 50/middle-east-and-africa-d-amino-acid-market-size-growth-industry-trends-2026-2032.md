@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-d-amino-acid-market-size-growth-bbv8f/

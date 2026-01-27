@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-synthetic-leather-sales-market-growth-drivers-segment-fh8tf/

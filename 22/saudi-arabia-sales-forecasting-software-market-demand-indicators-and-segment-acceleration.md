@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-sales-forecasting-software-market-demand-sjz0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emea-convenient-camping-cooler-market-d7ftc/

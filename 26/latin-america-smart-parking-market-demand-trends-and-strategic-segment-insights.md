@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-parking-market-demand-trends-q4ifc/

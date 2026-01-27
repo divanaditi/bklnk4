@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-inventory-management-software-market-4ns2f/

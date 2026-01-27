@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-appointment-schedule-software-market-intelligent-vcyvf/

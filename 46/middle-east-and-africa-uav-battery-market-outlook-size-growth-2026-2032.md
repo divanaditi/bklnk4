@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-uav-battery-market-outlook-size-growth-tjylf/

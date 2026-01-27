@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-neural-network-diagnosis-market-advanced-ipsmf/

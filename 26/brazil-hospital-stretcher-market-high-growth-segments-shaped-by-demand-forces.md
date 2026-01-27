@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hospital-stretcher-market-high-growth-segments-4bxpc/

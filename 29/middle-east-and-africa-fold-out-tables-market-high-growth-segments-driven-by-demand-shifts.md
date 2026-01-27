@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fold-out-tables-market-high-growth-ziebf/

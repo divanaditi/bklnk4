@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-wind-turbines-market-demand-side-wo7tf/

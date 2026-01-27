@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6-ethyl-3-formylchromone-cas-42059-78-9-market-ohzlf/

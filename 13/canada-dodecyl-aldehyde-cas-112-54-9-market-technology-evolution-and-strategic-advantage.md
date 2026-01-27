@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dodecyl-aldehyde-cas-112-54-9-market-technology-gma0c/

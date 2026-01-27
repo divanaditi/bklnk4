@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electron-beam-curable-resin-market-mtk2f/

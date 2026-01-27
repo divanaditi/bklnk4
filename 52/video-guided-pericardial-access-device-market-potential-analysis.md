@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/video-guided-pericardial-access-device-market-potential-tw01c/

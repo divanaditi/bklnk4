@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-veal-meat-market-segment-growth-outlook-based-qcd7f/

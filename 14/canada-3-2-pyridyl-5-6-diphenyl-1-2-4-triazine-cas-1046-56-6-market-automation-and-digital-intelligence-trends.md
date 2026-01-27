@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-2-pyridyl-56-diphenyl-124-triazine-cas-1046-56-6-j3wsf/

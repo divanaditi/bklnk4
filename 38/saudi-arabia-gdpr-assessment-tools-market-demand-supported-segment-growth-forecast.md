@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gdpr-assessment-tools-market-demand-supported-lofjc/

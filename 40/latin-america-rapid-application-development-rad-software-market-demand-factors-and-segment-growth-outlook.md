@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-rapid-application-development-rad-software-epoqf/

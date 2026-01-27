@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rechargeable-ni-zn-batteries-market-technology-innovation-pfyhf/

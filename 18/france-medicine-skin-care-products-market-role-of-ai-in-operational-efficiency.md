@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-medicine-skin-care-products-market-role-ai-operational-nig6f/

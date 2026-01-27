@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-chloro-3-nitrobenzamide-cas-16588-06-0-l2ruc/

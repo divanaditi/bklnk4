@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-solar-panel-rv-market-ai-adoption-across-w0bac/

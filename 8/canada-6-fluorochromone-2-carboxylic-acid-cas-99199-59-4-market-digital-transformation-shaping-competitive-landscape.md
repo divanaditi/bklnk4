@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6-fluorochromone-2-carboxylic-acid-cas-6mxbf/

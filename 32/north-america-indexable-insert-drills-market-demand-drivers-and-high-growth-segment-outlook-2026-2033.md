@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-indexable-insert-drills-market-demand-ljh5f/

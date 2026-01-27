@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-2-piperidinol-cas-45506-41-0-market-sg0ee/

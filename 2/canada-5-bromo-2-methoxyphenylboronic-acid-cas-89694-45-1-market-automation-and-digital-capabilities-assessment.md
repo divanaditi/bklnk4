@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-bromo-2-methoxyphenylboronic-acid-cas-89694-45-1-t9gwf/

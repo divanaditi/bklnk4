@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-handheld-3d-lidar-scanner-ufzbc/

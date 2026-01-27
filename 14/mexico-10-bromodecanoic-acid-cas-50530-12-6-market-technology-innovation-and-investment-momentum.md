@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-10-bromodecanoic-acid-cas-50530-12-6-market-bno9c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cooling-fan-motor-market-ai-adoption-gwpde/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tents-car-camping-market-size-growth-q1jfc/

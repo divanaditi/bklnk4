@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-massage-recliner-market-cloud-ai-digital-c6xdf/

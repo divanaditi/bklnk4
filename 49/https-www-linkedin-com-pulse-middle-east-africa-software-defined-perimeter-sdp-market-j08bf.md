@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-software-defined-perimeter-sdp-market-j08bf/

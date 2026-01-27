@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-medical-education-market-demand-drivers-j3k2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-ev-gear-position-sensors-market-smart-technology-cofmf/

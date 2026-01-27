@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mems-inertial-sensors-market-demand-drivers-mp6ef/

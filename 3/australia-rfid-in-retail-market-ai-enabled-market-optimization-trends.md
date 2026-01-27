@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rfid-retail-market-ai-enabled-optimization-trends-zlazf/

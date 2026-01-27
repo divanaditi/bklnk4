@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-low-iron-glass-concentrating-solar-power-ykc5f/

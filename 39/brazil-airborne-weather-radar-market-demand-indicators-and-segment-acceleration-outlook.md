@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-airborne-weather-radar-market-demand-indicators-segment-9wirf/

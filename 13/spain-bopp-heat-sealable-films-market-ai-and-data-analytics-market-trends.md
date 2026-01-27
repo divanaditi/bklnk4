@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bopp-heat-sealable-films-market-ai-data-analytics-qrxyf/

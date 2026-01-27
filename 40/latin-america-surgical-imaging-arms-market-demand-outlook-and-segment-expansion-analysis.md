@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-surgical-imaging-arms-market-demand-outlook-2cw0f/

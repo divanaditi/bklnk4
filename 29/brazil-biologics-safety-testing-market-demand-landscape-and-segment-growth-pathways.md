@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-biologics-safety-testing-market-demand-x1bec/

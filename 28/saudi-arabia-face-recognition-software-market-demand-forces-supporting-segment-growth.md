@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-face-recognition-software-market-iho2f/

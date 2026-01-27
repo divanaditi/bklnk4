@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-industrial-machine-vision-fixed-scanning-qs0qf/

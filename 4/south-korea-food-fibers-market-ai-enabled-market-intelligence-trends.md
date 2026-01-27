@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-fibers-market-ai-enabled-intelligence-ip9ac/

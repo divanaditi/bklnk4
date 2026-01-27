@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-x-ray-generator-market-demand-jrjdf/

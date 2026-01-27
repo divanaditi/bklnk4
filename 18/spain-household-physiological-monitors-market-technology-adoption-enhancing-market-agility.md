@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-household-physiological-monitors-market-s3ucf/

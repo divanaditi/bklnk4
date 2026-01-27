@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-video-virtualization-market-demand-factors-segment-hi9ff/

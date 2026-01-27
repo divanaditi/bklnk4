@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-bromoindoline-cas-22190-33-6-market-ycpif/

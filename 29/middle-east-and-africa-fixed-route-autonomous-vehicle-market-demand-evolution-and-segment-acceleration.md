@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fixed-route-autonomous-vehicle-3pazf/

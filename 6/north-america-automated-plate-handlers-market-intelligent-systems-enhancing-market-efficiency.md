@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-automated-plate-handlers-market-vbwxf/

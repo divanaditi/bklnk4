@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-zinc-picolinate-cas-17949-65-4-market-j2smf/

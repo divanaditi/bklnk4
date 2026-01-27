@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solid-state-smart-transformer-market-automation-em1oc/

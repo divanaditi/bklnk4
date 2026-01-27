@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-space-market-size-2026-use-hw5dc/

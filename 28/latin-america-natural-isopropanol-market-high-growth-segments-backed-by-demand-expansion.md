@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-natural-isopropanol-market-sftzc/

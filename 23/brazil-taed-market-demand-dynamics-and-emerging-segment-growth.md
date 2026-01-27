@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-taed-market-demand-dynamics-emerging-segment-iisjf/

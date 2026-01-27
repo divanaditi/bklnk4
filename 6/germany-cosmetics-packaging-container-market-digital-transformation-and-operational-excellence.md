@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-cosmetics-packaging-container-market-digital-snmpf/

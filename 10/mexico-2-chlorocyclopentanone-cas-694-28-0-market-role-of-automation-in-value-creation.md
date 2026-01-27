@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-chlorocyclopentanone-cas-694-28-0-rjb5f/

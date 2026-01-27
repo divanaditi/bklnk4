@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ambient-light-ir-uv-sensor-professional-market-machine-vrbuf/

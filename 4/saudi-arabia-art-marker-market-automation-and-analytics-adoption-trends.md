@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-art-marker-market-automation-analytics-adoption-wz9ff/

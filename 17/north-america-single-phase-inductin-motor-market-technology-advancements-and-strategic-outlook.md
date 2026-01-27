@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-single-phase-inductin-motor-market-technology-znx8c/

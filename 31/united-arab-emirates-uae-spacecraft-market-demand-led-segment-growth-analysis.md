@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-spacecraft-market-demand-led-segment-0vj2f/

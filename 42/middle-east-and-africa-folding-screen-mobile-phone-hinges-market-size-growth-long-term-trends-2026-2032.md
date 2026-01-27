@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-folding-screen-mobile-phone-hinges-8269f/

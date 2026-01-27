@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-3d-measuring-machine-market-high-growth-auqbf/

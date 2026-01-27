@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-optical-adapter-market-growth-drivers-demand-side-jzvcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-general-purpose-op-amps-market-7nbmf/

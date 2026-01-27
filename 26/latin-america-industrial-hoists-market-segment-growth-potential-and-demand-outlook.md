@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-hoists-market-segment-growth-sunil-bade-vqduc/

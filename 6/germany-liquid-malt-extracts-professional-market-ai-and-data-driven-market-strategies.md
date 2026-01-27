@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-liquid-malt-extracts-professional-market-ai-data-driven-l6jkf/

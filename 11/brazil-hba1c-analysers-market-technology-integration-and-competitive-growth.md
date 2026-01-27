@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hba1c-analysers-market-technology-integration-competitive-tvllc/

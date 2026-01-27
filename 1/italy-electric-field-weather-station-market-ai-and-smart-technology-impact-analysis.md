@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-electric-field-weather-station-market-ai-smart-i68ff/

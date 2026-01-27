@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-amplifiers-professional-market-digital-ecosystem-3hyjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-35-dimethyl-1-phenyl-1h-pyrazole-4-carbaldehyde-eq4lf/

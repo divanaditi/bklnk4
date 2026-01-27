@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-veterinary-ultrasound-market-size-xkw6f/

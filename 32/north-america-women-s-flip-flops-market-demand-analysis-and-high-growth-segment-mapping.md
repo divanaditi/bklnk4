@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-flip-flops-market-demand-analysis-telrf/

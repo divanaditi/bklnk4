@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-uv-pvd-coatings-market-demand-drivers-high-growth-rjdrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-weight-management-market-demand-drivers-qtsec/

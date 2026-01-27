@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-speed-generator-market-segment-growth-ukghf/

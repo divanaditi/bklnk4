@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-defoamers-pressure-sensitive-adhesives-7rnkf/

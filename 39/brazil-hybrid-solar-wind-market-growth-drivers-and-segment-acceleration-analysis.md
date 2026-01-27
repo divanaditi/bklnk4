@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hybrid-solar-wind-market-growth-l6nbf/

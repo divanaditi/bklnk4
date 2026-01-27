@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-elastic-waistband-market-size-9hrdc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-ethernet-phy-automotive-networks-gcj1f/

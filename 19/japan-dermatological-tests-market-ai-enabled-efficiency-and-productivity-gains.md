@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dermatological-tests-market-ai-enabled-efficiency-ane4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nas-network-attached-storage-devices-market-kkbyf/

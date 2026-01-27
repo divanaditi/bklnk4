@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-rtls-industrial-applications-market-segment-eovof/

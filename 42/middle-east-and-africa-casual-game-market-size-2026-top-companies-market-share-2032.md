@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-casual-game-market-size-2026-top-h4ylf/

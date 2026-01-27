@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cards-board-games-market-9vaac/

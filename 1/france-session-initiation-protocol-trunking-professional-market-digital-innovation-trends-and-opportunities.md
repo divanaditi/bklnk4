@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-session-initiation-protocol-trunking-professional-dubqf/

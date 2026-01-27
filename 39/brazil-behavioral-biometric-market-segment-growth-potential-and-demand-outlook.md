@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-behavioral-biometric-market-segment-growth-9rwaf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aircraft-propeller-system-market-digital-vacvf/

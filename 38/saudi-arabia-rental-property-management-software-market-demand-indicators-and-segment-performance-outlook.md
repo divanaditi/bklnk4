@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-rental-property-management-software-market-b4z3c/

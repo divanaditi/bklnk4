@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plasma-generators-market-demand-dynamics-6qenc/

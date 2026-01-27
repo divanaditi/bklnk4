@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rehab-equipment-market-demand-side-growth-segment-thvcf/

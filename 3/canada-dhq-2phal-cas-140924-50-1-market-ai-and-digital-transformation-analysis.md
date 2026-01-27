@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dhq2phal-cas-140924-50-1-market-ai-digital-transformation-acrof/

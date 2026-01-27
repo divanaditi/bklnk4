@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-capacitive-touchscreen-6a1zc/

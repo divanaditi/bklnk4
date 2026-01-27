@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-potassium-cetyl-phosphate-cas-84861-79-0-bv3mf/

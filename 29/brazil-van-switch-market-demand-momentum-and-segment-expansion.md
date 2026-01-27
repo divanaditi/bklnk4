@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-van-switch-market-demand-momentum-segment-expansion-bnwtf/

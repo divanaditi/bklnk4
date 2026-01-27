@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-force-gauge-market-demand-factors-segment-xum2f/

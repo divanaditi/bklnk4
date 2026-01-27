@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-pvc-ambu-bag-market-ai-adoption-technology-1eb7f/

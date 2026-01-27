@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-virtual-fitting-software-professional-market-njztf/

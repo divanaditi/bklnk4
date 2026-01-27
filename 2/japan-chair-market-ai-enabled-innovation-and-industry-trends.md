@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chair-market-ai-enabled-innovation-industry-trends-ijunc/

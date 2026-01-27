@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-eddy-current-testing-equipment-automotive-lzllc/

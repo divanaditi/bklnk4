@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-6-fluoroindole-3-acetic-acid-cas-443-75-4-market-k90jf/

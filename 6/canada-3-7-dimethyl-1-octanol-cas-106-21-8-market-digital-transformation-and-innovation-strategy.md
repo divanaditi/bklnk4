@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-37-dimethyl-1-octanol-cas-106-21-8-wtmnf/

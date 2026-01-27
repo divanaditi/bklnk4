@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ventilated-bulk-bag-market-demand-patterns-or7nc/

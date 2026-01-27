@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waterproof-fabrics-market-growth-drivers-segment-9zoqf/

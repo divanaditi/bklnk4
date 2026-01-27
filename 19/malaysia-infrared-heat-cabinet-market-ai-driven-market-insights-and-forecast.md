@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-infrared-heat-cabinet-market-ai-driven-nhbre/

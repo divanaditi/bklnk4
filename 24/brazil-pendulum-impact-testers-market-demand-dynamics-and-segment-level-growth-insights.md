@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pendulum-impact-testers-market-demand-dynamics-z8u5f/

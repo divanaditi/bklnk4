@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compact-electric-gripper-market-digital-transformation-leduf/

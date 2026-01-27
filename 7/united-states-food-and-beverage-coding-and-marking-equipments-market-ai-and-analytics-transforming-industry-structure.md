@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-food-beverage-coding-marking-equipments-t2iif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-scanner-software-market-demand-trends-hdrgf/

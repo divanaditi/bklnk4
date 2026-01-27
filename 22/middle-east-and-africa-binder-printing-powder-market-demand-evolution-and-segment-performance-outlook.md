@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-binder-printing-powder-market-demand-mmq2f/

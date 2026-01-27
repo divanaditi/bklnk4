@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-area-sensors-market-demand-led-segment-rssif/

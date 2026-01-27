@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-fitness-electronic-product-market-eu3hf/

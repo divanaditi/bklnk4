@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-loan-origination-software-market-demand-vq08f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-equipment-inspection-software-market-digital-7rvmf/

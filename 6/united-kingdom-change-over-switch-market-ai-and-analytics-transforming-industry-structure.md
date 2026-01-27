@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-change-over-switch-market-ai-analytics-vlkxf/

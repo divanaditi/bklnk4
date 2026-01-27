@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-nitrapyrin-cas-1929-82-4-market-technology-tj9if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clinical-decision-support-systems-cdss-market-uu3tf/

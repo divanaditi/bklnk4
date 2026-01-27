@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-plant-sensors-market-size-forecast-hgvlf/

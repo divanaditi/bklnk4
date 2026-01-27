@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-components-lithium-ion-secondary-batteries-market-obmmf/

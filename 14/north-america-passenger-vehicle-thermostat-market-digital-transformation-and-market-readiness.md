@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-passenger-vehicle-thermostat-market-hz6vc/

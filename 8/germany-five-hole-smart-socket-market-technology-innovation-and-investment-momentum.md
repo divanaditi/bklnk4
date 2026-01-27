@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-five-hole-smart-socket-market-technology-innovation-8jcvf/

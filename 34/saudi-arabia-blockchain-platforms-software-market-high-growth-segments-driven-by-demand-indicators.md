@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-blockchain-platforms-software-market-wq8qf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-connected-truck-telematics-market-automation-gqvkf/

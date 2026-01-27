@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-synthetic-sewing-thread-market-segment-growth-pcjbf/

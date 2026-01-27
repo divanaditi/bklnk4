@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-post-it-sticky-notes-market-fl7hf/

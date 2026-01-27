@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mica-heating-plate-market-digital-transformation-qaykc/

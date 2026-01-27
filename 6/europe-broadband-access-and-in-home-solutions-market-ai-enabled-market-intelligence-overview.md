@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-broadband-access-home-solutions-xv3gf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-oximeter-market-demand-drivers-segment-iy9qf/

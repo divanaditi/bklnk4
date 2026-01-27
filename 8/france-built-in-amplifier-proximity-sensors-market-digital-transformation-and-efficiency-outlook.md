@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-built-in-amplifier-proximity-sensors-market-nevof/

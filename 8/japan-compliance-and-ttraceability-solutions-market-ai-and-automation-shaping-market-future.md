@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compliance-ttraceability-solutions-market-yu6jf/

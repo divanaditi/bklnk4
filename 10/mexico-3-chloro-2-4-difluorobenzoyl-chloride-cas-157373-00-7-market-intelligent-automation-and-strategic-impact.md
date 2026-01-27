@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-chloro-24-difluorobenzoyl-chloride-cas-g1tpf/

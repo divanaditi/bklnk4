@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-carbon-management-software-professional-market-dmwvf/

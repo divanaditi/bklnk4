@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laboratory-digestion-system-market-demand-hcwuc/

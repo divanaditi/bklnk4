@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coal-liquid-ctl-market-high-growth-segments-backed-dnirf/

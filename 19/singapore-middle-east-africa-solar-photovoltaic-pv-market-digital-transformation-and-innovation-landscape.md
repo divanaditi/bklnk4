@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-middle-east-africa-solar-photovoltaic-pv-xelye/

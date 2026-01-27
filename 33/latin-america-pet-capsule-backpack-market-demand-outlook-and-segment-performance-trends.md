@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pet-capsule-backpack-market-demand-4vipe/

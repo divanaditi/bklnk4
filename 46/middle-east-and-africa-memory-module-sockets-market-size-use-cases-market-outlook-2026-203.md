@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-memory-module-sockets-market-pyx9f/

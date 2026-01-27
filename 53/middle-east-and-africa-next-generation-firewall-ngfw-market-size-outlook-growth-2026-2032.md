@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-next-generation-firewall-ngfw-7tlmf/

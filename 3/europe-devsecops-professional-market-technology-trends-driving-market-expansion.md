@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-devsecops-professional-market-technology-trends-v6nrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-grade-pvc-plastic-spiral-reinforced-qpate/

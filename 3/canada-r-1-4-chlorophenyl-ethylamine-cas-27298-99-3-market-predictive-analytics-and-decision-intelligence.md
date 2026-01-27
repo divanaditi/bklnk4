@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-r-1-4-chlorophenylethylamine-cas-27298-99-3-nz34f/

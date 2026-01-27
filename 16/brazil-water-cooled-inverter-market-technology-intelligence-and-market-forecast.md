@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-cooled-inverter-market-technology-gjcsf/

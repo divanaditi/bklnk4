@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-industrial-oven-market-size-2026-lj2tc/

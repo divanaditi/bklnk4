@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-absorbent-dressing-market-ai-smart-ry89c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lock-market-demand-strength-high-growth-segment-2ichf/

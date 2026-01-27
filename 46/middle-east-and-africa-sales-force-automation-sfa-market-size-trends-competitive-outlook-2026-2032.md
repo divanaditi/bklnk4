@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sales-force-automation-sfa-market-cjk5f/

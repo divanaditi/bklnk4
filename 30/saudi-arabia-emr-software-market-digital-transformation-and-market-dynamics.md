@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-emr-software-market-digital-transformation-q2k6f/

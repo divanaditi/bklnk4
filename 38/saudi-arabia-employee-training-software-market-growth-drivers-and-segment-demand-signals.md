@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-employee-training-software-market-vendc/

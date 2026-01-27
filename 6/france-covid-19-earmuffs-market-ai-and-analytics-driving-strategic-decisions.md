@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-covid-19-earmuffs-market-ai-analytics-driving-bscmf/

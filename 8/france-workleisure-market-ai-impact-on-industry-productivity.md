@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-workleisure-market-ai-impact-industry-productivity-swkif/

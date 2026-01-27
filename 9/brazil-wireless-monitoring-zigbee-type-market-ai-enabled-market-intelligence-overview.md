@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-monitoring-zigbee-type-yt6vf/

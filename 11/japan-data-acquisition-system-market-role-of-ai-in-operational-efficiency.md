@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-data-acquisition-system-market-role-ai-operational-k0g5f/

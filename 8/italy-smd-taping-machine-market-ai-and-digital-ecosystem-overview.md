@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-smd-taping-machine-market-ai-digital-ecosystem-vsmdf/

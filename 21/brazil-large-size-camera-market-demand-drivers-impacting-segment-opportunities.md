@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-large-size-camera-market-demand-drivers-impacting-9jigf/

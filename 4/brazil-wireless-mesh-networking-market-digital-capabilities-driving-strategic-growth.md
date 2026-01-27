@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-mesh-networking-market-digital-capabilities-0laxf/

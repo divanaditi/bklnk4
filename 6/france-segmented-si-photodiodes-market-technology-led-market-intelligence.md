@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-segmented-si-photodiodes-market-technology-led-1lrsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-storage-file-sharing-service-market-technology-axnrf/

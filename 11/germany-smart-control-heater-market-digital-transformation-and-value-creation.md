@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-control-heater-market-digital-transformation-va74c/

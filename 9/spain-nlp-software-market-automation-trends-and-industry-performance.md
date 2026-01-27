@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-nlp-software-market-automation-trends-uuqqf/

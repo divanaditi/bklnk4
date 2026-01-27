@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-shotcrete-accelerator-market-demand-evolution-mhg6c/

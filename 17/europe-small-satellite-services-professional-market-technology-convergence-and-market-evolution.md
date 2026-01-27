@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-small-satellite-services-professional-cmxmf/

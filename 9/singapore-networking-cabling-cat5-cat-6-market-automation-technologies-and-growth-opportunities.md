@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-networking-cabling-cat5-cat-6-market-amq5f/

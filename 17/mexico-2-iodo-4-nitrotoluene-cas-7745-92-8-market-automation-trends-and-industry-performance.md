@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-iodo-4-nitrotoluene-cas-7745-92-8-market-automation-ntmsc/

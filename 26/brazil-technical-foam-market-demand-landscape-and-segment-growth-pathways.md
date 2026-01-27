@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-technical-foam-market-demand-landscape-segment-erphc/

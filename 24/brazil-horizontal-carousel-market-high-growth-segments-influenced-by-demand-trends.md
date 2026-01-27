@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-horizontal-carousel-market-high-growth-segments-4xowf/

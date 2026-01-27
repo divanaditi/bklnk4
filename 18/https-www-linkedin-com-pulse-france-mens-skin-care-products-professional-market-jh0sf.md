@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-mens-skin-care-products-professional-market-jh0sf/

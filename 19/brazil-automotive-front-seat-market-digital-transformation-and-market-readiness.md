@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-front-seat-market-digital-transformation-r83me/

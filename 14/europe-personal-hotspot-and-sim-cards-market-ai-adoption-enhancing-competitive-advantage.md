@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personal-hotspot-sim-cards-market-ai-adoption-kgedc/

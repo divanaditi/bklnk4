@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vascular-closure-equipment-market-high-growth-yinbf/

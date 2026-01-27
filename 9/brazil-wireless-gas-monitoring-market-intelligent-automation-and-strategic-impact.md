@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-gas-monitoring-market-intelligent-05n2f/

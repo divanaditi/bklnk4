@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-household-clothes-steamers-dryers-market-segment-ovv7f/

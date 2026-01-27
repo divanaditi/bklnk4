@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-golf-equipment-market-size-use-cases-trends-fb8wf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-corporate-wellness-management-professional-gd61f/

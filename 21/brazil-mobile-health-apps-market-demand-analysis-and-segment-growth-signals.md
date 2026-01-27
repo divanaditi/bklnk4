@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-health-apps-market-demand-analysis-segment-qaa6f/

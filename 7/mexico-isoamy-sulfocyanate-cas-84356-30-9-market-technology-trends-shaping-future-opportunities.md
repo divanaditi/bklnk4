@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-isoamy-sulfocyanate-cas-84356-30-9-market-technology-9avuf/

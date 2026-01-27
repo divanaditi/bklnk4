@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wall-mounted-hand-sanitizer-dispensers-wlbrf/

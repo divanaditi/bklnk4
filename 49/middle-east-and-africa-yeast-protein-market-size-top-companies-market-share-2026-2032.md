@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-yeast-protein-market-size-top-1uqsf/

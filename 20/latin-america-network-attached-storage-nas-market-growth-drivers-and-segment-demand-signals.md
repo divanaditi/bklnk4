@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-network-attached-storage-nas-market-is5sf/

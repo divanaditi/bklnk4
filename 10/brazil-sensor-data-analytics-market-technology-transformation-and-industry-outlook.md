@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sensor-data-analytics-market-technology-transformation-8ckff/

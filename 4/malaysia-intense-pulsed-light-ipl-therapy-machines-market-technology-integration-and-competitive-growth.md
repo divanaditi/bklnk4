@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-intense-pulsed-light-ipl-therapy-hzzdc/

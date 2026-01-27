@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-home-safes-market-ai-adoption-across-vl4mf/

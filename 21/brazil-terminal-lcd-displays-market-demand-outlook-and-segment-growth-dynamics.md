@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-terminal-lcd-displays-market-demand-outlook-fckhf/

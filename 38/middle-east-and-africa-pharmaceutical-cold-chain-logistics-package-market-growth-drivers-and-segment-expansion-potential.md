@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pharmaceutical-cold-chain-logistics-p0jqf/

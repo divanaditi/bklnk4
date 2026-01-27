@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drone-tethered-stations-market-18mkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-heat-therapy-lamp-market-demand-outlook-zolsf/

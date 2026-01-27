@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enterprise-sms-market-growth-drivers-segment-jgegf/

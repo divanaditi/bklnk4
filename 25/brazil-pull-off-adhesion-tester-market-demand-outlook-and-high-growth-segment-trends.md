@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pull-off-adhesion-tester-market-demand-qzyjf/

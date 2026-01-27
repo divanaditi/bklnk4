@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-financial-leasing-services-market-demand-signals-n2o1f/

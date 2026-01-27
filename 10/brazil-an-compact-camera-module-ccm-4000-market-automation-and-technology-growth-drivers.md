@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-compact-camera-module-ccm-4000-market-automation-o17rf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-peripheral-vascular-diagnostic-systems-m7oof/

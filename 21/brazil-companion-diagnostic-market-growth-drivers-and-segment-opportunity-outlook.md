@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-companion-diagnostic-market-growth-drivers-dbiyf/

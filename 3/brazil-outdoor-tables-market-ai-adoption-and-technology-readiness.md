@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-outdoor-tables-market-ai-adoption-technology-z9u0f/

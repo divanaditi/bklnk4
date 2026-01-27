@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-magnetic-beads-kits-market-technology-trends-strategic-rrojf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pin-type-lithium-based-battery-hpnif/

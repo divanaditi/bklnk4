@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-premium-nail-polish-market-demand-outlook-prp5f/

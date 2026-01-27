@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-butyl-caprate-cas-30673-36-0-vtkue/

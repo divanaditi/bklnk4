@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-qr-code-reader-market-size-2026-imdee/

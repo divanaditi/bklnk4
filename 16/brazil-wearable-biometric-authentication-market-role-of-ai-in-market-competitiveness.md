@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-biometric-authentication-market-role-tsz0f/

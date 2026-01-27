@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-switches-market-demand-trends-ggyhe/

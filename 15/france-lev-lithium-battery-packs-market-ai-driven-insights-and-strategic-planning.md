@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-lev-lithium-battery-packs-market-ai-driven-nz3hf/

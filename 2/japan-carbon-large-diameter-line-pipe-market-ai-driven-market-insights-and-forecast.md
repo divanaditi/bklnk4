@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-large-diameter-line-pipe-market-ai-driven-0nvmc/

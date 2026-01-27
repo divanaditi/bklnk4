@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-44-difluorobenzil-cas-579-39-5-market-scudf/

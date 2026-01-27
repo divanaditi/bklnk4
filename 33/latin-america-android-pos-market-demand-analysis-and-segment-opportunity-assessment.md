@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-android-pos-market-demand-analysis-segment-c3iwe/

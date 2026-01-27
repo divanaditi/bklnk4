@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-counting-scales-market-impact-ai-digital-transformation-oyalf/

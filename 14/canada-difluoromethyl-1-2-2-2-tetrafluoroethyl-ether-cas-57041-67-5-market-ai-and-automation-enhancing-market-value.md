@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-difluoromethyl-1222-tetrafluoroethyl-ether-cas-iczxc/

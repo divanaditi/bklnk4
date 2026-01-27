@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-general-purpose-casting-polyurethane-resin-ro9uf/

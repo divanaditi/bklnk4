@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-motors-drones-market-size-ue9nf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polycarbonate-smart-card-market-gm3vf/

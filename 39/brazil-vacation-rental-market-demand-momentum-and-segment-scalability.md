@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacation-rental-market-demand-momentum-segment-w5bef/

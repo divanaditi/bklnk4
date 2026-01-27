@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cloud-access-security-brokers-casb-professional-ibsrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-voltage-alternators-market-ai-automation-n24lf/

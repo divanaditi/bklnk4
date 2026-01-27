@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hollow-shaft-encoders-market-digital-innovation-76c2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-explosion-proof-freezer-market-zeg0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-26-dibromo-4-trifluoromethoxyaniline-cas-88149-49-9-4ezrc/

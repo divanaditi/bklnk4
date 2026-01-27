@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-waist-abdominal-twisting-exercise-lmn8f/

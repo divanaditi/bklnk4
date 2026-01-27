@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-utility-grade-wind-turbine-market-ai-ycdde/

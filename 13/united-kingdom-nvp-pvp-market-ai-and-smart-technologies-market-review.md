@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-nvp-pvp-market-ai-smart-technologies-z3huf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-dental-intraoral-x-ray-sensors-market-fdsoc/

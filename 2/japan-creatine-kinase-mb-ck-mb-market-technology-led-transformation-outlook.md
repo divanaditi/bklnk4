@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-creatine-kinase-mb-ck-mb-market-technology-led-vkdyc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-aluminized-clothfabric-market-ai-trends-shaping-l4g1f/

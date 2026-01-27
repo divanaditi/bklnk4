@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-smart-water-leak-detector-professional-market-technology-letdf/

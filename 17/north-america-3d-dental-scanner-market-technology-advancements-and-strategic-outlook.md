@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-3d-dental-scanner-market-technology-wcdnc/

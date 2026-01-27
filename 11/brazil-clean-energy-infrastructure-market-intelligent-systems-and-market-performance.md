@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clean-energy-infrastructure-market-intelligent-9r2ac/

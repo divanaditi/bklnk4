@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-2-acetyl-chloride-cas-451-81-0-mxtlf/

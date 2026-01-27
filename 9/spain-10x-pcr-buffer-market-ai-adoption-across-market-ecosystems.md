@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-10x-pcr-buffer-market-ai-adoption-across-ecosystems-fjqkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hadoop-software-market-ai-smart-be9nf/

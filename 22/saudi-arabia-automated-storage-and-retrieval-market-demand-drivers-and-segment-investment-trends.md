@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-automated-storage-retrieval-market-demand-yl6gf/

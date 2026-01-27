@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-event-data-loggers-market-demand-uy2wf/

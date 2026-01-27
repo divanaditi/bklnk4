@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-razor-wire-market-key-demand-factors-fastest-growing-kcnif/

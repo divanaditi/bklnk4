@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-welding-wire-market-technology-resilience-0xfmf/

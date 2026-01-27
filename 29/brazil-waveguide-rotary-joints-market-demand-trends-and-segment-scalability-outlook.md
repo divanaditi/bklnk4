@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-waveguide-rotary-joints-market-demand-w87sf/

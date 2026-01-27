@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-contactless-smart-cards-market-intelligent-1w0of/

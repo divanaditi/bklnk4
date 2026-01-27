@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fishing-net-fibers-market-segment-growth-2qexe/

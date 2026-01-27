@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-rdf-pelletizer-market-ai-technology-coogf/

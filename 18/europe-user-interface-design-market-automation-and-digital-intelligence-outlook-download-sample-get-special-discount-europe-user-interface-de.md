@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-user-interface-design-market-automation-wdsof/

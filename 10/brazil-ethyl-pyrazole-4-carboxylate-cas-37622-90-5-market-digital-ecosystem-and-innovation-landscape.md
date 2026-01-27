@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ethyl-pyrazole-4-carboxylate-cas-37622-90-5-market-oaoyf/

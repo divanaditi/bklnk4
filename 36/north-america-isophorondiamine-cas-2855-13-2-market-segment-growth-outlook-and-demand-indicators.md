@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-isophorondiamine-cas-2855-13-2-market-a9qgf/

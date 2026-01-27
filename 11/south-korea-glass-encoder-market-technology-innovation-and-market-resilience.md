@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-glass-encoder-market-technology-innovation-cnmkf/

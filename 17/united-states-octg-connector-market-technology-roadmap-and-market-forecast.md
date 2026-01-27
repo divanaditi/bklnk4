@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-octg-connector-market-technology-hw1uc/

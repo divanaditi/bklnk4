@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electronic-bill-presentment-paymentebpp-market-oc0df/

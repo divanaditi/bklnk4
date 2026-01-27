@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-direct-current-power-system-gtx0f/

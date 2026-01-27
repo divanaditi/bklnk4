@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-active-geofencing-market-demand-dynamics-qhtdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-electric-veterinary-operating-table-market-lxbdf/

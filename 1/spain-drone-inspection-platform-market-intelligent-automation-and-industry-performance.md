@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-drone-inspection-platform-market-intelligent-jm7sf/

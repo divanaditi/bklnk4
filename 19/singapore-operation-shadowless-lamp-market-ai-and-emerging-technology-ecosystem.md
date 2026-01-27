@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-operation-shadowless-lamp-market-ai-emerging-plh5e/

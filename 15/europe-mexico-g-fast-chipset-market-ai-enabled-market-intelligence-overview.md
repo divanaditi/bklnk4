@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mexico-gfast-chipset-market-ai-enabled-vksaf/

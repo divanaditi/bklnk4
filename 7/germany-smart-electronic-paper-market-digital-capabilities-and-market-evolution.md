@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-electronic-paper-market-digital-capabilities-hqigf/

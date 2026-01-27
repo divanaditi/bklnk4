@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-advanced-structural-ceramic-h9pdf/

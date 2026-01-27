@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermally-fused-laminate-market-ai-integration-541if/

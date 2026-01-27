@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-online-temperature-measurement-card-machine-rewwe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-14nm-smartphone-processors-otywf/

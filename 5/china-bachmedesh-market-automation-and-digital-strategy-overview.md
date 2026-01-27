@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bachmedesh-market-automation-digital-strategy-5s39f/

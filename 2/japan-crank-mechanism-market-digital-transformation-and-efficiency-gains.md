@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crank-mechanism-market-digital-transformation-m2mvc/

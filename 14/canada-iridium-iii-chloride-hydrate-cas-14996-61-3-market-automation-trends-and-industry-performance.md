@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-iridiumiii-chloride-hydrate-cas-14996-61-3-tagmf/

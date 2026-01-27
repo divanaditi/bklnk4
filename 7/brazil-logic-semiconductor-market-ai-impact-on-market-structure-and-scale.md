@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-logic-semiconductor-market-ai-impact-jheff/

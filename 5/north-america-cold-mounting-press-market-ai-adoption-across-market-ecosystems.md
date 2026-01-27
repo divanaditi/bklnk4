@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-cold-mounting-press-market-ai-adoption-nmybf/

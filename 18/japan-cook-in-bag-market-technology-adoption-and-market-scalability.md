@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cook-in-bag-market-technology-adoption-scalability-krgnf/

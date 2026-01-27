@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-12-dibromo-3-chloropropane-cas-6bjic/

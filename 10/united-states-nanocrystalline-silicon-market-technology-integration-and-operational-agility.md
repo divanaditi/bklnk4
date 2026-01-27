@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-nanocrystalline-silicon-market-technology-integration-vvtyf/

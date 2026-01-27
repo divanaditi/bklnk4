@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hot-rolled-steel-narrow-strip-market-svgcf/

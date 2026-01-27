@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-narrowband-land-mobile-radio-market-smart-analytics-vu76f/

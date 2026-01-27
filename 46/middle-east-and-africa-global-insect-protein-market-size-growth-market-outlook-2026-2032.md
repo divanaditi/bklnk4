@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-global-insect-protein-market-size-ydbbf/

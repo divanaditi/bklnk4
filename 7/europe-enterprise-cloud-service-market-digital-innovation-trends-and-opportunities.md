@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-enterprise-cloud-service-market-digital-innovation-rprzf/

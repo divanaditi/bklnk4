@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fluorine-gas-f2-market-segment-growth-outlook-powrf/

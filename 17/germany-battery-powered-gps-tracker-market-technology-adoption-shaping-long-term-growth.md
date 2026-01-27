@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-battery-powered-gps-tracker-market-technology-mwuif/

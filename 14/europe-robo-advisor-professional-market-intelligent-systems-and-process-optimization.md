@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-robo-advisor-professional-market-intelligent-systems-tgqfc/

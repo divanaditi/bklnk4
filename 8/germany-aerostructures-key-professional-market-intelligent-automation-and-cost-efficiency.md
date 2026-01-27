@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-aerostructures-key-professional-xfq7f/

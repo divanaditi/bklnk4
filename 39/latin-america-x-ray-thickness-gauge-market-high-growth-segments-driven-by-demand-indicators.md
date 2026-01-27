@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-x-ray-thickness-gauge-market-high-growth-yh7of/

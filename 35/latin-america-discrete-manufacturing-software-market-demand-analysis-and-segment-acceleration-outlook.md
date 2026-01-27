@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-discrete-manufacturing-software-market-vqlqf/

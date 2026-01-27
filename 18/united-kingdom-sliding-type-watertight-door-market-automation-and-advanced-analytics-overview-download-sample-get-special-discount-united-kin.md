@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-sliding-type-watertight-door-market-automation-xmp3f/

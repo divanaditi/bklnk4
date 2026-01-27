@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-handheld-camcorder-market-demand-forces-lnx9f/

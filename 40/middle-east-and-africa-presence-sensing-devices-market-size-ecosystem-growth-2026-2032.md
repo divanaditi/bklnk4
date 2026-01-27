@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-presence-sensing-devices-market-fulrf/

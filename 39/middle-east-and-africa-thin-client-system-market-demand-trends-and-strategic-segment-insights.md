@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thin-client-system-market-demand-w1udf/

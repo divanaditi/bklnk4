@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-23-difluorophenol-cas-6418-38-8-market-digital-transformation-a7bzf/

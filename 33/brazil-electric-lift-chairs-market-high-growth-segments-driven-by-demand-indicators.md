@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electric-lift-chairs-market-high-growth-segments-rwpwe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-embedded-printers-market-demand-supported-uumsf/

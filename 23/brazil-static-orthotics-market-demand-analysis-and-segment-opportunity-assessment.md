@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-static-orthotics-market-demand-analysis-segment-f5nnf/

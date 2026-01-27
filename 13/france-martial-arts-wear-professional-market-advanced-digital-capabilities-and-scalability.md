@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-martial-arts-wear-professional-market-advanced-3zyif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-controller-area-network-can-market-size-j44ff/

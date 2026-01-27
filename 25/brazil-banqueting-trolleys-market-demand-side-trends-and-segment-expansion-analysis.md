@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-banqueting-trolleys-market-demand-side-62brf/

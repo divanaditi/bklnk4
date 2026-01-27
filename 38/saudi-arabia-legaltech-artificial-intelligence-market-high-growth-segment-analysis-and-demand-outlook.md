@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-legaltech-artificial-intelligence-market-xtklf/

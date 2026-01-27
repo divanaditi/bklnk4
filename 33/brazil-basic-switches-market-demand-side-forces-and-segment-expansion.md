@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-basic-switches-market-demand-side-forces-4thge/

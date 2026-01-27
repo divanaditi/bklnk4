@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyvinyl-alcohol-pva-market-v45hf/

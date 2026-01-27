@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ceiling-fan-market-digital-platforms-innovation-mdk3f/

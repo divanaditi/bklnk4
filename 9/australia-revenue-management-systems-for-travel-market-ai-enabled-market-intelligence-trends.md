@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-revenue-management-systems-travel-market-jvcvf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coordinate-measuring-machine-cmm-market-high-growth-2lezf/

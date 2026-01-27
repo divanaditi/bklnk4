@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hexachloroethane-cas-67-72-1-market-1chef/

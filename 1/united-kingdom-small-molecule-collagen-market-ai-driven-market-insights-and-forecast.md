@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-small-molecule-collagen-market-ai-driven-j3njf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-digital-badges-professional-market-technology-jsjaf/

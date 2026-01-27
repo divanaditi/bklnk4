@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-power-modules-professional-market-eyluf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fracking-chemicals-fluids-market-growth-tbgjf/

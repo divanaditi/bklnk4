@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-evaluation-electronics-market-growth-sixpf/

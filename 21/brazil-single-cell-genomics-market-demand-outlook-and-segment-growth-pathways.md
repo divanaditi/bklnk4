@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-single-cell-genomics-market-demand-outlook-k5nzf/

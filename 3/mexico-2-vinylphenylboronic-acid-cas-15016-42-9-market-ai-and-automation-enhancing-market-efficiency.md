@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-vinylphenylboronic-acid-cas-15016-42-9-icdff/

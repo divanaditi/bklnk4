@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pear-preserves-market-size-2026-ar8rf/

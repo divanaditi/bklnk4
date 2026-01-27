@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-vinyl-propionate-cas-105-38-4-market-technology-ljdwc/

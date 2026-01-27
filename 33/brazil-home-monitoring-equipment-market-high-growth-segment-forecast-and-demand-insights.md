@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-home-monitoring-equipment-market-high-growth-o3lge/

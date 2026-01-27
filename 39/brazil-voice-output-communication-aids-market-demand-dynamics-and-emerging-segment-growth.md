@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-voice-output-communication-aids-market-demand-ekwgf/

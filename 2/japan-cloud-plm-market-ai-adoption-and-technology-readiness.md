@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cloud-plm-market-ai-adoption-technology-readiness-1brlc/

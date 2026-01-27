@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-transfer-machines-market-ai-driven-rdr3f/

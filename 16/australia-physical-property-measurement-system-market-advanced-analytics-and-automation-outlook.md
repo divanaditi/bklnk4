@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-physical-property-measurement-z93df/

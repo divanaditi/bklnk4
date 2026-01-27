@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-biometrics-workforce-management-4snsc/

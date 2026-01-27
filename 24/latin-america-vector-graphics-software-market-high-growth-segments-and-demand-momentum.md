@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vector-graphics-software-market-high-growth-rhbwc/

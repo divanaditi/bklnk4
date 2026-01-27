@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-steel-wire-rope-sales-market-demand-outlook-segment-jtpyf/

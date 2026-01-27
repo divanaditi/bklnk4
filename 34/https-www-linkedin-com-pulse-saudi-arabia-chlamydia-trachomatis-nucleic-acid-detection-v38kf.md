@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-chlamydia-trachomatis-nucleic-acid-detection-v38kf/

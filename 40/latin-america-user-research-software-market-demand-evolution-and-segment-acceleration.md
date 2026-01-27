@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-user-research-software-market-demand-evolution-mbp7f/

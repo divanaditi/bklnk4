@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-seafood-absorbent-pad-market-advanced-technology-eaacf/

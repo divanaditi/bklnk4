@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mobile-video-optimization-market-dp9jf/

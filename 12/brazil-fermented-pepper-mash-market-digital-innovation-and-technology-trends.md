@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fermented-pepper-mash-market-digital-innovation-os8yc/

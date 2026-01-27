@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-exenatide-market-segment-growth-outlook-bj1pe/

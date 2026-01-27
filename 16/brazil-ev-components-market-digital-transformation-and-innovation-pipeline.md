@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ev-components-market-digital-transformation-jwywf/

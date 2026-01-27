@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-golf-low-speed-vehicle-market-4uyff/

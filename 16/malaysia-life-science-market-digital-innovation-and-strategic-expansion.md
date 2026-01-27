@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-life-science-market-digital-innovation-o4qqf/

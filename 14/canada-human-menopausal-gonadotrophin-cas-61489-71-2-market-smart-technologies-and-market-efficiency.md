@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-human-menopausal-gonadotrophin-cas-61489-71-2-e9rrf/

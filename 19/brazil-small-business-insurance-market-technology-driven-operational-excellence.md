@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-small-business-insurance-market-technology-driven-ficbe/

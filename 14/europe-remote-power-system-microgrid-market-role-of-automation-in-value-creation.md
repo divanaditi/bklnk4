@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-remote-power-system-microgrid-market-role-6iuuc/

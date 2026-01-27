@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-network-connectivity-tester-market-technology-advancements-j25tf/

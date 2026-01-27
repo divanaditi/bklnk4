@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-international-payment-gateways-market-technology-wymcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-steel-concrete-hybrid-turbine-omt4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-connected-cooking-appliances-market-nk1df/

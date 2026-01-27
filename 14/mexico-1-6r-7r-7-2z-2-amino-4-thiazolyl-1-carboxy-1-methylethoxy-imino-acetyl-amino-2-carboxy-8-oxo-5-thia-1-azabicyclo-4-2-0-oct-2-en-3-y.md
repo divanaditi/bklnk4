@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-1-6r7r-7-2z-2-amino-4-thiazolyl1-carboxy-1-methylethoxyiminoacetylamino-2-carboxy-8-oxo-5-thia-1-azabicyclo420oct-2-en-3-y-07dsc/

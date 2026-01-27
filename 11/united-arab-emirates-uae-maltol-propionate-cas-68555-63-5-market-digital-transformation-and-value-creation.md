@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-maltol-propionate-cas-68555-63-5-ygh6c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-waterproof-speakers-market-demand-sglxf/

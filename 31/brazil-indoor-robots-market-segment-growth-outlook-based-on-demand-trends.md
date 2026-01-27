@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-indoor-robots-market-segment-growth-outlook-dwdfc/

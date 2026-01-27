@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-butyl-rubber-waterproof-tape-market-technology-of32f/

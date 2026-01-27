@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vineyard-management-software-market-demand-analysis-gmccf/

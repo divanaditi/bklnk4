@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-galactose-market-demand-trends-segment-scalability-g5fef/

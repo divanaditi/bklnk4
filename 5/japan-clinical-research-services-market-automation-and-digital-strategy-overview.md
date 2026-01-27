@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-clinical-research-services-market-automation-oohkf/

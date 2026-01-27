@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-structured-cabling-market-demand-drivers-mukff/

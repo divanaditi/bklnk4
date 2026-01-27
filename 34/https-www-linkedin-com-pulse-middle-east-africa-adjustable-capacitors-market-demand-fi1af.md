@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-adjustable-capacitors-market-demand-fi1af/

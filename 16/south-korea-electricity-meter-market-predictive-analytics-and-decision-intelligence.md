@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electricity-meter-market-predictive-analytics-ees3f/

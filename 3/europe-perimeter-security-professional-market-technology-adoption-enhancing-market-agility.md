@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-perimeter-security-professional-market-wmelf/

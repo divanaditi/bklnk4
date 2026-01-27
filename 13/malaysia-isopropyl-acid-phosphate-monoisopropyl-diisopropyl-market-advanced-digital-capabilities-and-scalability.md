@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-isopropyl-acid-phosphate-monoisopropyl-4ocxf/

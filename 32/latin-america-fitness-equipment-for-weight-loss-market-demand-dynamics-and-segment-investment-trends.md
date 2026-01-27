@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fitness-equipment-weight-loss-market-demand-va5ue/

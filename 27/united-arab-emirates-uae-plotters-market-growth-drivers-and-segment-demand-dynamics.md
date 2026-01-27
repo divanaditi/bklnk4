@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-plotters-market-growth-drivers-segment-u5rlf/

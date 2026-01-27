@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-sanitary-towel-market-demand-drivers-segment-cm4rf/

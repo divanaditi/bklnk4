@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-high-level-synthesis-compilers-tke2f/

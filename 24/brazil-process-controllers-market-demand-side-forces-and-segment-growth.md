@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-process-controllers-market-demand-side-forces-utfnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mainstream-plm-software-professional-market-vr4xf/

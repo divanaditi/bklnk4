@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-5-star-luxury-hotel-market-technology-resilience-plrnf/

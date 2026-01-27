@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-remote-monitoring-solution-market-demand-5oejf/

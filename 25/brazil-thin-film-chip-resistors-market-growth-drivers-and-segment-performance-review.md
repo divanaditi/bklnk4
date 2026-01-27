@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thin-film-chip-resistors-market-growth-drivers-zphef/

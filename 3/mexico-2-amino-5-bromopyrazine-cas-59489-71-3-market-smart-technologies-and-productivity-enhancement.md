@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-amino-5-bromopyrazine-cas-59489-71-3-market-aqvcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-lacit-market-demand-trends-segment-scalability-mgzhf/

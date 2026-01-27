@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-energy-storage-software-market-demand-supported-jnvjf/

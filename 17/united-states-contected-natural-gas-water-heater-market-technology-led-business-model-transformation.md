@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-contected-natural-gas-water-heater-market-xhd5c/

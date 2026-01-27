@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-chemical-absorbent-pads-market-size-growth-3n89c/

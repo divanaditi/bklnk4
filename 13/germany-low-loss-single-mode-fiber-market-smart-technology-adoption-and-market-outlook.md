@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-low-loss-single-mode-fiber-market-smart-technology-npnaf/

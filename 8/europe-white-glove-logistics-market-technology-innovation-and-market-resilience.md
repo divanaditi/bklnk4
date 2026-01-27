@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-white-glove-logistics-market-technology-wetxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-harmane-cas-486-84-0-market-digital-innovation-ulhbc/

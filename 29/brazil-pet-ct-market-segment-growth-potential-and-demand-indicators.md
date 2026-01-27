@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pet-ct-market-segment-growth-potential-th1kc/

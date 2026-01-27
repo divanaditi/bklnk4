@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-writing-board-professional-market-technology-led-kodnf/

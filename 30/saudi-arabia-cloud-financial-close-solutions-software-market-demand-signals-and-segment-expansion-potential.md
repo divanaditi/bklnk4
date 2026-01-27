@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cloud-financial-close-solutions-software-l87if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-pallet-truck-market-outlook-k0k0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-trimesic-acid-cas-554-95-0-market-advanced-analytics-spmlc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-push-talk-ptt-market-smart-technologies-xu0fc/

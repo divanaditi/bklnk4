@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-nmea-network-gateway-market-size-share-jw7mf/

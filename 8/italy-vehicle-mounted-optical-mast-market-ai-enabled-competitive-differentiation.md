@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-vehicle-mounted-optical-mast-market-8uksf/

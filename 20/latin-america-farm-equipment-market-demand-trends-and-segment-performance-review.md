@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-farm-equipment-market-demand-trends-segment-yrlof/

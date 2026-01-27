@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-energy-management-system-industrial-market-7dmff/

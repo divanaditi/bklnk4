@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-5g-ran-professional-market-ai-automation-l5d1c/

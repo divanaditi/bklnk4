@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-black-soldier-fly-feed-pets-market-technology-ykp8f/

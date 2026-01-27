@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-intelligent-customer-insight-operation-service-22aif/

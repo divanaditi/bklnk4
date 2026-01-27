@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-child-presence-detection-radar-market-ai-driven-yludf/

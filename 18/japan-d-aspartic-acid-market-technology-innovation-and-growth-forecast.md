@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-d-aspartic-acid-market-technology-innovation-nzpbf/

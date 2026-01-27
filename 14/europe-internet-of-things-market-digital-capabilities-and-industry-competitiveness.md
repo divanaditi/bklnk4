@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-internet-things-market-digital-capabilities-j7prc/

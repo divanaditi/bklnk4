@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-generative-ai-defence-market-impact-pdiaf/

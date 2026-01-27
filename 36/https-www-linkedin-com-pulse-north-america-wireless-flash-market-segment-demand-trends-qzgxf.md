@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wireless-flash-market-segment-demand-trends-qzgxf/

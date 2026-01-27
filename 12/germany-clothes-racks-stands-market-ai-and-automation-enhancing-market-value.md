@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-clothes-racks-stands-market-ai-automation-eyagc/

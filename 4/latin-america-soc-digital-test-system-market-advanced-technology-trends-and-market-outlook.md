@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-soc-digital-test-system-market-tbaef/

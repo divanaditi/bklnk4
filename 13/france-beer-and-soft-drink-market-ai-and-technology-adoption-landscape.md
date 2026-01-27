@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-beer-soft-drink-market-ai-technology-adoption-h3jwf/

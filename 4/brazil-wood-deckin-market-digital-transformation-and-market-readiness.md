@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wood-deckin-market-digital-transformation-kb41f/

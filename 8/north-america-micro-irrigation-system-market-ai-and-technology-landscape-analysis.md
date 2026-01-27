@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-micro-irrigation-system-market-ai-technology-4mqbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermocouples-high-end-optical-pyrometer-7qalf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medical-image-management-market-size-h71rf/

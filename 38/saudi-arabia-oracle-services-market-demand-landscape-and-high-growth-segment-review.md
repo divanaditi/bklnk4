@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-oracle-services-market-demand-landscape-jhzrc/

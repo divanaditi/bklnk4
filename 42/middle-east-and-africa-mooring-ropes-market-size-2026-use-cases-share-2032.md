@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mooring-ropes-market-size-2026-use-cases-qmqdf/

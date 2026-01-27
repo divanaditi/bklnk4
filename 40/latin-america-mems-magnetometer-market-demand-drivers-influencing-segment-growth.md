@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mems-magnetometer-market-demand-drivers-yhp6f/

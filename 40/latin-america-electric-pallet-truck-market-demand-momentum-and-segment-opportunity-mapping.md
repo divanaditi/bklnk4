@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electric-pallet-truck-market-demand-momentum-7z3af/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-load-volume-scanners-market-ai-emerging-technology-0wemf/

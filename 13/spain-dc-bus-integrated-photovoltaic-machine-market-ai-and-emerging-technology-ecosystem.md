@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dc-bus-integrated-photovoltaic-machine-market-e2ypf/

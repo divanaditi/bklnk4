@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-magnetic-steel-market-automation-digital-intelligence-frlie/

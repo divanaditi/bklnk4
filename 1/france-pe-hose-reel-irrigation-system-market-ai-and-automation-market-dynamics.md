@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-pe-hose-reel-irrigation-system-market-xocvf/

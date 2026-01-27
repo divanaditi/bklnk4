@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-multichannel-data-acquisition-systems-doojc/

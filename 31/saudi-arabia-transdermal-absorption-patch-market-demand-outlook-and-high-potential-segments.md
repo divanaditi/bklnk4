@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-transdermal-absorption-patch-market-demand-a5hqf/

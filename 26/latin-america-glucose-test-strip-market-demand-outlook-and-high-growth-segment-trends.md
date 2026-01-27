@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-glucose-test-strip-market-demand-outlook-a02sc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-isopentyl-hexanoate-cas-2198-61-0-3qe1f/

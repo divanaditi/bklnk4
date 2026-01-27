@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-virtual-network-operator-services-xtncf/

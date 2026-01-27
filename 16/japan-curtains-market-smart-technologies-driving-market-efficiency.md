@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-curtains-market-smart-technologies-driving-m0zhf/

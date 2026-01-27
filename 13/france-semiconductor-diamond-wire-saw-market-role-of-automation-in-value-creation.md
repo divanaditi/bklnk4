@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-semiconductor-diamond-wire-saw-market-role-jchtf/

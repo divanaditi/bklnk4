@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-triclocarban-cas-101-20-2-market-ilhlf/

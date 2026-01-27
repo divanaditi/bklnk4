@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medium-altitude-long-endurance-2vusf/

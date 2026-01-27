@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stolen-vehicle-recovery-system-a2wdf/

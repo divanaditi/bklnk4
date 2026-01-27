@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-portable-vacuum-cleaner-market-high-growth-wkpkf/

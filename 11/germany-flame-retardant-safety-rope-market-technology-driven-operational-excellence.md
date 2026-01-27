@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-flame-retardant-safety-rope-market-technology-driven-ryxlc/

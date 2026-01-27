@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tattoo-market-size-ecosystem-top-ic1rc/

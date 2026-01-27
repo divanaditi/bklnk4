@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-restaurant-temperature-monitoring-system-market-ba4jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-specialized-freight-trucking-market-demand-yurhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-value-based-care-payment-market-smart-analytics-tywac/

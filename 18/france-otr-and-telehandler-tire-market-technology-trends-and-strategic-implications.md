@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-otr-telehandler-tire-market-technology-w8hrf/

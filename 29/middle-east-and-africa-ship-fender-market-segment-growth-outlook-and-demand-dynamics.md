@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ship-fender-market-segment-growth-outlook-6vodf/

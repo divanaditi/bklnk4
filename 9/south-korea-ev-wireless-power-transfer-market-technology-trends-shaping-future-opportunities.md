@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-ev-wireless-power-transfer-market-technology-31vxf/

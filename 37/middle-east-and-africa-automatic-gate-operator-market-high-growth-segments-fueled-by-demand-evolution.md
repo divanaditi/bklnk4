@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automatic-gate-operator-market-2kmye/

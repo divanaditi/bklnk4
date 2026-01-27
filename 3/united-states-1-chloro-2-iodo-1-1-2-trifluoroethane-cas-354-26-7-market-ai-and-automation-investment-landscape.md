@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-1-chloro-2-iodo-112-trifluoroethane-cas-354-26-7-watwf/

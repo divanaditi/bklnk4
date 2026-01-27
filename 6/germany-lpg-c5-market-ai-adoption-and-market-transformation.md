@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lpg-c5-market-ai-adoption-transformation-ysxxf/

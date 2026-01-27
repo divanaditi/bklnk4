@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hvdc-capacitor-market-size-s6klf/

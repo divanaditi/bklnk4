@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-patient-warming-devices-market-11bef/

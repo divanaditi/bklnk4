@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-hunting-clothing-professional-market-whhmf/

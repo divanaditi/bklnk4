@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-carbomer-934-market-ai-adoption-xxhxf/

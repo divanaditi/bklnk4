@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cryosurgery-devices-market-demand-outlook-djdff/

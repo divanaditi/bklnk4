@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-s-1-amino-2-propanol-cas-2799-17-9-3ilqf/

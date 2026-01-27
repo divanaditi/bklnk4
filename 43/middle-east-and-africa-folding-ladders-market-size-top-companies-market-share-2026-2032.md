@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-folding-ladders-market-size-top-talif/

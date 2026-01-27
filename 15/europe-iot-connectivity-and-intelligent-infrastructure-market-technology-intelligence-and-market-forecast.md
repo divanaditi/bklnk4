@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-iot-connectivity-intelligent-infrastructure-market-44rff/

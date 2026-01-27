@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-evapotranometer-market-ai-enabled-process-optimization-ezptf/

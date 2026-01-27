@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-exterior-mosaic-market-demand-trends-shaping-high-growth-qjtgf/

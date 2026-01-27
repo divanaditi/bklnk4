@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fixed-rfid-readers-market-digital-capabilities-sksee/

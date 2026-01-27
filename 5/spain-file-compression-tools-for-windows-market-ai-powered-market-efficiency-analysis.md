@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-file-compression-tools-windows-market-ai-powered-rxxmf/

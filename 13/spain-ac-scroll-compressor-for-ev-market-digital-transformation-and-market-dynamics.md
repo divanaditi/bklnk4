@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ac-scroll-compressor-ev-market-digital-transformation-4mfuf/

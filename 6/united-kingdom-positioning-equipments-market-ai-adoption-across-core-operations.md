@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-positioning-equipments-market-ai-b2stf/

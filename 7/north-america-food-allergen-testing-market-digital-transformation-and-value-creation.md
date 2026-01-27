@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-food-allergen-testing-market-digital-8ph6f/

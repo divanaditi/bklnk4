@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-chemiluminescence-immunoassay-clia-analyzers-xzh3f/

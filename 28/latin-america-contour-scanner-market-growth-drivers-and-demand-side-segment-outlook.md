@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-contour-scanner-market-growth-drivers-0qzmc/

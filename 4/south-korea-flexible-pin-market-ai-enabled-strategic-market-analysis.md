@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-flexible-pin-market-ai-enabled-9esvc/

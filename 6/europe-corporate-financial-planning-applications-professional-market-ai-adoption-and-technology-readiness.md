@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-corporate-financial-planning-applications-mgqxf/

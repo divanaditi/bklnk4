@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-1-phenyl-12-ethanediol-cas-93-56-1-market-technology-6wkkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobility-scooter-rental-professional-market-automation-ecnmf/

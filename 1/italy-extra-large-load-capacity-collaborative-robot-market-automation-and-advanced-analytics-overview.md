@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-extra-large-load-capacity-collaborative-robot-e60qf/

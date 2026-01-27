@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-change-management-system-market-high-growth-1oggf/

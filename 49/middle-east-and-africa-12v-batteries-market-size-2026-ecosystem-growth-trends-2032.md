@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-12v-batteries-market-size-p9vtf/

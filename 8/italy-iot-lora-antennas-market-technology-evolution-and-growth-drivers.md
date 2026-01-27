@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-iot-lora-antennas-market-technology-evolution-4gzef/

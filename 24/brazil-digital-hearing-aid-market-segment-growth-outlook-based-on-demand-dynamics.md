@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-hearing-aid-market-segment-growth-outlook-ndz8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-black-soldier-fly-bsf-market-azrif/

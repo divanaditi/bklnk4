@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automatic-fry-counter-market-digital-platforms-0qklf/

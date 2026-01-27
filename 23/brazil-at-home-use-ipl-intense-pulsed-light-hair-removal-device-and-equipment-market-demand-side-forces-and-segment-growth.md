@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-home-use-ipl-intense-pulsed-light-hair-removal-hpl3f/

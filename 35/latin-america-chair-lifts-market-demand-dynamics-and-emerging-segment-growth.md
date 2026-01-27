@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chair-lifts-market-demand-dynamics-zwjyf/

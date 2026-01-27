@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-natural-language-processing-nlp-software-cwnhc/

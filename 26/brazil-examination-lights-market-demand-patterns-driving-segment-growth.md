@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-examination-lights-market-demand-patterns-nebgc/

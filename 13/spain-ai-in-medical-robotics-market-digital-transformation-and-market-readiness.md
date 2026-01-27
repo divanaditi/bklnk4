@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-medical-robotics-market-digital-transformation-7wjvf/

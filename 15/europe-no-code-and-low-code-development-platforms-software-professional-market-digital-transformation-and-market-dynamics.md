@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-no-code-low-code-development-platforms-software-lxhdf/

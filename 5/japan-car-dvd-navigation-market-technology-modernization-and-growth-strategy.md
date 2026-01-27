@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-dvd-navigation-market-technology-modernization-58s9f/

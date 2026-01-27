@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electrical-resistor-market-digital-intelligence-vgncf/

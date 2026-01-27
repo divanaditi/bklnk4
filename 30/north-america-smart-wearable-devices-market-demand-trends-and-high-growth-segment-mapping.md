@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-wearable-devices-market-demand-trends-awpef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electronics-weighing-modules-market-v21zf/

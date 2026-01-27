@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mobile-sensors-market-demand-led-2rwhf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coatings-raw-materials-market-technology-advancements-fseaf/

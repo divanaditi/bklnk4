@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-handicraft-gift-professional-market-x38qf/

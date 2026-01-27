@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-impression-stand-alone-scanners-k8ckf/

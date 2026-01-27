@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pralmorelin-cas-158861-67-7-market-digital-transformation-q4jjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-light-meter-market-demand-nzhff/

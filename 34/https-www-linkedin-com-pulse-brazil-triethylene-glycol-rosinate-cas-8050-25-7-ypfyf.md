@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-triethylene-glycol-rosinate-cas-8050-25-7-ypfyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-esg-software-market-size-2026-use-mxime/

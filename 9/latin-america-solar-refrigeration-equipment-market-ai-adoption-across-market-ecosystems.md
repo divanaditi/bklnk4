@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-refrigeration-equipment-market-so3if/

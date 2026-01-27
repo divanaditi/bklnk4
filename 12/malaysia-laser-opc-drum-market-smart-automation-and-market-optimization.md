@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-laser-opc-drum-market-smart-automation-xqx2f/

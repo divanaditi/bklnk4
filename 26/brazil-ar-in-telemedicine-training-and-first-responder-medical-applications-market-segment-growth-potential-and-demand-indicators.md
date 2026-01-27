@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ar-telemedicinetraining-first-responder-lghuc/

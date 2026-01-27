@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-trigger-pump-sprayer-market-demand-drivers-q158f/

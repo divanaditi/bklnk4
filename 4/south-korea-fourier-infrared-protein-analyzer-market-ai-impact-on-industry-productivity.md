@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fourier-infrared-protein-analyzer-1vjlc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-laboratory-hot-plates-market-demand-ox2wf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-waterproof-athletic-taping-market-role-zoubf/

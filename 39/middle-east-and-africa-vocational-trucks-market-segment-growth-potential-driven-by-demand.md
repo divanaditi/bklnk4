@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vocational-trucks-market-segment-zmc2f/

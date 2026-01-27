@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-high-end-household-market-digital-transformation-lh73f/

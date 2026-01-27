@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-organic-sanitary-napkins-market-demand-evolution-asomf/

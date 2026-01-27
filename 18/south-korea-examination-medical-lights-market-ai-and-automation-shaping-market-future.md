@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-examination-medical-lights-market-ai-automation-iivlf/

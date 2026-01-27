@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-surveying-equipment-market-demand-gsn1f/

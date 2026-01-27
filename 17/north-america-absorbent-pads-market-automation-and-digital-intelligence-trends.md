@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-absorbent-pads-market-automation-digital-7ctac/

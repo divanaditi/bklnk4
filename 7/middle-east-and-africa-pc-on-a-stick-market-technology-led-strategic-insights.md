@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pc-on-a-stick-market-technology-led-62nxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hemming-adhesive-market-demand-momentum-yh6vf/

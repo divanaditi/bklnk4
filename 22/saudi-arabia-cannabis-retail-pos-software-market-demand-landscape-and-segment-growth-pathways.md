@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cannabis-retail-pos-software-market-6shqf/

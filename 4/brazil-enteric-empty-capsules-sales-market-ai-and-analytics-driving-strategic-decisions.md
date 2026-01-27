@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enteric-empty-capsules-sales-market-ai-analytics-kprtf/

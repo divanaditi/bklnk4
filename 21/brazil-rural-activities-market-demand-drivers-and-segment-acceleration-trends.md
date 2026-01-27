@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rural-activities-market-demand-drivers-segment-t7wjf/

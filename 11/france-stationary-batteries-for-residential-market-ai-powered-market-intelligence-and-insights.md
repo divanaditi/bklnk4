@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-stationary-batteries-residential-market-ai-powered-vvesc/

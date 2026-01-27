@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-poultry-scale-market-digital-intelligence-qfpdf/

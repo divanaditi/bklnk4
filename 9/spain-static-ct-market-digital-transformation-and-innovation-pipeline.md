@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-static-ct-market-digital-transformation-innovation-fwa0f/

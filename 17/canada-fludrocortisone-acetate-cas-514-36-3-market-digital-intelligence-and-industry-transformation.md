@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-fludrocortisone-acetate-cas-514-36-3-market-qafac/

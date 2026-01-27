@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-tanning-accelerator-market-smart-analytics-884kc/

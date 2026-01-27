@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-optically-variable-inks-market-ai-driven-aqcmf/

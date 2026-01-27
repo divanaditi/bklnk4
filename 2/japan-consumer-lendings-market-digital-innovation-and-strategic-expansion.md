@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-consumer-lendings-market-digital-innovation-c16oc/

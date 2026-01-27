@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zero-trust-market-ai-adoption-across-ecosystems-ptbkf/

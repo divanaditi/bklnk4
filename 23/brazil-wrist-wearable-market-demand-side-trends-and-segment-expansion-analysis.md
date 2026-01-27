@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wrist-wearable-market-demand-side-trends-segment-bqkaf/

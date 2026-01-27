@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-non-invasive-pelvic-floor-rehabilitation-instrument-ljimf/

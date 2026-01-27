@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hair-transplantation-market-high-growth-pjdxc/

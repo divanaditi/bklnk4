@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-23-difluorobenzyl-bromide-cas-113211-94-2-qxelf/

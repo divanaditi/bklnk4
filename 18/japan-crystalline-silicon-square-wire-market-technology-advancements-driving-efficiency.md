@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crystalline-silicon-square-wire-market-technology-f7dof/

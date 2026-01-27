@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nand-market-demand-drivers-impacting-segment-ge7vf/

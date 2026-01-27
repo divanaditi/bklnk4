@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-connected-car-m2m-connections-services-06hjf/

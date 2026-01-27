@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-3-fluorophenylacetonitrile-cas-501-00-8-3zlhc/

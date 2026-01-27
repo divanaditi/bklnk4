@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-asia-pacific-smartphone-market-advanced-5ogbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-virtual-data-room-market-segment-vpeif/

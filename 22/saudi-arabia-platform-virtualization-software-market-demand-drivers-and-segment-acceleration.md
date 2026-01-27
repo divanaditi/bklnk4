@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-platform-virtualization-software-market-0ckqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-uv-cured-powder-coatings-market-demand-outlook-6w2vc/

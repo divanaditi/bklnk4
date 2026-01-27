@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-televisions-market-demand-dynamics-shaping-6qgdf/

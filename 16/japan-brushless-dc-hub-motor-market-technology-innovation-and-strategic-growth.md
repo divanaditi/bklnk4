@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-brushless-dc-hub-motor-market-technology-innovation-nrp8f/

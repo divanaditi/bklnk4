@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-molecular-diagnostic-instrument-market-high-growth-smvge/

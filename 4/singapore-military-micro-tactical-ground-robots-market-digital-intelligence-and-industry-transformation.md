@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-military-micro-tactical-ground-j6cnc/

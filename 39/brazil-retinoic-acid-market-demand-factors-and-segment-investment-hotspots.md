@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-retinoic-acid-market-demand-factors-segment-ixqhf/

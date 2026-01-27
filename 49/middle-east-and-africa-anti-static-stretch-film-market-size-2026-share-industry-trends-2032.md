@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-anti-static-stretch-film-0frtf/

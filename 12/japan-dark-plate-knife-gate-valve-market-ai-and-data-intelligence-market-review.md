@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dark-plate-knife-gate-valve-market-ai-mdqpf/

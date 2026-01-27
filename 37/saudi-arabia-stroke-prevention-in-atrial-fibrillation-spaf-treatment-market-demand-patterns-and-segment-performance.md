@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-stroke-prevention-atrial-fibrillation-spaf-2zbyc/

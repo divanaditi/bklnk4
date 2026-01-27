@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-soft-magnetic-powder-core-57jef/

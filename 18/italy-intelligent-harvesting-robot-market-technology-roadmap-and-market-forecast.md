@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-intelligent-harvesting-robot-market-technology-xht0f/

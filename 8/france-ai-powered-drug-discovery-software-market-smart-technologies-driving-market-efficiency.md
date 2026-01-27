@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ai-powered-drug-discovery-software-market-smart-tmqyf/

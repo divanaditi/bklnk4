@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-portable-receipt-printers-market-high-growth-dmxzf/

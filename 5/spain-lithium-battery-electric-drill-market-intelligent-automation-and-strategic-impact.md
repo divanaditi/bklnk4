@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-lithium-battery-electric-drill-market-intelligent-vudvf/

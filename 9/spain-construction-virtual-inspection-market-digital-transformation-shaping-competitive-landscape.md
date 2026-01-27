@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-construction-virtual-inspection-market-9vyif/

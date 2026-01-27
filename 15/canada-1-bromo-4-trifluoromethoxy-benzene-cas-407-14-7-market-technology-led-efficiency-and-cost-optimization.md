@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-bromo-4-trifluoromethoxybenzene-cas-407-14-7-rjaqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-virtual-personal-assistants-vpa-professional-wpk1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-artificial-intelligence-based-security-5t1cf/

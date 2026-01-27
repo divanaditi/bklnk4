@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-tents-cotton-market-technology-disruption-qxx9f/

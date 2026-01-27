@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fraction-collector-market-demand-drivers-xhh0f/

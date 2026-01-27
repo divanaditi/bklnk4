@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-flame-spraying-market-demand-patterns-6h7pc/

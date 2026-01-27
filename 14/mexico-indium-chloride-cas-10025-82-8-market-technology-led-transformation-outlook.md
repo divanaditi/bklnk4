@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-indium-chloride-cas-10025-82-8-market-99gwc/

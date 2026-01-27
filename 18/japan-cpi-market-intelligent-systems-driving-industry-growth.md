@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cpi-market-intelligent-systems-driving-industry-ncx1f/

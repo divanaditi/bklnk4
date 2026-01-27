@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-wall-mount-phone-charging-locker-market-advanced-5pbhf/

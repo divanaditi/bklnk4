@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rigid-extraction-arm-market-intelligent-vh0lc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-polyester-polyol-market-demand-landscape-f1adc/

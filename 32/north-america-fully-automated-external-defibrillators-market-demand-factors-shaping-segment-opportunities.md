@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-fully-automated-external-defibrillators-wdlkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dimethyl-isophthalate-cas-1459-93-4-market-tcocf/

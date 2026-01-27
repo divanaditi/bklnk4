@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-aerospace-tester-professional-market-ai-led-vxp4c/

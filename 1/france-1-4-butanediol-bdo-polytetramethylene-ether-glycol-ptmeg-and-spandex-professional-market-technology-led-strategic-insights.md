@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-14-butanediol-bdo-polytetramethylene-fyqef/

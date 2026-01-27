@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-barber-shop-software-market-vxooc/

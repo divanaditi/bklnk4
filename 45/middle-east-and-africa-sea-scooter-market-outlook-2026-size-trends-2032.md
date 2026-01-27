@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sea-scooter-market-outlook-2026-pqqlc/

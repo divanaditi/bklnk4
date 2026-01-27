@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-robotic-dexterous-hand-market-ai-automation-eerdf/

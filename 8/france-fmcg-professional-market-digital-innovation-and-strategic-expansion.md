@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fmcg-professional-market-digital-innovation-crcif/

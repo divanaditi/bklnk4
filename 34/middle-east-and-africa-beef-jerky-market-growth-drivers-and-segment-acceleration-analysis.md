@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-beef-jerky-market-growth-drivers-segment-uxblf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-image-market-ai-adoption-competitive-ikkbc/

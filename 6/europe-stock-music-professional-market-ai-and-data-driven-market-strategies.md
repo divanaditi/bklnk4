@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-stock-music-professional-market-ai-0oojf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-voltage-air-insulated-switchgear-mlz2f/

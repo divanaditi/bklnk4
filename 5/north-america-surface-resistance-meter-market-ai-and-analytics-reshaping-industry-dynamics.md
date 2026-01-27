@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-surface-resistance-meter-market-en9vf/

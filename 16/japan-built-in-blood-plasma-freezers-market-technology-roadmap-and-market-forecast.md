@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-built-in-blood-plasma-freezers-market-technology-s1eqf/

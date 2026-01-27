@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ac-condenser-market-demand-drivers-segment-fkw5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-furniture-hinges-market-demand-drivers-high-growth-yjwof/

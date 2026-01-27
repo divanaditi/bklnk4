@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fashion-belt-market-size-outlook-nv4zf/

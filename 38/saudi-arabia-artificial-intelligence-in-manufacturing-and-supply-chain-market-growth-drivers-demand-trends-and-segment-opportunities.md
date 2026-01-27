@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-artificial-intelligence-29qsc/

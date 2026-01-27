@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-career-apparel-market-advanced-technologies-1mnjc/

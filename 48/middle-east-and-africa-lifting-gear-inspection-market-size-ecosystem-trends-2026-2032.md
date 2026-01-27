@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lifting-gear-inspection-market-size-vzgxf/

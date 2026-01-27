@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-wearable-biometric-authentication-nk5qf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-macro-hardness-testers-professional-market-technology-dh0kc/

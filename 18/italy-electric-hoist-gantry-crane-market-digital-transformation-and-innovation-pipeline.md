@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-electric-hoist-gantry-crane-market-digital-transformation-opmrf/

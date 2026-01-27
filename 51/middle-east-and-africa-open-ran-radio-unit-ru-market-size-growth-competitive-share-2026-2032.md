@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-open-ran-radio-unit-ru-market-size-xe6nf/

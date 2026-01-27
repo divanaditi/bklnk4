@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-diamino-pyrimidine-5-carbaldehyde-cas-a8fpf/

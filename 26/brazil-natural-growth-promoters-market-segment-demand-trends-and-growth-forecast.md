@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-natural-growth-promoters-market-segment-demand-uir2f/

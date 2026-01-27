@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-next-gen-atm-market-high-growth-segments-7v5vf/

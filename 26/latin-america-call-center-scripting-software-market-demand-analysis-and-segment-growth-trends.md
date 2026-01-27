@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-call-center-scripting-software-market-demand-vcsbc/

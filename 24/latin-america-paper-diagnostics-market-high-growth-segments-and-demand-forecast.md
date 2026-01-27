@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-paper-diagnostics-market-high-growth-9uqgc/

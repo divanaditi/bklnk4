@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-gasoline-direct-injection-gdi-system-professional-77f5f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fast-attack-craft-fac-market-demand-trends-k4tyf/

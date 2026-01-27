@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hydrolyzed-silk-market-demand-vmdsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-flavor-enhancer-market-ai-automation-i2i3f/

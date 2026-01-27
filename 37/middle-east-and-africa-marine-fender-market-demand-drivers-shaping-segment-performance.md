@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-marine-fender-market-demand-drivers-3pqbe/

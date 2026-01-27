@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rfid-middleware-market-demand-trends-driving-c5eee/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-forehead-thermometer-market-demand-outlook-m44bf/

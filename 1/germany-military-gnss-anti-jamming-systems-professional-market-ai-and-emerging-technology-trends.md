@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-military-gnss-anti-jamming-systems-professional-3rt0f/

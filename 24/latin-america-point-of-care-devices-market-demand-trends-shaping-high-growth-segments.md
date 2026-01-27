@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-point-of-care-devices-market-demand-trends-6frac/

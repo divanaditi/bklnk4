@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-high-precision-real-time-map-market-kbbjf/

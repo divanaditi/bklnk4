@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-general-insurance-market-zgwyc/

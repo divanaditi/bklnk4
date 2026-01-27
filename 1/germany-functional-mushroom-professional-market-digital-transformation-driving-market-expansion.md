@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-functional-mushroom-professional-market-vscmf/

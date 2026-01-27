@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ethercat-ethernet-control-automation-yylrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-asset-finance-software-professional-market-advanced-7xoqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-muslim-fashion-market-ai-analytics-enhancing-oivzc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-biodegradable-pet-film-market-technology-tj7uf/

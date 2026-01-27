@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-garden-center-software-professional-h5v0f/

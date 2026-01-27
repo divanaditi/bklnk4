@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-fresh-fishes-seafoods-professional-market-zgsvf/

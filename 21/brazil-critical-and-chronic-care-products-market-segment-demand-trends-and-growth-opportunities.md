@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-critical-chronic-care-products-market-segment-wru8f/

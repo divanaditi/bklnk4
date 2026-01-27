@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-azimuth-stern-drive-asd-tug-market-ai-smart-technologies-v2fqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-carbon-fibre-tape-market-high-growth-segments-supported-khrrf/

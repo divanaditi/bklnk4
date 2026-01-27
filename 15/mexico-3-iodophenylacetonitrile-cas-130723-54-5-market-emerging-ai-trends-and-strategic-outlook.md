@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-3-iodophenylacetonitrile-cas-130723-54-5-market-zodef/

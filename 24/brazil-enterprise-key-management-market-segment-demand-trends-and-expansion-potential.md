@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-enterprise-key-management-market-segment-p6mnf/

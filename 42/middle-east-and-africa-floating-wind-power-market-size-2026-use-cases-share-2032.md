@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-floating-wind-power-market-c6n2f/

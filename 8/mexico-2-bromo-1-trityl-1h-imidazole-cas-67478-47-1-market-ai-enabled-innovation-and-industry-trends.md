@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-bromo-1-trityl-1h-imidazole-cas-67478-47-1-3ez4f/

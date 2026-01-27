@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fingerprint-identification-systems-1zw5e/

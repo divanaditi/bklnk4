@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-monitoring-sensors-market-demand-jzg5f/

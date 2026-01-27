@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-base-jumping-equipment-market-size-gn6cf/

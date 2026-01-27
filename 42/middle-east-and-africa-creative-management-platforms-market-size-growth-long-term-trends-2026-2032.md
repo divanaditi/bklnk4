@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-creative-management-platforms-9ey0f/

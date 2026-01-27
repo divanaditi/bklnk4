@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-van-car-market-emerging-ai-trends-neqvc/

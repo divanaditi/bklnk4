@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-triethylene-glycol-di-2-ethylhexoatetgde-t94kc/

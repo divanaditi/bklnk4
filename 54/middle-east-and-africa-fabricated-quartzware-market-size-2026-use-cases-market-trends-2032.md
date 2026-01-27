@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fabricated-quartzware-market-7o5yf/

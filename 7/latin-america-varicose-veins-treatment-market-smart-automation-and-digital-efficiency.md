@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-varicose-veins-treatment-market-2sw3f/

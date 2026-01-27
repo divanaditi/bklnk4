@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-property-casualty-insurance-professional-jlizf/

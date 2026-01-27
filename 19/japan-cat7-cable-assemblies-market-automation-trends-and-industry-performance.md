@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cat7-cable-assemblies-market-automation-trends-industry-iobof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-acoustic-emission-equipment-market-segment-a1ruf/

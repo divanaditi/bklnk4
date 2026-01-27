@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-robotic-interactive-companion-pets-market-ai-lgrqf/

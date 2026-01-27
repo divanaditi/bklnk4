@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-virtual-reality-platform-market-ai-4nfjf/

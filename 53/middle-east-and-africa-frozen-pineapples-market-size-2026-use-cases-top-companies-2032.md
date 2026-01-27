@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-frozen-pineapples-market-size-2026-lblvf/

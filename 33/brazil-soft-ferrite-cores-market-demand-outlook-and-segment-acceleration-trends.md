@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-soft-ferrite-cores-market-demand-outlook-segment-ijhne/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-geographic-information-system-yxldf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pallet-conveyor-market-high-growth-segments-7lvtc/

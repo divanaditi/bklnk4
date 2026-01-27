@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultra-high-speed-camera-market-ai-impact-industry-productivity-jqa7e/

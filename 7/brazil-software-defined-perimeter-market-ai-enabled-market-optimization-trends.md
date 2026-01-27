@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-software-defined-perimeter-market-ai-enabled-tu1vf/

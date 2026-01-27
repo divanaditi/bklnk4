@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-middle-east-africa-armored-vehicle-market-6tibf/

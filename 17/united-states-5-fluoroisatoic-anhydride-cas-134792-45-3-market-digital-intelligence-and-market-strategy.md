@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-5-fluoroisatoic-anhydride-cas-134792-45-3-n1ync/

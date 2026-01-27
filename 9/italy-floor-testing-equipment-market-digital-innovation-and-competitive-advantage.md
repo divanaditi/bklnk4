@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-floor-testing-equipment-market-digital-innovation-mjnwf/

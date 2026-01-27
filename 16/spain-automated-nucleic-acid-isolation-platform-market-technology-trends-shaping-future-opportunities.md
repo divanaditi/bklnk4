@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automated-nucleic-acid-isolation-platform-market-kq5qf/

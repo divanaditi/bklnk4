@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-iot-softwares-market-high-growth-segments-zccpe/

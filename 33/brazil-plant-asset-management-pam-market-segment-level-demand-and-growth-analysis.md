@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-plant-asset-management-pam-market-segment-level-hjcge/

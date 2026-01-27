@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-denture-industry-2017-market-ai-powered-intelligence-5mw8c/

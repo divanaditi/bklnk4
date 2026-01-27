@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-3d-haptic-technology-market-ai-impact-industry-mmemf/

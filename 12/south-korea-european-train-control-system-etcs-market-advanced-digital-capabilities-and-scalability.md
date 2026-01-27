@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-european-train-control-system-etcs-market-6xk1f/

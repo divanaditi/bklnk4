@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-liquid-applied-roof-coatings-market-demand-oviie/

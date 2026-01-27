@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-circular-dichroism-cd-market-technology-trends-fjkwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-robotic-wind-turbine-maintenance-technology-market-etwif/

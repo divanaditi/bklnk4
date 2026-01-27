@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-imaging-systems-market-demand-trends-upgie/

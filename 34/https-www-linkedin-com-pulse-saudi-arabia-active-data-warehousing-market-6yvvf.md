@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-active-data-warehousing-market-6yvvf/

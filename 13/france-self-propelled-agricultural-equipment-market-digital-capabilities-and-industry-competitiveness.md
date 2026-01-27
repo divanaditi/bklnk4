@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-self-propelled-agricultural-equipment-market-y7csf/

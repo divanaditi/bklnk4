@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bubble-bags-market-segment-growth-outlook-90xlc/

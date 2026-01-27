@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-automotive-nosie-control-dsp-microprocessor-tjdxf/

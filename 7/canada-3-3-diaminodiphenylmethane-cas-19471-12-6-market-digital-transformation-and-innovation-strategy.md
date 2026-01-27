@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-33-diaminodiphenylmethane-cas-19471-12-6-market-xl1kf/

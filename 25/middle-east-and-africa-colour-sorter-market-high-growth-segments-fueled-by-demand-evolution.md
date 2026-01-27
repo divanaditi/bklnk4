@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-colour-sorter-market-high-growth-segments-lau7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-global-reusable-gloves-market-digital-transformation-4wghf/

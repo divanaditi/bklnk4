@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-general-purpose-contactor-market-demand-lqb9f/

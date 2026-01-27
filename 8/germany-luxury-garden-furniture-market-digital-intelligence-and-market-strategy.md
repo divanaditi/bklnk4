@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-luxury-garden-furniture-market-digital-intelligence-xtqwf/

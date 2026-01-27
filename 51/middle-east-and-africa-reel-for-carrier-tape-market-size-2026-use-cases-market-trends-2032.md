@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-reel-carrier-tape-market-size-drpec/

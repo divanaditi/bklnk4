@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-seedling-transplanter-machine-market-ai-t7tif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electric-vehicles-component-market-ai-automation-5ffke/

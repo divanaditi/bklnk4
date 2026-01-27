@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-riveting-tools-market-segment-growth-potential-s2dhc/

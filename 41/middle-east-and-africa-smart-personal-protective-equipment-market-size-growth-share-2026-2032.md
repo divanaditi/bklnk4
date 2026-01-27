@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-personal-protective-equipment-yv9lf/

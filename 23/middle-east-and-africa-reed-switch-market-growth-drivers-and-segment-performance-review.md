@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-reed-switch-market-growth-drivers-segment-hne1f/

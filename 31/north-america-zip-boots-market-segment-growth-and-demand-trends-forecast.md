@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-zip-boots-market-segment-growth-demand-u4aef/

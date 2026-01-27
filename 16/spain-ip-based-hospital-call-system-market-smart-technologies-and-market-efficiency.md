@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ip-based-hospital-call-system-market-smart-tjnef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-34-diaminodiphenylmethane-cas-19430-83-2-x8kif/

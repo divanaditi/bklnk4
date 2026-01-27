@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-eddy-current-ndt-equipment-market-size-nseec/

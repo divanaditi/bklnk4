@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-collaborative-robot-cobot-sales-market-demand-anrmf/

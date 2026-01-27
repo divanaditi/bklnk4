@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-predictive-prescriptive-analytics-tf74f/

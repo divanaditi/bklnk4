@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thread-pitch-gauges-market-cr5vc/

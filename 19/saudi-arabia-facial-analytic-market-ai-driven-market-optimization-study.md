@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-facial-analytic-market-ai-driven-optimization-92fye/

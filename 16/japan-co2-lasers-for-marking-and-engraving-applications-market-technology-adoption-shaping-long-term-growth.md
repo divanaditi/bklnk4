@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-co2-lasers-marking-engraving-applications-mqehf/

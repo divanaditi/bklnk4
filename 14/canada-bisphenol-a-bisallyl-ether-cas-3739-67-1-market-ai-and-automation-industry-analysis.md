@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-bisphenol-bisallyl-ether-cas-3739-67-1-market-otlxf/

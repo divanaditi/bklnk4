@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cellular-network-subscription-market-0wwof/

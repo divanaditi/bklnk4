@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-videoscope-market-high-growth-hh1yf/

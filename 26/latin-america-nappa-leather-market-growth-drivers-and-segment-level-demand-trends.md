@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nappa-leather-market-growth-drivers-nqowc/

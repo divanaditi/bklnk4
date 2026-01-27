@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-redlight-therapy-glasses-market-technology-trends-1ckxf/

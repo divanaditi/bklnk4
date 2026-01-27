@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pancreatic-beta-cell-protection-market-growth-w2n0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cowboy-hats-market-size-outlook-ooxhf/

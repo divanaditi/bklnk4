@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-luxury-resort-market-size-ecosystem-5hvyc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-event-technology-rental-market-predictive-analytics-qgccf/

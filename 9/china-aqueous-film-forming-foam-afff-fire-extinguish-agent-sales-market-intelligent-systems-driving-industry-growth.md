@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-aqueous-film-forming-foam-afff-fire-extinguish-x2n1f/

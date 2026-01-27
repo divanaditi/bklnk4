@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-desk-occupancy-sensor-market-size-growth-egjhf/

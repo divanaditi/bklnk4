@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cvd-sic-silicon-carbide-market-ai-enabled-intelligence-ut9rf/

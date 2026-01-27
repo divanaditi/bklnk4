@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-e-con-connectors-market-demand-indicators-qmqxf/

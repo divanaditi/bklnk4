@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-green-mining-market-high-growth-segments-jfruf/

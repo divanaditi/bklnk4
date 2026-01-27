@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-dynamic-digital-radiography-market-ai-adoption-rgatf/

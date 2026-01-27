@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-power-tools-market-size-2026-use-p28vf/

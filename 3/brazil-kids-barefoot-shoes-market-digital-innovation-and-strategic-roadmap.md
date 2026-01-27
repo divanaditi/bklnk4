@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-kids-barefoot-shoes-market-digital-innovation-yq3df/

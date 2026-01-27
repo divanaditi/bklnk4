@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mp5-market-technology-innovation-investment-abjlc/

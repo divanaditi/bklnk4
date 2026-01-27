@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-external-micrometers-market-demand-landscape-aqo2f/

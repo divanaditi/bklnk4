@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-heterojunction-back-contact-cell-hbc-market-ewj6f/

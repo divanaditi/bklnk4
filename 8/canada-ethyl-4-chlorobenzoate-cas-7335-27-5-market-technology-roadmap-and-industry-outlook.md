@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-ethyl-4-chlorobenzoate-cas-7335-27-5-ipi2f/

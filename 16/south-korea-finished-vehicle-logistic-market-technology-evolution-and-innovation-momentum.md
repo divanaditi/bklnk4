@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-finished-vehicle-logistic-market-technology-3yyxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hand-packing-station-market-demand-furkf/

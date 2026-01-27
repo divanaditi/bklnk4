@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-public-blockchain-technology-energy-market-wrwuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-avionics-market-size-2026-share-hb8af/

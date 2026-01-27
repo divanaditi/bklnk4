@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-rights-management-drm-market-intelligent-4zldf/

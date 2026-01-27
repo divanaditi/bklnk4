@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automotive-pillar-cover-market-demand-g7wec/

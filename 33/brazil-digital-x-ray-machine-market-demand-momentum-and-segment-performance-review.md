@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-x-ray-machine-market-demand-momentum-kgmne/

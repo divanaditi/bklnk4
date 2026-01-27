@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-glass-professional-market-impact-ai-digital-rvkic/

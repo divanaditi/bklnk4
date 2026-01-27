@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-gnss-chip-market-high-growth-lob5c/

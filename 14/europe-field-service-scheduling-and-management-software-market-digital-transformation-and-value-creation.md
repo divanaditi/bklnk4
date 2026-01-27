@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-field-service-scheduling-management-software-52gsc/

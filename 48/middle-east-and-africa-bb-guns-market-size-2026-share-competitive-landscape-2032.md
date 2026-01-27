@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bb-guns-market-size-2026-share-competitive-6brrf/

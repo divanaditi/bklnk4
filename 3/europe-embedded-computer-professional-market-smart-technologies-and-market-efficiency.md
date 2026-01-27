@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-embedded-computer-professional-market-smart-technologies-b09of/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-through-channel-market-ai-automation-xo00f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-boc-l-glutamic-acid-cas-2419-94-5-market-u3gyf/

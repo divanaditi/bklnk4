@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-nail-art-gel-market-ai-integration-across-alwnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-water-jet-cutter-market-demand-side-tehbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-bio-polyethylene-terephthalate-63mbf/

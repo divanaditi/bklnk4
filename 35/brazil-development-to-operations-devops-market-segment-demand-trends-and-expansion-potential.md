@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-development-operations-devops-market-segment-7xjtf/

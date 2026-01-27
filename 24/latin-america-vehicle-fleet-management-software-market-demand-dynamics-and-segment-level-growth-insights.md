@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vehicle-fleet-management-software-market-zgunc/

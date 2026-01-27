@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-massage-equipment-market-demand-side-sbs7e/

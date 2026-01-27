@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-biometric-payment-card-market-sg5hf/

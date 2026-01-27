@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-off-road-construction-equipment-easac/

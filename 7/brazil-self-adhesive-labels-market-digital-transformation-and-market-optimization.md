@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-self-adhesive-labels-market-digital-transformation-d1nif/

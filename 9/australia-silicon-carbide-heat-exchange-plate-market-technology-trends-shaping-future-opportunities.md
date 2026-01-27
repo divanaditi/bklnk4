@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-silicon-carbide-heat-exchange-plate-znpdf/

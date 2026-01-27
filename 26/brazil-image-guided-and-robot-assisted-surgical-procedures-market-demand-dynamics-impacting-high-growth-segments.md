@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-image-guided-robot-assisted-surgical-procedures-h4ncc/

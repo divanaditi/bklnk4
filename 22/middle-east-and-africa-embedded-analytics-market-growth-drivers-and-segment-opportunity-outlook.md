@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-embedded-analytics-market-growth-t6bsf/

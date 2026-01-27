@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wheelchair-ramp-market-size-2026-mpvcc/

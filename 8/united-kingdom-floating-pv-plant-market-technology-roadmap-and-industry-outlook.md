@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-floating-pv-plant-market-technology-ha3wf/

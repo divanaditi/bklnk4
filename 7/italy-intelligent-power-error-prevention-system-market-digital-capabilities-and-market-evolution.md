@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-intelligent-power-error-prevention-system-xeqwf/

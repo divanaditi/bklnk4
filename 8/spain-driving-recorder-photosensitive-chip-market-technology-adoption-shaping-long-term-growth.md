@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-driving-recorder-photosensitive-chip-market-technology-qu2bf/

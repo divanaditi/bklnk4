@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-voc-treatment-recovery-market-ai-technology-p3vcc/

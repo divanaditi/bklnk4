@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mdm-market-digital-transformation-readiness-rdjic/

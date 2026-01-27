@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-household-attic-ladders-market-digital-capabilities-0wagf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-din-rail-io-modules-market-technology-evolution-x9ivf/

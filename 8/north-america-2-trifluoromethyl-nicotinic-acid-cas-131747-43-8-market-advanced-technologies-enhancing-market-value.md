@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-2-trifluoromethylnicotinic-acid-cas-xnxdf/

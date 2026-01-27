@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-amino-5-fluoro-4-picoline-cas-301222-66-2-ip6jf/

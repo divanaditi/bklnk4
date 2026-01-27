@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-heptafluoroisopropyl-iodide-cas-677-69-0-rbhde/

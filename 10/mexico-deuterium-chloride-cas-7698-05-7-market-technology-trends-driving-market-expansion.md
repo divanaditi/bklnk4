@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-deuterium-chloride-cas-7698-05-7-market-technology-mzxaf/

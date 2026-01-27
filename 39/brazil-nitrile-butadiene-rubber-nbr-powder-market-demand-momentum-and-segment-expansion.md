@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nitrile-butadiene-rubber-nbr-powder-market-demand-ejpzf/

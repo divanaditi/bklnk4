@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-residential-outdoor-storage-products-n5ief/

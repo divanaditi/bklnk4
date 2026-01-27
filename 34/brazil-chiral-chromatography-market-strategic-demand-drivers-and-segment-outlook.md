@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-chiral-chromatography-market-strategic-demand-6khqf/

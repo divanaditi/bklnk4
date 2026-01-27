@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-remote-vehicle-diagnostics-market-k7kpe/

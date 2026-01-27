@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-latex-pillow-market-ai-impact-structure-scale-rubmf/

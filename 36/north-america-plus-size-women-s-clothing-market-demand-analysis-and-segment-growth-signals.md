@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-plus-size-women-clothing-market-demand-dy1xf/

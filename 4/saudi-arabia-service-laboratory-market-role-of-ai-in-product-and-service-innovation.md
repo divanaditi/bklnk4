@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-service-laboratory-market-role-ai-zku8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-beacons-technology-market-demand-hcxzc/

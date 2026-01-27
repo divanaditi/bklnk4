@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-industrial-grade-drone-market-demand-pod4f/

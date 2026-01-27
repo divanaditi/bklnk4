@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-field-programmable-gate-array-fpga-cyber-5zllf/

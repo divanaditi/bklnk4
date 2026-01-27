@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-operator-seat-market-ai-data-analytics-2jxgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thin-film-drugs-market-demand-outlook-xokvc/

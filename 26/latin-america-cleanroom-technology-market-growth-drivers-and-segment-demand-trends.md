@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cleanroom-technology-market-growth-3jw8c/

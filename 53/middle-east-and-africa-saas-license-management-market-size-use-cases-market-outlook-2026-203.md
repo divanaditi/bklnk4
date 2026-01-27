@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-saas-license-management-market-7ib2e/

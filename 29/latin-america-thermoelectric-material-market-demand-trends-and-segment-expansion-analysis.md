@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermoelectric-material-market-demand-trends-77mpc/

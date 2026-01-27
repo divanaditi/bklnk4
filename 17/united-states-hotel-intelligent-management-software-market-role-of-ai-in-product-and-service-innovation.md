@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-hotel-intelligent-management-software-ogcac/

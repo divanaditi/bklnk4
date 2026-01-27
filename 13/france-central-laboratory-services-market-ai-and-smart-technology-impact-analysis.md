@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-central-laboratory-services-market-ai-smart-technology-h0hof/

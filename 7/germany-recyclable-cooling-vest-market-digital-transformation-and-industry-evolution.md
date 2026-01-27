@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-recyclable-cooling-vest-market-digital-transformation-ugzxf/

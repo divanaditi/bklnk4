@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-needle-biopsy-market-demand-outlook-segment-opportunity-q47wf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-color-doppler-market-technology-evolution-6ctkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-shaving-care-market-automation-ai-impact-gwhmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-material-transfer-vehicles-dnj9f/

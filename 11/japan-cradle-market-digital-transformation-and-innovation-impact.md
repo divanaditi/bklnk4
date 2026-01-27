@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cradle-market-digital-transformation-innovation-mwbgf/

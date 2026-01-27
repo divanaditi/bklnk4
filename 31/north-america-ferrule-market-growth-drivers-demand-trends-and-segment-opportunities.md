@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ferrule-market-growth-drivers-demand-ng0sf/

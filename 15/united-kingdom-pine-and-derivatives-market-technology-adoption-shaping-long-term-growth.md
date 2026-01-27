@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-pine-derivatives-market-technology-adoption-fllef/

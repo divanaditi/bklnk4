@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrocoating-e-coat-market-demand-dynamics-rjqmf/

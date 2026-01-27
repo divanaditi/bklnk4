@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-customized-commodities-market-technology-9maif/

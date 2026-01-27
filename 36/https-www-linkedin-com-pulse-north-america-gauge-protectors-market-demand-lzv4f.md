@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gauge-protectors-market-demand-lzv4f/

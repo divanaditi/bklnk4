@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-well-survey-equipment-market-digital-evolution-bapu-bade-mvsef/

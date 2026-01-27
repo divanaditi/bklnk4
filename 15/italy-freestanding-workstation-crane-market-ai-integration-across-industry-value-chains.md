@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-freestanding-workstation-crane-market-ai-integration-lncof/

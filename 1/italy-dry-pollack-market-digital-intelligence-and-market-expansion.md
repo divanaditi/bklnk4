@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-dry-pollack-market-digital-intelligence-l8wqf/

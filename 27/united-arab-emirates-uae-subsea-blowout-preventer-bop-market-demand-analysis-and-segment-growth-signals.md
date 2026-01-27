@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-subsea-blowout-preventer-bop-market-zg5ef/

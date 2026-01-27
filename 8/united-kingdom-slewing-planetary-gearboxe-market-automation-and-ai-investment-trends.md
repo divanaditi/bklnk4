@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-slewing-planetary-gearboxe-market-automation-g9glf/

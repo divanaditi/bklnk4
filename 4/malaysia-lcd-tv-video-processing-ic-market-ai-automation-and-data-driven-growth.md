@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-lcd-tv-video-processing-ic-market-ai-automation-wrbhc/

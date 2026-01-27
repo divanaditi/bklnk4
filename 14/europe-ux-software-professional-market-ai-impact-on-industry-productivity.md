@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ux-software-professional-market-ai-impact-industry-8syec/

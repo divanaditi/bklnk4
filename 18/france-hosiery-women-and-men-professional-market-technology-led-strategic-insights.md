@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-hosiery-women-men-professional-market-technology-led-strategic-9gtgf/

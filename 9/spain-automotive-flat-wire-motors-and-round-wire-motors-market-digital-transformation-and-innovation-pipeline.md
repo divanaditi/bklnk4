@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automotive-flat-wire-motors-round-market-digital-bg4cf/

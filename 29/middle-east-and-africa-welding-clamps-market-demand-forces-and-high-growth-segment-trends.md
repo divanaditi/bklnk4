@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-welding-clamps-market-demand-sh49f/

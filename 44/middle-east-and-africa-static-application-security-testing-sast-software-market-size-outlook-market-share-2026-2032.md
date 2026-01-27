@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-static-application-security-testing-w7rdc/

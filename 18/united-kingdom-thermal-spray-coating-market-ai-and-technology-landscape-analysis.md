@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-thermal-spray-coating-market-ai-technology-rh9of/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ready-eat-food-metal-detector-market-fxisc/

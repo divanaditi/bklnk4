@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-tourmaline-necklace-market-segment-vtqbf/

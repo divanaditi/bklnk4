@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-56-o-isopropylidene-l-ascorbic-acid-cas-15042-01-0-ulfpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ai-medical-devices-market-technology-roadmap-f1h3f/

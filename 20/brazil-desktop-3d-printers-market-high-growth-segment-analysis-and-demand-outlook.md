@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-desktop-3d-printers-market-high-growth-segment-znihf/

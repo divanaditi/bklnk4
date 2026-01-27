@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-video-dermatoscope-market-demand-drivers-shaping-hvvxe/

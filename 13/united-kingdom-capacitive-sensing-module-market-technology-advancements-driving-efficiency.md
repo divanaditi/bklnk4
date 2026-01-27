@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-capacitive-sensing-module-market-technology-1uwtf/

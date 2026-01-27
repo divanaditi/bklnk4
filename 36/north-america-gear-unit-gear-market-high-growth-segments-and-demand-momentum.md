@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gear-unit-market-high-growth-segments-l37kf/

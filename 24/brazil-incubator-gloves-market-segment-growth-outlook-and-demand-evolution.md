@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-incubator-gloves-market-segment-growth-outlook-w5dnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-45-dichloroimidazole-cas-15965-30-7-98bcf/

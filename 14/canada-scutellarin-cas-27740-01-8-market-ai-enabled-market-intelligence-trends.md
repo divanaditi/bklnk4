@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-scutellarin-cas-27740-01-8-market-ai-enabled-lmcgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-face-recognition-ststems-market-technology-yhubf/

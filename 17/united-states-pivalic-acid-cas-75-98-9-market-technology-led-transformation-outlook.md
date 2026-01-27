@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-pivalic-acid-cas-75-98-9-market-technology-led-tzoec/

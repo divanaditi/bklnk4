@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personal-cooling-system-professional-market-ddcmf/

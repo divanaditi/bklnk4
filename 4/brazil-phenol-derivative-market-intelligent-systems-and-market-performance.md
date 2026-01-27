@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-phenol-derivative-market-intelligent-systems-performance-bkwmf/

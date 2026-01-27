@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cut-resistant-fabric-market-outlook-zvfbf/

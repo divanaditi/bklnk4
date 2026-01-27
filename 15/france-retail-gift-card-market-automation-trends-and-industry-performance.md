@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-retail-gift-card-market-automation-trends-industry-jioef/

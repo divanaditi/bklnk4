@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-213-benzothiadiazole-5-carbonyl-chloride-cas-321309-31-3-dcpjf/

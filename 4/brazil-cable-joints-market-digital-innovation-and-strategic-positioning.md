@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cable-joints-market-digital-innovation-iulpf/

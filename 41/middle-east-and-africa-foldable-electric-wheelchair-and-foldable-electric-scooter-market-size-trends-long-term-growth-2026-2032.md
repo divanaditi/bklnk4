@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-foldable-electric-wheelchair-4h2bf/

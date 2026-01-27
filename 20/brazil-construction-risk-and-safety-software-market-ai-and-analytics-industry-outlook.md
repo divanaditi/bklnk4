@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-construction-risk-safety-software-market-j9mze/

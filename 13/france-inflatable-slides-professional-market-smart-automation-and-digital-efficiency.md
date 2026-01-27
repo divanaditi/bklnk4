@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-inflatable-slides-professional-market-smart-wqggf/

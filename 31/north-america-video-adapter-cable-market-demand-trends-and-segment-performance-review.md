@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-video-adapter-cable-market-demand-trends-pallavi-khede-dmynf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-leg-plates-market-technology-trends-bsxsf/

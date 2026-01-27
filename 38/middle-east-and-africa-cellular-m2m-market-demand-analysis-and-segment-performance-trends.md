@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cellular-m2m-market-demand-analysis-vvqtc/

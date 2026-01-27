@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-trifluoromethyl-2356-tetrafluorothiophenol-cas-ts1gf/

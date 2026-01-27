@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-visual-regression-testing-market-demand-jtyxf/

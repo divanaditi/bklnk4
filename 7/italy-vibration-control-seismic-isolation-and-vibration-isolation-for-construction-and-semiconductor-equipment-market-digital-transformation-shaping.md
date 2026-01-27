@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-vibration-control-seismic-isolation-construction-7hkof/

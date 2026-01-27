@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mpb-market-ai-emerging-technology-e17uc/

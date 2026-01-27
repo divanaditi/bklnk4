@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cloud-based-patient-registry-software-g1zzf/

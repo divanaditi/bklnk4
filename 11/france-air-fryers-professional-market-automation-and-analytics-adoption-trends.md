@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-air-fryers-professional-market-automation-analytics-xom3c/

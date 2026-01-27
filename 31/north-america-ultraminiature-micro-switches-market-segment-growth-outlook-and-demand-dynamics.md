@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-ultraminiature-micro-switches-market-segment-c0ytf/

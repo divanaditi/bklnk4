@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-yacht-charter-market-size-9fanf/

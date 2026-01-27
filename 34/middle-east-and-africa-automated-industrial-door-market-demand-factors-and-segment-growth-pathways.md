@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automated-industrial-door-market-demand-swzqf/

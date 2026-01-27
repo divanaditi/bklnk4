@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-real-estate-portfolio-o8zoc/

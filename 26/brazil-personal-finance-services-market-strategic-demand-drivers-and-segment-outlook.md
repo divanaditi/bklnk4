@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-personal-finance-services-market-strategic-nr17c/

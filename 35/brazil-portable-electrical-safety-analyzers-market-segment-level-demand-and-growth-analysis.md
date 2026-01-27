@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-electrical-safety-analyzers-market-segment-level-2znvf/

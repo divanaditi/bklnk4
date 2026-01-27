@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ttac-market-demand-patterns-driving-aqcwf/

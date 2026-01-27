@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-corporate-learning-management-system-market-ai-enabled-9n13f/

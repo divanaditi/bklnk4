@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stretch-film-wrapper-market-ogl7f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-freeze-dried-vegetables-market-size-hzjbf/

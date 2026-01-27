@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-12-epoxycyclododecane-cas-286-99-7-market-qcfcc/

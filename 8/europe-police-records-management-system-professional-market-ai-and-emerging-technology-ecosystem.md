@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-police-records-management-system-professional-market-8wzzf/

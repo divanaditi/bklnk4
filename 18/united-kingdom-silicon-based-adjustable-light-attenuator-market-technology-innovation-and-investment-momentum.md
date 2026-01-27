@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-silicon-based-adjustable-light-attenuator-nq1kf/

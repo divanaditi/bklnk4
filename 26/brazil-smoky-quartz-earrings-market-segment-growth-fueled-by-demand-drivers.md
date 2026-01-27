@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smoky-quartz-earrings-market-segment-growth-fueled-u4j9c/

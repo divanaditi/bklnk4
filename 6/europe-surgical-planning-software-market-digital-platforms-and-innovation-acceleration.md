@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-surgical-planning-software-market-digital-wqczf/

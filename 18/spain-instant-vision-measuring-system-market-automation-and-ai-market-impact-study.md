@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-instant-vision-measuring-system-market-automation-nkgef/

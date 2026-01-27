@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-plus-size-clothing-subscription-boxes-market-qeftf/

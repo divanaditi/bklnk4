@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-automotive-lift-market-demand-dynamics-gsn4e/

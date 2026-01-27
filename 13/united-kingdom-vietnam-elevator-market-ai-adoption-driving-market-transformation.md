@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-vietnam-elevator-market-ai-adoption-q4wgf/

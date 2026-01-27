@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ohv-telematics-professional-market-ai-automation-ge8ef/

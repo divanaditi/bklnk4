@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-powered-rammer-market-demand-drivers-rlq7f/

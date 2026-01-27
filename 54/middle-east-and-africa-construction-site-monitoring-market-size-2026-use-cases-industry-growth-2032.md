@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-construction-site-monitoring-market-qdkwf/

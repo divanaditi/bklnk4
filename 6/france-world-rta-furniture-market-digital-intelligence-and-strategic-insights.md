@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-world-rta-furniture-market-digital-intelligence-btl7f/

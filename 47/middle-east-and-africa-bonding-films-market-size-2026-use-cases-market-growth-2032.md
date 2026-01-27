@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bonding-films-market-size-2026-92icf/

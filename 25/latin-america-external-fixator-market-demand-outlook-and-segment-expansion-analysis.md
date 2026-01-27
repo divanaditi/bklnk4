@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-external-fixator-market-demand-outlook-segment-3vdrc/

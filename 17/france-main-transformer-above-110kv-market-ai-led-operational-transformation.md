@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-main-transformer-above-110kv-market-ai-led-operational-znopf/

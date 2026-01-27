@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-implant-market-demand-outlook-high-growth-beedf/

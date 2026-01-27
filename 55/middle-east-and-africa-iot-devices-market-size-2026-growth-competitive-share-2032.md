@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-iot-devices-market-size-2026-ikyjf/

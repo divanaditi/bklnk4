@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-flumethrin-cas-69770-45-2-market-ai-technology-81kpc/

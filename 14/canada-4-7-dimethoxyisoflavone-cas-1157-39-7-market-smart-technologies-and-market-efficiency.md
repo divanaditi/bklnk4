@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-47-dimethoxyisoflavone-cas-1157-39-7-market-h2rlc/

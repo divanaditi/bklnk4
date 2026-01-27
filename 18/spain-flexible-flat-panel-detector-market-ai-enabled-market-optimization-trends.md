@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-flexible-flat-panel-detector-market-ai-enabled-optimization-oktgf/

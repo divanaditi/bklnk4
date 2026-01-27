@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-layer-pads-sales-market-demand-evolution-4g8cf/

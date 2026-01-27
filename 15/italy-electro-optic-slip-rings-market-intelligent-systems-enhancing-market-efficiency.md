@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-electro-optic-slip-rings-market-intelligent-systems-paq2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-insurance-reinsurance-market-ai-adoption-technology-ddgxf/

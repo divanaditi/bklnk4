@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-capsule-hotels-market-high-growth-segments-nlihf/

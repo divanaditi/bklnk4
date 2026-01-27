@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-liquid-applied-membrane-construction-market-zujlf/

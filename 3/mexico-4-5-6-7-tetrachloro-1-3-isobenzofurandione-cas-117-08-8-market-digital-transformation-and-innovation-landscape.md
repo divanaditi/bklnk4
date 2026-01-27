@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4567-tetrachloro-13-isobenzofurandione-cas-cx5jf/

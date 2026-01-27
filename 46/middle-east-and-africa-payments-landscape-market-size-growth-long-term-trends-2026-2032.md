@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-payments-landscape-market-wne0f/

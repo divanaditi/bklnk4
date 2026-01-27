@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-portable-hematology-analyzer-market-ai-impact-3qt8f/

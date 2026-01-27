@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-biohacking-connected-devices-9imef/

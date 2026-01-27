@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-thiane-cas-1613-51-0-market-ai-enabled-m7yrc/

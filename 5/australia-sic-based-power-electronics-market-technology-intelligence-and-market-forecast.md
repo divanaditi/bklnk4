@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-sic-based-power-electronics-market-dl5ac/

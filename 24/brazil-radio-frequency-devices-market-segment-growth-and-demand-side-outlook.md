@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radio-frequency-devices-market-segment-8s8gf/

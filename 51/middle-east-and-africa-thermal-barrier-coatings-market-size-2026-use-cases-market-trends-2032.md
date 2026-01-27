@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thermal-barrier-coatings-market-ahw8f/

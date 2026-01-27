@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-diode-laser-machine-trolley-market-u0zcf/

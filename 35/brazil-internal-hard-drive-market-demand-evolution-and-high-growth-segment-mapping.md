@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-internal-hard-drive-market-demand-evolution-b8muf/

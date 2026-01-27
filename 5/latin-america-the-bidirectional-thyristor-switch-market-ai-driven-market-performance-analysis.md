@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bidirectional-thyristor-switch-p81bc/

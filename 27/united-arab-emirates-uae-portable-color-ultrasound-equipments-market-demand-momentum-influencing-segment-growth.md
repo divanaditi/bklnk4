@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-portable-color-ultrasound-equipments-ihe0f/

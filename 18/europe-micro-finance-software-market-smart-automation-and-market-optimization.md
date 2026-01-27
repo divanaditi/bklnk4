@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-micro-finance-software-market-smart-automation-wv4tf/

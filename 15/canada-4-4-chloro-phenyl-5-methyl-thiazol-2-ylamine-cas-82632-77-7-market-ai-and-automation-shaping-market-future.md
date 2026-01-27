@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-4-chloro-phenyl-5-methyl-thiazol-2-ylamine-n1ssf/

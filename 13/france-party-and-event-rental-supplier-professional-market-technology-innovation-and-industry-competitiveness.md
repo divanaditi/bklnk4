@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-party-event-rental-supplier-professional-vgl2f/

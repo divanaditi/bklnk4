@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-luggage-market-size-2cphf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cleanroom-disposable-market-demand-outlook-vpabf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-external-temperature-controlled-array-1h9of/

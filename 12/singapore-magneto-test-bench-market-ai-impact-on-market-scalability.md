@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-magneto-test-bench-market-ai-impact-scalability-p5fgf/

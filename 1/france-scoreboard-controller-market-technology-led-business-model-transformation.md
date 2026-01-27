@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-scoreboard-controller-market-technology-led-business-lco0f/

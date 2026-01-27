@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-three-phase-solar-inverter-market-size-mcisf/

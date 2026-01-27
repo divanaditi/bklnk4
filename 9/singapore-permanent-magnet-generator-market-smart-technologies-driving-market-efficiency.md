@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-permanent-magnet-generator-market-rhn4f/

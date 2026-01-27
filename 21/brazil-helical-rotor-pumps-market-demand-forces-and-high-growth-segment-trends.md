@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-helical-rotor-pumps-market-demand-forces-nmxjf/

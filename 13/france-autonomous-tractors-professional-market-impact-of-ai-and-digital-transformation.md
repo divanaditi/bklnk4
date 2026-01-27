@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-autonomous-tractors-professional-market-impact-ai-jvkzf/

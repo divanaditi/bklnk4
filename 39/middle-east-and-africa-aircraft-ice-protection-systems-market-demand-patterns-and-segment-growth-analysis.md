@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aircraft-ice-protection-systems-yw4zf/

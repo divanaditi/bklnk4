@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-guest-room-amenities-market-digital-ecosystem-r8kbf/

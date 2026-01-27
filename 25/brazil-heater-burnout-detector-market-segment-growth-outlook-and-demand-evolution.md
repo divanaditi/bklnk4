@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heater-burnout-detector-market-segment-growth-outlook-fnttf/

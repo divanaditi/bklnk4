@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-rugged-handheld-device-market-technology-zqz1f/

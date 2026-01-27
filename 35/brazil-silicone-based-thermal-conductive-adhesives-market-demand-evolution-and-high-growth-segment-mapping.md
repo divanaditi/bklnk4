@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-silicone-based-thermal-conductive-adhesives-l2ddf/

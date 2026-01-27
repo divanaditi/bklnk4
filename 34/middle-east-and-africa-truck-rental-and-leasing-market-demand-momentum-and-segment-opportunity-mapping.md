@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-truck-rental-leasing-market-demand-nev7f/

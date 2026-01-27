@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-new-energy-vehicle-battery-market-growth-pr0ze/

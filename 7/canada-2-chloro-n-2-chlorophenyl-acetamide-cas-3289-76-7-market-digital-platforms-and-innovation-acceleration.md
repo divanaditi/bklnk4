@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloro-n-2-chlorophenylacetamide-cas-yroyf/

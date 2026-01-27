@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-geostationary-orbit-commercial-satellite-tk6jf/

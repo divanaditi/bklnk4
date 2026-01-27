@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-continuous-type-blender-market-digital-intelligence-duunf/

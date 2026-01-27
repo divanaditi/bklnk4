@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-soho-mobile-banking-market-digital-ecosystem-innovation-xesnf/

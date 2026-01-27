@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-extension-cord-reels-market-zow8f/

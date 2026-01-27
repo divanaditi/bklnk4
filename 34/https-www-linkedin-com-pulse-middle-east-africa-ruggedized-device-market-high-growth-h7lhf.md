@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ruggedized-device-market-high-growth-h7lhf/

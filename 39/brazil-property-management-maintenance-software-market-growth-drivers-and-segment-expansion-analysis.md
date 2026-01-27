@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-property-management-maintenance-software-market-yyrrf/

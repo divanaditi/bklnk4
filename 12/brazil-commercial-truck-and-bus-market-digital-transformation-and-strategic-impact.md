@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-truck-bus-market-digital-transformation-xsmqc/

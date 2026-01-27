@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-led-semiconductor-chip-professional-market-1hmgf/

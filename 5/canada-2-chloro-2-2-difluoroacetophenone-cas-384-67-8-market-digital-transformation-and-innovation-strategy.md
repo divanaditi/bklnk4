@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloro-22-difluoroacetophenone-cas-384-67-8-0lq4f/

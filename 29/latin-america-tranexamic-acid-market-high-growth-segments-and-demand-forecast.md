@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tranexamic-acid-market-high-growth-zfnrc/

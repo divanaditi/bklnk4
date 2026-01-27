@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-system-integrator-professional-market-role-yhcjf/

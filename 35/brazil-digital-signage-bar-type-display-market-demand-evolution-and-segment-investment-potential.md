@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-signage-bar-type-display-market-demand-gutyf/

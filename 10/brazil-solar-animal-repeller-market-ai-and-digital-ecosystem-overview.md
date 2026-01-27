@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-animal-repeller-market-ai-digital-ecosystem-dresf/

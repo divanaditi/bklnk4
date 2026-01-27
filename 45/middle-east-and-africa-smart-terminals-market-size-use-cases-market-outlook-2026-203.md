@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-terminals-market-size-zd0lc/

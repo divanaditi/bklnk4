@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloro-4-fluorophenylboronic-acid-cas-3qjyf/

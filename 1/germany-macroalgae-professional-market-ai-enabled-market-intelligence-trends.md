@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-macroalgae-professional-market-ai-enabled-kzzkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-arc-welding-inverter-market-size-qqbef/

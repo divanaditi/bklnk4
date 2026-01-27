@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-industry-conveyor-belts-market-digital-transformation-tompe/

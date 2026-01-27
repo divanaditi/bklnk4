@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-piezoelectric-stack-actuators-szl7f/

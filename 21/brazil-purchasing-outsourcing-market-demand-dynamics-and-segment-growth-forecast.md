@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-purchasing-outsourcing-market-demand-dynamics-ihjlf/

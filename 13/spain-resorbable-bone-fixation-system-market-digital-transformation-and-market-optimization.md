@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-resorbable-bone-fixation-system-market-digital-avnof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-absolute-pressure-gauges-market-size-wr6cf/

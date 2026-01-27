@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-semi-squalane-market-size-growth-x6utf/

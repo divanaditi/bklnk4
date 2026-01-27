@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-synthetic-food-professional-market-ai-led-digital-jzq5f/

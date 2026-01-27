@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-security-control-system-5nkbc/

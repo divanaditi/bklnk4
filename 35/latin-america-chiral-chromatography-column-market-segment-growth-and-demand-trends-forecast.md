@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chiral-chromatography-column-market-hmpuf/

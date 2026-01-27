@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-blood-irradiation-market-segment-demand-5iu1c/

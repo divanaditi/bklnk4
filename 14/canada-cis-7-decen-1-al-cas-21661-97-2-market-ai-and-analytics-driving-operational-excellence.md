@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-cis-7-decen-1-al-cas-21661-97-2-market-ai-analytics-opk3f/

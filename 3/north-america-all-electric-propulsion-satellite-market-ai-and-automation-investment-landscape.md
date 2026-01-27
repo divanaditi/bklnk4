@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-all-electric-propulsion-satellite-market-0j5gf/

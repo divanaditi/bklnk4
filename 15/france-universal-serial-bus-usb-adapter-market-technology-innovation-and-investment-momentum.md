@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-universal-serial-bus-usb-adapter-market-technology-bgagf/

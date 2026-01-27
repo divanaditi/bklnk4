@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-coastal-rowing-boats-professional-market-emerging-60usf/

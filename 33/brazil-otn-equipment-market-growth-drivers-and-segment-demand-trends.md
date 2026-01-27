@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-otn-equipment-market-growth-drivers-segment-dxpte/

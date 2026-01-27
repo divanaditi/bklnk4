@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-home-ice-maker-market-demand-outlook-segment-3s2jc/

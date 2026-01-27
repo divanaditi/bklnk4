@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-offshore-patrol-vessel-professional-4qkkf/

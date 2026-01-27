@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pa12t-market-high-growth-segments-m842f/

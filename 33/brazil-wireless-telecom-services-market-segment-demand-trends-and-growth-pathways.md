@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-telecom-services-market-segment-4pcve/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-refrigeration-controller-market-ai-impact-zfmae/

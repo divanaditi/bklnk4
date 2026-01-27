@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tablet-pc-processor-market-im4jf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-inverter-technology-air-conditioner-lxyxc/

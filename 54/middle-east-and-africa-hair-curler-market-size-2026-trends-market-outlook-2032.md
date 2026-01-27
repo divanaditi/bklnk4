@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hair-curler-market-size-fuoff/

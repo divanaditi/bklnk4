@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-agriculture-tools-market-growth-drivers-yepac/

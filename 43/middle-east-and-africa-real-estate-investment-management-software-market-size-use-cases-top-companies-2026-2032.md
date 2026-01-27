@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-real-estate-investment-management-7a3pc/

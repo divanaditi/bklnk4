@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-gas-turbines-burning-crude-oil-hfo-8sklf/

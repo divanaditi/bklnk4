@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bopet-films-market-growth-drivers-demand-side-68lae/

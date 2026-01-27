@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-submarine-navigation-system-market-ai-adoption-45mmf/

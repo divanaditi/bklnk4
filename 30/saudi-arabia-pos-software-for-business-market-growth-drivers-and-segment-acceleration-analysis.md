@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-pos-software-business-market-growth-drivers-mkr6f/

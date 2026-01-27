@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-security-assessment-market-size-ecosystem-2firf/

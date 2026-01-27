@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-windows-materials-sales-market-vhpme/

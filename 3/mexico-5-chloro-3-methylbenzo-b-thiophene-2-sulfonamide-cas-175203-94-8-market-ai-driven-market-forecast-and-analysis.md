@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-5-chloro-3-methylbenzobthiophene-2-sulfonamide-cas-a7rdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-powder-actuated-tools-fasteners-market-digital-innovation-ssrkf/

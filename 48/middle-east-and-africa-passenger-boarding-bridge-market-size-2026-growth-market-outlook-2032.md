@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-passenger-boarding-bridge-5hxef/

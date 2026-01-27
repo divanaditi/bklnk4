@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-multifunctional-label-adhesive-market-demand-aotbf/

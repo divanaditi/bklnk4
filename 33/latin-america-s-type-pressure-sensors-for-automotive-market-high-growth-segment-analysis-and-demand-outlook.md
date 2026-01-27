@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-s-type-pressure-sensors-automotive-1h2se/

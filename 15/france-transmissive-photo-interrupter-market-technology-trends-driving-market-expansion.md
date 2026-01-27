@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-transmissive-photo-interrupter-market-technology-sohtf/

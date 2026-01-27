@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-kapok-fiber-market-size-top-qw5nf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-e-commerce-testing-service-market-segment-004rf/

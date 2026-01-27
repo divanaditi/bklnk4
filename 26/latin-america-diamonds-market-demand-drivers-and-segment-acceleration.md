@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-diamonds-market-demand-drivers-segment-zhn7c/

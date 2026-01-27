@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-classroom-wearables-technology-market-high-growth-pxprf/

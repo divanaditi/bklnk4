@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-software-development-tools-professional-market-rtcyf/

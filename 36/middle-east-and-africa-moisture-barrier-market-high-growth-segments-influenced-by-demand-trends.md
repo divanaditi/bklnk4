@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-moisture-barrier-market-high-growth-doqke/

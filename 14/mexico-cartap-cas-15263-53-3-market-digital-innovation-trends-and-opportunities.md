@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-cartap-cas-15263-53-3-market-digital-jbftc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-open-versus-closed-cell-phenolic-foams-6vnef/

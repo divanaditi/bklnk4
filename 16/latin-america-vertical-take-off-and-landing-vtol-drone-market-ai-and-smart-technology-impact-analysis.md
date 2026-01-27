@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vertical-take-off-landing-vtol-drone-rzhjf/

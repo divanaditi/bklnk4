@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-oilfield-communications-market-qd6rf/

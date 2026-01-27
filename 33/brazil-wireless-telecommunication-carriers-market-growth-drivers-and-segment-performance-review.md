@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-telecommunication-carriers-market-ponhe/

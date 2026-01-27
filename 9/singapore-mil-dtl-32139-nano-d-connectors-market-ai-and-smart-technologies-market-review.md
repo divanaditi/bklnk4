@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mil-dtl-32139-nano-d-connectors-u9e8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-capacitive-touch-sensor-professional-market-jlblf/

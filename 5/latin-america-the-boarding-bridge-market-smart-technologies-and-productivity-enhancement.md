@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-boarding-bridge-market-smart-technologies-t44xc/

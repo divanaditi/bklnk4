@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-anisole-cas-100-66-3-market-technology-j1faf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-public-safety-analytics-market-segment-9bdqf/

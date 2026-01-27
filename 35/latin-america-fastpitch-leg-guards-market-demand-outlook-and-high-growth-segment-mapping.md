@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fastpitch-leg-guards-market-demand-bbpaf/

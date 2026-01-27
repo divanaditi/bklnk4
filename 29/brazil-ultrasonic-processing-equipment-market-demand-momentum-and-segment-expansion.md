@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ultrasonic-processing-equipment-market-demand-yrmrf/

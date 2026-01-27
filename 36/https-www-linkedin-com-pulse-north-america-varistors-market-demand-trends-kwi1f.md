@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-varistors-market-demand-trends-kwi1f/

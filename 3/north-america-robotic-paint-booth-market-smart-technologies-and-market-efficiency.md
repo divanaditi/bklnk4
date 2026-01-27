@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-robotic-paint-booth-market-smart-lq51f/

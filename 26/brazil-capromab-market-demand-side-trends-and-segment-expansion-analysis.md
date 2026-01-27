@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-capromab-market-demand-side-trends-segment-usj1c/

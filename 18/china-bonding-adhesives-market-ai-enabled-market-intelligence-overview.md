@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-bonding-adhesives-market-ai-enabled-intelligence-pg43f/

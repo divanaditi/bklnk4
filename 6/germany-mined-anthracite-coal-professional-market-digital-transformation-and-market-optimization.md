@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-mined-anthracite-coal-professional-market-94dwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-biometric-scanner-market-growth-e2bnc/

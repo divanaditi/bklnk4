@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-enhanced-fire-detection-suppression-vcwaf/

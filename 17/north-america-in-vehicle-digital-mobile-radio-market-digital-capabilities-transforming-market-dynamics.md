@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-in-vehicle-digital-mobile-radio-e96rc/

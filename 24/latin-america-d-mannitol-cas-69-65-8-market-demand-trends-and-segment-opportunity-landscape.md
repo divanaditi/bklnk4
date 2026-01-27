@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-d-mannitol-cas-69-65-8-market-demand-trends-p8otc/

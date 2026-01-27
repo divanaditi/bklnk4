@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-radiata-pine-pulp-logs-market-digital-yktsf/

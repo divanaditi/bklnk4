@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-petg-shrink-film-market-segment-growth-r0mqf/

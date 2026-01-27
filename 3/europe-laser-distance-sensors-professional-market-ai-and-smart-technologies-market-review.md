@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-laser-distance-sensors-professional-market-ai-cosef/

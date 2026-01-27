@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-sharp-container-market-high-growth-segments-bsvgc/

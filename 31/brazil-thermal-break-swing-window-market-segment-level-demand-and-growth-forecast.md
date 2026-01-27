@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermal-break-swing-window-market-segment-level-d6mhc/

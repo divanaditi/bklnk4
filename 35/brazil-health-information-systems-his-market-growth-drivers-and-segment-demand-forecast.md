@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-health-information-systems-his-market-ftqcf/

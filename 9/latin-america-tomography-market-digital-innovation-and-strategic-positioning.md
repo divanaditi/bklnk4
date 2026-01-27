@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tomography-market-digital-o6l3f/

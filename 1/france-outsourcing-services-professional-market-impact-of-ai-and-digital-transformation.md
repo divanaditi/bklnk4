@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-outsourcing-services-professional-market-impact-p2chf/

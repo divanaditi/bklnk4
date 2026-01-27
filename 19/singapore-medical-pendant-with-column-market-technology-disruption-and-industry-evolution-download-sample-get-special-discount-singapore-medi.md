@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medical-pendant-column-market-technology-disruption-qy32e/

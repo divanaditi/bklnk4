@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-engineering-geological-exploration-drill-market-z9hhf/

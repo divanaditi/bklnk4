@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-polyester-ripcord-market-high-growth-ya0yf/

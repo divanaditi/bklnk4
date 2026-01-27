@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-baby-towel-quilt-market-ai-adoption-technology-vdg1c/

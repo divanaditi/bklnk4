@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-load-break-switch-market-demand-nqjpc/

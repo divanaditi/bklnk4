@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electronic-belt-scale-market-segment-growth-25gpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-big-data-analytics-hadoop-market-technology-driven-1fgzf/

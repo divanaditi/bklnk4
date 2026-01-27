@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-phone-charge-market-ai-adoption-ek8cf/

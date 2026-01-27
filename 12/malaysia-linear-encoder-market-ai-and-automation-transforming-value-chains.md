@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-linear-encoder-market-ai-automation-transforming-j0muf/

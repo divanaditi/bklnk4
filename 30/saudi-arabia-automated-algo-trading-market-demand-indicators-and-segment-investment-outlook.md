@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-automated-algo-trading-market-demand-zlbaf/

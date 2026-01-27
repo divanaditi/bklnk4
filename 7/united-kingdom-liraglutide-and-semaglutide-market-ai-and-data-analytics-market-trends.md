@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-liraglutide-semaglutide-market-ai-i7fkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-world-all-terrain-vehicle-market-technology-woatf/

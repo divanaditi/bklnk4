@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-metal-deactivator-market-demand-trends-high-growth-bki2f/

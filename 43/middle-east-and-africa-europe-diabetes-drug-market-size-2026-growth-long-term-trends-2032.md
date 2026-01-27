@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-europe-diabetes-drug-market-size-c1tjf/

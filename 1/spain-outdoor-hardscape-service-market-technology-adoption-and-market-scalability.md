@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-outdoor-hardscape-service-market-technology-adoption-1vy9f/

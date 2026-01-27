@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chalk-reel-line-market-intelligent-systems-expansion-s4dtf/

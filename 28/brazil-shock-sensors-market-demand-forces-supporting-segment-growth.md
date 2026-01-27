@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-shock-sensors-market-demand-forces-supporting-jcuqc/

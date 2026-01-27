@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-aquatic-product-professional-market-ai-enabled-rkpuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-residential-thermostat-market-high-growth-adxff/

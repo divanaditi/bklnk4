@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-building-lightning-protection-device-srdsf/

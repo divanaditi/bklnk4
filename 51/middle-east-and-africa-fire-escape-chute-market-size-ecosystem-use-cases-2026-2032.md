@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fire-escape-chute-83yzc/

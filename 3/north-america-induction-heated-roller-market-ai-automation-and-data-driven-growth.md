@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-induction-heated-roller-market-ai-automation-z6kqf/

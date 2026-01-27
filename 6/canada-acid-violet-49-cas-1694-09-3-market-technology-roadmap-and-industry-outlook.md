@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-acid-violet-49-cas-1694-09-3-market-technology-vobif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-handheld-barcode-scanners-market-demand-bjppe/

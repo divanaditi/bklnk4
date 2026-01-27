@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-photovoltaic-energy-storage-power-station-market-a7g5f/

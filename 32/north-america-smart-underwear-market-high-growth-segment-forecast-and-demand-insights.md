@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-underwear-market-high-growth-segment-forecast-8ktnf/

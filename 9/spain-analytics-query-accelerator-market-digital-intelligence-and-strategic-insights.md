@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-analytics-query-accelerator-market-digital-intelligence-3lcbf/

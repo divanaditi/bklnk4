@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-d-beer-market-ai-driven-innovation-development-kkqnc/

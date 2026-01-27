@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electric-reach-truck-market-demand-psilc/

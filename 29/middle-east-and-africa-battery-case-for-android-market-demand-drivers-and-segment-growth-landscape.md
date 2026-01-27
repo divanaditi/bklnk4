@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-battery-case-android-market-h8gff/

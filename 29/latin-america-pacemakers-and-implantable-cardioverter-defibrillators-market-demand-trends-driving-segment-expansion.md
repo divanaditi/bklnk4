@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pacemakers-implantable-cardioverter-defibrillators-fqy1c/

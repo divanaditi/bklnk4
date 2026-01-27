@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-iron-silicon-aluminum-soft-magnetic-9zn7c/

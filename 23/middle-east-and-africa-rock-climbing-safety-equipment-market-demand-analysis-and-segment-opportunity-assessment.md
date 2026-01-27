@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rock-climbing-safety-equipment-market-yaltf/

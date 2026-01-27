@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-banking-equipment-market-technology-innovation-hntmf/

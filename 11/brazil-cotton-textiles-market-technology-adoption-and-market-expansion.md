@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cotton-textiles-market-technology-adoption-expansion-ky8mc/

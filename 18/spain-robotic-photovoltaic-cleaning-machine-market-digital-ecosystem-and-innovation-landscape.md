@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-robotic-photovoltaic-cleaning-machine-market-cvn5f/

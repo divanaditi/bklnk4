@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-apparel-inventory-management-software-market-iid8f/

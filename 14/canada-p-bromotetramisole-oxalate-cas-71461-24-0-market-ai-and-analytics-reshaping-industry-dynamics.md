@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-p-bromotetramisole-oxalate-cas-71461-24-0-dfecc/

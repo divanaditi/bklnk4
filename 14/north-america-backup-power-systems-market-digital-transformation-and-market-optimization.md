@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-backup-power-systems-market-digital-2z61c/

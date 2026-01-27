@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stephania-tetrandra-extract-market-ggwdc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vitro-diagnostic-ivd-products-market-f1gpe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-offline-automated-optical-inspection-9yrtf/

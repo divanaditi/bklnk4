@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-crystal-silicon-solar-panel-market-f7rmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blood-pressure-monitoring-equipment-market-vjcpc/

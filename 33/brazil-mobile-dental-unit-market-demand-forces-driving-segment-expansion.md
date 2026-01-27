@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-dental-unit-market-demand-forces-frn1e/

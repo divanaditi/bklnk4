@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mhealth-ecosystem-market-demand-momentum-6zzqc/

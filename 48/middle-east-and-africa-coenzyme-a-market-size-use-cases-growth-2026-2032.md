@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-coenzyme-market-size-use-cases-growth-ug53f/

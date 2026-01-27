@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mouth-ulcer-treatment-market-demand-lkpae/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-speed-tape-market-demand-supported-dgomf/

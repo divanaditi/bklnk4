@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-peel-back-force-testers-market-demand-trends-sskxe/

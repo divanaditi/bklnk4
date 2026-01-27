@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-medical-devices-coatings-77ywf/

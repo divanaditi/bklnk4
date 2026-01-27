@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-waist-pack-market-segment-growth-outlook-yotff/

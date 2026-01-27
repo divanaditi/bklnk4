@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-c9-resin-market-ai-enabled-process-optimization-hsrcc/

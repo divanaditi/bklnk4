@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-regulatory-affairs-outsourcing-ebx4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-live-broadcast-satellite-decoding-zgtvf/

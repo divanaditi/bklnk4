@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-vertical-sorter-market-intelligent-automation-strategic-qd8tf/

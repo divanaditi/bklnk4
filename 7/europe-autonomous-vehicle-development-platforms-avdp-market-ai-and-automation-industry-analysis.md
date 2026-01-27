@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-autonomous-vehicle-development-platforms-avdp-9ahqf/

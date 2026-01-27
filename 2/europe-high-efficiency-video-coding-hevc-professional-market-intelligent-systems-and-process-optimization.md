@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-high-efficiency-video-coding-hevc-41qpf/

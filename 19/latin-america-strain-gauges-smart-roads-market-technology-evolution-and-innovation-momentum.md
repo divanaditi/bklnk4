@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-strain-gauges-smart-roads-market-technology-jg98e/

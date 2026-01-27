@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-universal-frequency-counter-market-ai-enabled-fyfnf/

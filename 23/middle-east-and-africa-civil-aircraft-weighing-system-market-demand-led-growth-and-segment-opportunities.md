@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-civil-aircraft-weighing-system-co1kf/

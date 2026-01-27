@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-laboratory-equipment-disposables-market-fc10c/

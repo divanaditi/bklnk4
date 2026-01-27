@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-oil-gas-pipeline-monitoring-equipment-market-dqhzf/

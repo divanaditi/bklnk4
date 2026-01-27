@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-c-v2x-test-market-size-2026-share-long-term-stouc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-commercial-litigation-crowdfunding-platform-professional-xuptf/

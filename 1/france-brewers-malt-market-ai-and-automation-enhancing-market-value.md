@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-brewers-malt-market-ai-automation-enhancing-gftwf/

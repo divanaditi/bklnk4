@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-world-mobile-card-reader-market-technology-wqodf/

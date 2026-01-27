@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-moisture-pad-market-demand-side-trends-9sdcf/

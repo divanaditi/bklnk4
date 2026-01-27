@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-real-time-transformer-monitoring-system-pryzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-riding-boots-market-technology-h1bmc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electromagnetic-therapy-device-market-kx3ce/

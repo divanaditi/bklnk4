@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-methyl-trichloroacetate-cas-598-99-2-market-tx5cf/

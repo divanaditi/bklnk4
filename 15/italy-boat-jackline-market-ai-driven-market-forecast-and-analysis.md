@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-boat-jackline-market-ai-driven-forecast-analysis-9hikf/

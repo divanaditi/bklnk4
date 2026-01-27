@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-food-waste-processor-market-demand-led-dtwtf/

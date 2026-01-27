@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-collaborative-robotic-palletizer-market-ai-gabef/

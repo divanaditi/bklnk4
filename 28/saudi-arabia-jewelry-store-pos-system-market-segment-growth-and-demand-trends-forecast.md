@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-jewelry-store-pos-system-market-segment-growth-rnitf/

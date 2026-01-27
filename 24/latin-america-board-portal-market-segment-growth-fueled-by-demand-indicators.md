@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-board-portal-market-segment-growth-magvc/

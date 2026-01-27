@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-premium-women-western-wear-market-impact-lsi3c/

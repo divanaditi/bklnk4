@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cash-forecasting-treasury-management-software-jh6zf/

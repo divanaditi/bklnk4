@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-premium-insect-kibble-pet-food-market-ai-powered-hk2cf/

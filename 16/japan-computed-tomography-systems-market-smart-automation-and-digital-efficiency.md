@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-computed-tomography-systems-market-smart-y1ecf/

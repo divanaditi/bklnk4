@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-plastic-apron-professional-market-technology-vsutf/

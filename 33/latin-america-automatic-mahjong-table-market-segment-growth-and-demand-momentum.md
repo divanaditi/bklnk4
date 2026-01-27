@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-mahjong-table-market-dxb1e/

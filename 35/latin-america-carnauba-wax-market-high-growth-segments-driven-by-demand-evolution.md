@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-carnauba-wax-market-high-growth-segments-e31uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloro-4-bromopyridine-cas-73583-37-6-brnzf/

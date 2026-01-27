@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rack-pinion-market-high-growth-segment-ocx5f/

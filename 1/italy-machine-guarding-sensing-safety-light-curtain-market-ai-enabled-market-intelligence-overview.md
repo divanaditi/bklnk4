@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-machine-guarding-sensing-safety-light-curtain-market-mvr0f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-office-space-planning-x0uxf/

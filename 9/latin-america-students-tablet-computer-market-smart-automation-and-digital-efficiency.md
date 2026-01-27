@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-students-tablet-computer-market-5plpf/

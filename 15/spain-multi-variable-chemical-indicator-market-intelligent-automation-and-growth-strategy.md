@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-multi-variable-chemical-indicator-market-intelligent-vcdof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-thermal-vacuum-cable-assembly-market-frbuf/

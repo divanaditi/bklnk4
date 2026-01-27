@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-handheld-melanoma-scanner-market-growth-hba3f/

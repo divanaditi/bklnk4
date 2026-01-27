@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-marine-vhf-radios-market-ai-enabled-optimization-gwvvf/

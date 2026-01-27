@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2346-tetra-o-benzyl-d-glucopyranose-cas-4132-28-9-ukzaf/

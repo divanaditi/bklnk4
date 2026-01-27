@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-facade-market-demand-momentum-influencing-segment-9p4se/

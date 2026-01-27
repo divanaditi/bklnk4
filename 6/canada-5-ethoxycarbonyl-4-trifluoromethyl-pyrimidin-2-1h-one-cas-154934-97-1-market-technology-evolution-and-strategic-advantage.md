@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-ethoxycarbonyl-4-trifluoromethylpyrimidin-21h-one-mumff/

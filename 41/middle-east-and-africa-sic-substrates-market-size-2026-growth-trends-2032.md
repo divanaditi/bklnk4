@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sic-substrates-market-size-2026-growth-nd6kf/

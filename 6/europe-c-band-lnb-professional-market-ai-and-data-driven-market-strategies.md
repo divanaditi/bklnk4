@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-c-band-lnb-professional-market-ofiff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bariatric-lift-market-demand-drivers-segment-1pwwf/

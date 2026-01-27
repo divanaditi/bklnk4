@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-amino-6-methylpyridine-cas-1824-81-3-rxdhf/

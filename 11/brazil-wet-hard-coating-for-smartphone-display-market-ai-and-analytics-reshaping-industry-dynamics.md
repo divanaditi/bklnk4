@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wet-hard-coating-smartphone-display-market-tgu1c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pharma-regulatory-management-systems-market-demand-iwnrf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-palletizer-market-growth-drivers-demand-side-dmq0c/

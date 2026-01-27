@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-household-heat-pump-water-heater-market-smart-dfb2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-feed-fats-professional-market-digital-capabilities-plvuf/

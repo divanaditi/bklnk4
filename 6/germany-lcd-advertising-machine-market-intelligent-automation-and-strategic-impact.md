@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-lcd-advertising-machine-market-intelligent-k6f3f/

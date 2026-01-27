@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-normethisterone-cas-514-61-4-market-ai-adoption-dy1qc/

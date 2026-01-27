@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-automotive-radial-tire-building-machine-vtcbf/

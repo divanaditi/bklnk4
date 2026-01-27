@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-true-diversity-wireless-microphone-market-digital-poq3f/

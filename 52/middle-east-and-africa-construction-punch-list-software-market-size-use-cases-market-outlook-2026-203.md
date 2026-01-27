@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-construction-punch-list-software-tl9pf/

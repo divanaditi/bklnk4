@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vegan-protein-market-ai-automation-investment-1irrf/

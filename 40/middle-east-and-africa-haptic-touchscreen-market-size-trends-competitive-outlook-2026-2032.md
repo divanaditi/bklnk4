@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-haptic-touchscreen-market-size-trends-mb36f/

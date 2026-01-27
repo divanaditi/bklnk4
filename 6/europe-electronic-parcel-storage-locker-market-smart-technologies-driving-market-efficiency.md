@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-electronic-parcel-storage-locker-market-aop0f/

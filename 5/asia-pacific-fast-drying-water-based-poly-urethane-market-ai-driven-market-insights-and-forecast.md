@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-fast-drying-water-based-poly-urethane-vgzrf/

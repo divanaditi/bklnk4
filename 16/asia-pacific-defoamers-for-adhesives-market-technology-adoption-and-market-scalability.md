@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-defoamers-adhesives-market-technology-1u8xf/

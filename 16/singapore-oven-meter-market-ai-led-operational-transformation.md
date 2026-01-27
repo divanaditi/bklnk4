@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oven-meter-market-ai-led-operational-1uosf/

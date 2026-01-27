@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-molded-resistor-market-digital-transformation-p387f/

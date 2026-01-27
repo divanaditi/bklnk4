@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-adhesive-pcr-sealing-film-market-digital-7pjff/

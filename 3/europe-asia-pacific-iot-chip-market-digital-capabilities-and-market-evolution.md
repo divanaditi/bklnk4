@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-asia-pacific-iot-chip-market-digital-capabilities-eklwf/

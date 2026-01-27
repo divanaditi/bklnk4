@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-portable-projectors-market-demand-forces-rarcc/

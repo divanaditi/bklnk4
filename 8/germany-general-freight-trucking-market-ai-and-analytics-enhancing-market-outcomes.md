@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-general-freight-trucking-market-ai-analytics-jpaxf/

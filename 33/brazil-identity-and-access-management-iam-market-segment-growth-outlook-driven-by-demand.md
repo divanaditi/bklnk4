@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-identity-access-management-iam-market-segment-80uae/

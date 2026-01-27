@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-velcro-market-size-trends-industry-1sd6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-sponge-scouring-pads-type-raw-materials-end-fnahf/

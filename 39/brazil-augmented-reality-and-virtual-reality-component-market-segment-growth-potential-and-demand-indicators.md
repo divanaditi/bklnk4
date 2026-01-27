@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-augmented-reality-virtual-component-market-segment-df3lf/

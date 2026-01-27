@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-experience-platform-dxp-market-ai-trends-rknzf/

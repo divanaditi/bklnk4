@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pvc-compound-market-growth-drivers-segment-opportunity-st1zf/

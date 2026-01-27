@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-chloroacetophenone-cas-2142-68-9-market-hbpcf/

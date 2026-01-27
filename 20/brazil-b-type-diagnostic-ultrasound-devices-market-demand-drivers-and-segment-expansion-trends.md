@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-b-type-diagnostic-ultrasound-devices-market-quxjf/

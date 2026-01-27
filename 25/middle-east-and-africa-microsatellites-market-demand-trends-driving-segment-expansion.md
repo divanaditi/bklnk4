@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-microsatellites-market-demand-wj5sf/

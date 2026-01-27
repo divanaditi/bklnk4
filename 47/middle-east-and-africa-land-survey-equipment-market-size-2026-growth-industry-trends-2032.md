@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-land-survey-equipment-4tk2f/

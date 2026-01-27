@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-drug-temperature-monitoring-system-market-ugdrf/

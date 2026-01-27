@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-satellite-pot-market-smart-technologies-864zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-inflatable-building-market-segment-growth-fmbxf/

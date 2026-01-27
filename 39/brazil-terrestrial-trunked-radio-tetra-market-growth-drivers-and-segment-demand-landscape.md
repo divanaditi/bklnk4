@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-terrestrial-trunked-radio-tetra-market-growth-6ej2f/

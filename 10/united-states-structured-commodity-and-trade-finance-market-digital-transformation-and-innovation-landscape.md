@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-structured-commodity-trade-finance-market-r9atf/

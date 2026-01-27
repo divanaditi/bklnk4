@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-escape-hoods-market-technology-roadmap-industry-k09yf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-silicone-flexible-heaters-market-demand-side-u0sjf/

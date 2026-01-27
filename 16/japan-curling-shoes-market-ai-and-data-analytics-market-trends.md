@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-curling-shoes-market-ai-data-analytics-trends-ub9uf/

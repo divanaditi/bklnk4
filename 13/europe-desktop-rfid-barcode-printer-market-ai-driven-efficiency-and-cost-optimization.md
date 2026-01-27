@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-desktop-rfid-barcode-printer-market-ai-driven-xrrmc/

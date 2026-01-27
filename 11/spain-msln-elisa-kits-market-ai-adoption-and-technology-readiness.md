@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-msln-elisa-kits-market-ai-adoption-technology-ziohf/

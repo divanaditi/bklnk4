@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-phenolic-urethane-cold-box-binder-market-ycbif/

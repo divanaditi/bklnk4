@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-thallium-i-ethoxide-cas-20398-06-5-market-yx5of/

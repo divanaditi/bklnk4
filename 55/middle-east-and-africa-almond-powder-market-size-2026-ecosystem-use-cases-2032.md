@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-almond-powder-market-size-2026-2wfuf/

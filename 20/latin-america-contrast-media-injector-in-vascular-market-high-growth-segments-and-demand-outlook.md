@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-contrast-media-injector-vascular-market-high-growth-orxzf/

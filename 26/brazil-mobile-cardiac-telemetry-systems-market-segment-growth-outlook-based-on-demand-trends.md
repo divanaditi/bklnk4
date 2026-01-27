@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mobile-cardiac-telemetry-systems-market-segment-3fr8c/

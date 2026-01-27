@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bisphenol-abpa-free-thermal-paper-d1zif/

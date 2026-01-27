@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oil-pipe-market-technology-roadmap-aq57f/

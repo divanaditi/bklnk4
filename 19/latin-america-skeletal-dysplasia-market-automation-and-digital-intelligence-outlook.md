@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-skeletal-dysplasia-market-automation-p7x2e/

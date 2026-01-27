@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vertical-market-size-ecosystem-fca9f/

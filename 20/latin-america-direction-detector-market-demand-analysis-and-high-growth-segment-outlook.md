@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-direction-detector-market-demand-vv26f/

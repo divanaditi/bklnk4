@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rough-terrain-lift-trucks-market-bgwke/

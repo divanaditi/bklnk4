@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-portable-blenders-market-demand-qs8df/

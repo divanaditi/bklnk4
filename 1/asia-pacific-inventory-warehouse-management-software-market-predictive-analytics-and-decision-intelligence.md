@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-inventory-warehouse-management-software-4y3zf/

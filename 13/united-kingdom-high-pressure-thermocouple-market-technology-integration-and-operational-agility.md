@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-high-pressure-thermocouple-market-fgnpf/

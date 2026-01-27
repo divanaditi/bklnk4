@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sodium-palmitoyl-sarcosinate-market-segment-pktsf/

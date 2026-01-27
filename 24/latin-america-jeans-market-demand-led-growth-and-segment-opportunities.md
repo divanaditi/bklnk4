@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-jeans-market-demand-led-growth-segment-opportunities-cdpyc/

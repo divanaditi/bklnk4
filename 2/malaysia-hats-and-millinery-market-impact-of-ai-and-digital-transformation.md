@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hats-millinery-market-impact-ai-digital-transformation-rn8ic/

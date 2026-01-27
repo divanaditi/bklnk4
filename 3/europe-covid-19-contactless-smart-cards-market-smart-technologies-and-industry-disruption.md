@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-covid-19-contactless-smart-cards-market-technologies-wzt0f/

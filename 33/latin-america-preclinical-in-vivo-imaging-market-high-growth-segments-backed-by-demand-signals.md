@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-preclinical-in-vivo-imaging-market-high-growth-l62ye/

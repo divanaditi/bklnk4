@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-fluorodiphenyl-ether-cas-124330-20-7-market-pbb4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heatsink-market-demand-dynamics-rr0if/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-media-planning-software-market-high-growth-ptbec/

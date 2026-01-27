@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-travel-planning-market-technology-advancements-yq5yf/

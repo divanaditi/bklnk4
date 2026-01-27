@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-toy-bag-market-automation-technologies-strategic-57ucf/

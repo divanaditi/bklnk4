@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-digital-maintenance-repair-operations-mro-solutions-kpnxf/

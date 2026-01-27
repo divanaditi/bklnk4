@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mechanical-arm-robot-market-technology-led-gd9lf/

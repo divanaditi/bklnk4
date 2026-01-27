@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-business-process-service-bpaas-w2q2f/

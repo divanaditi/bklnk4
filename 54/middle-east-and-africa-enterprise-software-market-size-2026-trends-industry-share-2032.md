@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-enterprise-software-market-size-efeof/

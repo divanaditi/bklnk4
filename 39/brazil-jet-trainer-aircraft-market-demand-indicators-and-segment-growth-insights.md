@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-jet-trainer-aircraft-market-demand-indicators-tqyof/

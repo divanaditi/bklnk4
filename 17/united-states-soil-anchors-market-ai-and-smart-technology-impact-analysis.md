@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-soil-anchors-market-ai-smart-technology-6ghic/

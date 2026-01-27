@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-magnetic-plate-market-demand-momentum-7uurf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gas-turbines-thermal-power-market-digital-xvmvf/

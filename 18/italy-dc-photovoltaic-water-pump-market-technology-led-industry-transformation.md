@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-dc-photovoltaic-water-pump-market-technology-led-xqvlf/

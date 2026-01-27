@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-carboxyphenyl-isothiocyanate-cas-2131-63-7-x6ijf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fetal-dopple-market-digital-capabilities-0pmmf/

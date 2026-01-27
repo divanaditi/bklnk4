@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vehicle-navigation-market-demand-trends-ry8ac/

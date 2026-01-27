@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-airport-deicer-market-advanced-analytics-automation-qgrhf/

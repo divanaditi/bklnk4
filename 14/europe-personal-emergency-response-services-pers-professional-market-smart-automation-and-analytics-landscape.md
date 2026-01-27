@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-personal-emergency-response-services-pers-professional-qrqjc/

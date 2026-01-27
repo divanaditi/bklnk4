@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-d-mannitol-extractional-market-machine-learning-zttef/

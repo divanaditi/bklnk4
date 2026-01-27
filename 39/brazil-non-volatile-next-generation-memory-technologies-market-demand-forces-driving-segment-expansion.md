@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-non-volatile-next-generation-memory-technologies-v6rlf/

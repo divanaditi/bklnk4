@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-crop-production-software-market-technology-led-kkvnf/

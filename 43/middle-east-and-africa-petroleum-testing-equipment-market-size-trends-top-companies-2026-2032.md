@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-petroleum-testing-equipment-market-size-9depf/

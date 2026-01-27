@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microwave-dryer-market-ai-automation-transforming-muzcc/

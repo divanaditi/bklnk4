@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hf-rfid-printer-market-high-growth-segments-n4hxf/

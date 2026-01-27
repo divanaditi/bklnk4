@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-single-band-wi-fi-chipset-market-demand-avkte/

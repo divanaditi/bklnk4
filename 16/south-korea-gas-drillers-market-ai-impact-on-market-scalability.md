@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gas-drillers-market-ai-impact-scalability-wamrf/

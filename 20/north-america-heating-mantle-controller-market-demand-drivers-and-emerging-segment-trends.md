@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heating-mantle-controller-market-g96hf/

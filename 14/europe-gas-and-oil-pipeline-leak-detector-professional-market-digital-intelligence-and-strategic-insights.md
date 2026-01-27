@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gas-oil-pipeline-leak-detector-professional-ladpc/

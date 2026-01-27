@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-fintech-lending-professional-market-ai-enabled-uaecf/

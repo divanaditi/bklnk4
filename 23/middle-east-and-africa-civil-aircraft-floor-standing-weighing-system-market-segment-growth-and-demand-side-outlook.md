@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-civil-aircraft-floor-standing-weighing-ly7pf/

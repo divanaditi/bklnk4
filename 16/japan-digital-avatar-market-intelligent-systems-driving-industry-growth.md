@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-digital-avatar-market-intelligent-systems-cdjqf/

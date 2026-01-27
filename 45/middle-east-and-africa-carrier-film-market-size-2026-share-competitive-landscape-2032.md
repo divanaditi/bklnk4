@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-carrier-film-market-size-2026-53jxc/

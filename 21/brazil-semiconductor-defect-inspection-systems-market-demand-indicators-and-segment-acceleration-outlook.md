@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-semiconductor-defect-inspection-systems-c4wqf/

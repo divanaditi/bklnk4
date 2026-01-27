@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-quick-drying-clothes-market-technology-led-8otbf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-security-entrance-lanes-market-segment-30fkf/

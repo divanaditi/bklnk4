@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-3-hole-punch-market-demand-3ebsc/

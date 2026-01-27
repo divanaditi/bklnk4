@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-blood-glucose-monitoring-bgm-market-9zf3c/

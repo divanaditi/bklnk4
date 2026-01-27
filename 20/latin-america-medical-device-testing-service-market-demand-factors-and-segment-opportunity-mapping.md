@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-device-testing-service-market-34t5f/

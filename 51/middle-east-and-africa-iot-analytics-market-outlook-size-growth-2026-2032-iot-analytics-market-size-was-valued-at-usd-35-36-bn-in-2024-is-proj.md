@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-iot-analytics-market-6a0hc/

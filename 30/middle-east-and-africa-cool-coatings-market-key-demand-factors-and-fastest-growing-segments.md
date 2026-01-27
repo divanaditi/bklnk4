@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cool-coatings-market-key-demand-5dicf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-intelligence-market-digital-transformation-4y1mf/

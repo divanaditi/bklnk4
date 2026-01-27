@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-formed-foil-market-technology-wo7df/

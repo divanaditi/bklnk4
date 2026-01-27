@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pvc-fitting-covers-jacketing-market-demand-s2iaf/

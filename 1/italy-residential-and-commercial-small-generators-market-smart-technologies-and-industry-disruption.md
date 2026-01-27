@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-residential-commercial-small-generators-market-smart-sxugf/

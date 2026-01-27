@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-betavoltaic-device-market-size-2mpye/

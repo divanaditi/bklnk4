@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-pharmaceutical-industry-software-market-segment-3s2yf/

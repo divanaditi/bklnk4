@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cash-advance-services-market-technology-trends-ljh1e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-portable-blood-oxygen-sensor-market-xqwnc/

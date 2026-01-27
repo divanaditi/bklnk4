@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-135-trifluoro-246-triiodobenzene-cas-84322-56-5-x2kkf/

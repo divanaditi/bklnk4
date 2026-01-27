@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-aircraft-collision-avoidance-systems-8wr7f/

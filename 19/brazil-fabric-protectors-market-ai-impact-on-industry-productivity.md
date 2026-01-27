@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-fabric-protectors-market-ai-impact-industry-dufbe/

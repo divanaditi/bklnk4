@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-mixer-truck-market-growth-drivers-segment-ku2ac/

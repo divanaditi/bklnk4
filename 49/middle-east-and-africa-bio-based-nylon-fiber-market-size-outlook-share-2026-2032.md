@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bio-based-nylon-fiber-market-size-outlook-j3aqf/

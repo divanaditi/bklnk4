@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-system-mobile-communication-market-advanced-technologies-bnanf/

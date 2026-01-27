@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-mini-fridge-market-automation-digital-mm5bf/

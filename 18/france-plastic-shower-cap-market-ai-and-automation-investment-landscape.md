@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-plastic-shower-cap-market-ai-automation-9uinf/

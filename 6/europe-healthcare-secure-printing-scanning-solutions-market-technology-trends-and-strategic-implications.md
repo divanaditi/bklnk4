@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-healthcare-secure-printing-scanning-solutions-hfnof/

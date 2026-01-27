@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gun-holsters-market-size-growth-pw8ff/

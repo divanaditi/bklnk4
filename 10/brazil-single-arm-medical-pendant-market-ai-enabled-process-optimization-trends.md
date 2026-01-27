@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-single-arm-medical-pendant-market-ai-enabled-4aikf/

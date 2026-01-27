@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-military-single-board-computer-sbc-market-automation-h3saf/

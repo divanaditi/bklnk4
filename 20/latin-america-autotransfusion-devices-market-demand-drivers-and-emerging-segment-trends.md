@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-autotransfusion-devices-market-demand-jhnpf/

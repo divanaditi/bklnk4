@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mobile-phone-infrared-thermal-imager-market-digital-clvof/

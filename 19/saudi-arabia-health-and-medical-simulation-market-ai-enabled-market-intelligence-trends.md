@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-health-medical-simulation-market-ai-enabled-cdwhe/

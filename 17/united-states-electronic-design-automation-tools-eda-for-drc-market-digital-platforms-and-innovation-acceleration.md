@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-electronic-design-automation-tools-eda-c716c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-succession-leadership-planning-software-c9ipc/

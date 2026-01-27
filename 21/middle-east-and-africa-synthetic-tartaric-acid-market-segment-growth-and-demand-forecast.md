@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-synthetic-tartaric-acid-market-lay6f/

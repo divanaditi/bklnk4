@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-explosion-proof-temperature-switches-pp65f/

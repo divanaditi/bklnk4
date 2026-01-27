@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-event-management-market-smart-automation-k2fyc/

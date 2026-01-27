@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-professional-service-automation-psa-software-market-ryntc/

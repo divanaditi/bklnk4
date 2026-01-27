@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-crm-life-sciences-market-intelligent-automation-e0hkf/

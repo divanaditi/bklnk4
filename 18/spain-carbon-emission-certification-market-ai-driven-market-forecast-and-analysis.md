@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-carbon-emission-certification-market-ai-driven-so9af/

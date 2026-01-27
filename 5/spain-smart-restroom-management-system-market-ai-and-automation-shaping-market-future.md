@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-smart-restroom-management-system-market-ai-automation-un78f/

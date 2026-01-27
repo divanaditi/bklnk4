@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-hosted-access-control-service-acaas-nfwnf/

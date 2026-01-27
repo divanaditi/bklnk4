@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dental-imaging-market-high-growth-segments-dbq1f/

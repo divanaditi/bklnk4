@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-receivers-market-demand-indicators-an1bf/

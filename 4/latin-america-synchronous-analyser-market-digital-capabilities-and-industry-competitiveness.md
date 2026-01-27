@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-synchronous-analyser-market-digital-u7baf/

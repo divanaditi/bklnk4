@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-wire-marking-labels-market-segment-growth-998sf/

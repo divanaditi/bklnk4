@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-point-to-multipoint-microwave-backhaul-wzu9c/

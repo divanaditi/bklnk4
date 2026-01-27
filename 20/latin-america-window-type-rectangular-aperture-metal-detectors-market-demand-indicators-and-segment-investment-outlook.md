@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-window-type-rectangular-aperture-jq08f/

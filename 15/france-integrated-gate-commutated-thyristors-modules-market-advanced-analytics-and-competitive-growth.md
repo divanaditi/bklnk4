@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-integrated-gate-commutated-thyristors-modules-market-cdnpf/

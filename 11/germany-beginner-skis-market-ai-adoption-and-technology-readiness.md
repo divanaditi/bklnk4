@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-beginner-skis-market-ai-adoption-technology-lx4wc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dimethyl-adipate-market-demand-drivers-lkyyc/

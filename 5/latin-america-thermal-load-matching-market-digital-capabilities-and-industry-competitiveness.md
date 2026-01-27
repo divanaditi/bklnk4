@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-load-matching-market-digital-rixgc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gold-metals-market-demand-trends-segment-d7dtf/

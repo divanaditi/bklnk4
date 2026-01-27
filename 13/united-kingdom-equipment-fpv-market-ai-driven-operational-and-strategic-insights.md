@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-equipment-fpv-market-ai-driven-operational-bfzjf/

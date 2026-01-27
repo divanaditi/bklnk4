@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dna-rna-isolation-purification-kit-market-technology-citse/

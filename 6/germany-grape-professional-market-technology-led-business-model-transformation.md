@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-grape-professional-market-technology-led-ufqkf/

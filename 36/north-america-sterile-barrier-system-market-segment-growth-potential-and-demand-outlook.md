@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-sterile-barrier-system-market-segment-at0kf/

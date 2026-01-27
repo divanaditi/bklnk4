@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-apple-essence-professional-market-technology-innovation-v1jtf/

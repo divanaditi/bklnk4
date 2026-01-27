@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-precision-spot-welder-market-predictive-eamoe/

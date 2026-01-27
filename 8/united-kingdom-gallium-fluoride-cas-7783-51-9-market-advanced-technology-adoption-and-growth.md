@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-gallium-fluoride-cas-7783-51-9-market-aczlf/

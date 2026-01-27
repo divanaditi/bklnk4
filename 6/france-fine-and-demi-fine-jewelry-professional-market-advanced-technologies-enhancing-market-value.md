@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fine-demi-fine-jewelry-professional-market-2w9qf/

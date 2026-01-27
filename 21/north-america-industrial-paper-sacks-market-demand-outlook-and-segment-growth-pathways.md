@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-paper-sacks-market-demand-outlook-l2xof/

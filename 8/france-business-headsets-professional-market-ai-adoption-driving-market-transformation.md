@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-business-headsets-professional-market-ai-adoption-ixvmf/

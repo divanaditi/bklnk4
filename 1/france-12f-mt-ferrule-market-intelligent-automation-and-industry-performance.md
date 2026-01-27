@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-12f-mt-ferrule-market-intelligent-automation-4ojef/

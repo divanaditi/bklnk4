@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-collar-tags-cow-market-sua3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-single-stage-tripod-jack-market-jr6pe/

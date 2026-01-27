@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-top-cutting-pliers-market-demand-evolution-segment-2x0pf/

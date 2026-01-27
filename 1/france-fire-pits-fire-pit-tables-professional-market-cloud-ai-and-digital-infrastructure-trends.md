@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-fire-pits-pit-tables-professional-market-cloud-q2puf/

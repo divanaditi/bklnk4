@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-infrastructure-monitoring-bfsi-market-advanced-wjztf/

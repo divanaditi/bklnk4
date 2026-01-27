@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-monocrystalline-n-type-silicon-wafer-ullnf/

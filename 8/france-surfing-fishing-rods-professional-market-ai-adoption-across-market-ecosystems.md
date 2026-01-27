@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-surfing-fishing-rods-professional-market-ai-adoption-dfoef/

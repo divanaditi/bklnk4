@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-dth-drill-market-ai-adoption-driving-transformation-m6ovf/

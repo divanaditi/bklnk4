@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-on-call-scheduling-software-market-mxjyc/

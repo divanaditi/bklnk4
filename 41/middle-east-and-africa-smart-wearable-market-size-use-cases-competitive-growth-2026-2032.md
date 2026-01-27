@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-wearable-market-size-use-cases-dhcuf/

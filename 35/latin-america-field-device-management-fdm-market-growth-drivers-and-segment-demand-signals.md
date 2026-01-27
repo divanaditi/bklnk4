@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-field-device-management-fdm-market-paxyf/

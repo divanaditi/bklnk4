@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-virtual-reality-cardboard-market-demand-dynamics-paelf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aeroponic-tower-market-size-2026-jduwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-high-precision-gear-reduction-device-hebjc/

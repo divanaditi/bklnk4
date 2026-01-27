@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-active-timing-controller-market-ai-data-fwfuf/

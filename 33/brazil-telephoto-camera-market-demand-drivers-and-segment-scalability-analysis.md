@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-telephoto-camera-market-demand-drivers-segment-stoyf/

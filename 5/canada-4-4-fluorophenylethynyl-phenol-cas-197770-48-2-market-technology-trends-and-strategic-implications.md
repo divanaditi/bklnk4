@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-4-fluorophenylethynylphenol-cas-197770-48-2-nl8zf/

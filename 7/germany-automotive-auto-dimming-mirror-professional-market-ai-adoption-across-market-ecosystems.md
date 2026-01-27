@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-auto-dimming-mirror-professional-avj3f/

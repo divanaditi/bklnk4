@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-e-commerce-fraud-detection-solutions-market-ptcwc/

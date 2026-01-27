@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-automated-polyp-detection-system-market-95jff/

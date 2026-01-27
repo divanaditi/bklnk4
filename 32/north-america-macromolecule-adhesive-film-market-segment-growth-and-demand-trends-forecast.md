@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-macromolecule-adhesive-film-market-segment-rhjff/

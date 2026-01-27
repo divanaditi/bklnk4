@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telematics-software-market-size-trends-4lftc/

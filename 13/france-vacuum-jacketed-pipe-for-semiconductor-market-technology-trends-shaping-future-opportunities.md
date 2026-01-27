@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-vacuum-jacketed-pipe-semiconductor-market-iiyvf/

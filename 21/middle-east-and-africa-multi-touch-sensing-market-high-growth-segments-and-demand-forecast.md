@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-multi-touch-sensing-market-88pkf/

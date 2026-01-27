@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-yoga-mat-market-demand-e7wjc/

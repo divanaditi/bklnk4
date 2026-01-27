@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-4-trifluoromethoxybenzoyl-chloride-cas-36823-88-8-kc1tc/

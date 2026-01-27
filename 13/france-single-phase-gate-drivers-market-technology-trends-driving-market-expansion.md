@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-single-phase-gate-drivers-market-technology-xxxnf/

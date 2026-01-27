@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-floating-wind-lidar-market-digital-transformation-zubqf/

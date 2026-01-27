@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-load-generation-forecasting-x70cf/

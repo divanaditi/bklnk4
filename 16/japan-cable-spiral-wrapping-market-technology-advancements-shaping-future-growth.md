@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cable-spiral-wrapping-market-technology-advancements-ifkvf/

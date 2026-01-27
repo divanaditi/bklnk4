@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-rice-husk-biochar-rhb-market-smart-technologies-dro7f/

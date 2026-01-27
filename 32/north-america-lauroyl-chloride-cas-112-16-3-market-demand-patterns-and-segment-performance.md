@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-lauroyl-chloride-cas-112-16-3-market-crqvf/

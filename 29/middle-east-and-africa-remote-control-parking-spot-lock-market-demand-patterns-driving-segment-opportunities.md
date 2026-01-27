@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-remote-control-parking-spot-lock-q3g6f/

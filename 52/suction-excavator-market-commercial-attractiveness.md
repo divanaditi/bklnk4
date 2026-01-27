@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/suction-excavator-market-commercial-attractiveness-8voaf/

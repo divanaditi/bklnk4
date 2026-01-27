@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-process-near-infrared-nir-equipment-market-3tjgf/

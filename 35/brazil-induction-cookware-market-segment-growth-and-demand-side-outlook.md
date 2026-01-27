@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-induction-cookware-market-segment-growth-demand-side-0pbbf/

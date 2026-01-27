@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-hotels-resorts-cruise-lines-professional-market-hpsnf/

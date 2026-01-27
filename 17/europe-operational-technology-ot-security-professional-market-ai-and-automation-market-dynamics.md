@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-operational-technology-ot-security-professional-fnpnf/

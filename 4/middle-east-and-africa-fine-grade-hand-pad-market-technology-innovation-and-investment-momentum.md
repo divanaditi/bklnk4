@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fine-grade-hand-pad-market-technology-w1vvf/

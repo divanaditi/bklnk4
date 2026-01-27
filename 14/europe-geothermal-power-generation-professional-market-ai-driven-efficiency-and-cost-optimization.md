@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-geothermal-power-generation-professional-market-ai-driven-bab0c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-thermal-inkjet-disc-printers-market-qra4f/

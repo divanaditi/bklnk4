@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-type-2-diabetes-medicines-market-technology-hctnf/

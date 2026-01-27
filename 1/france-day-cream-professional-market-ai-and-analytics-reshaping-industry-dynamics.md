@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-day-cream-professional-market-ai-analytics-uwc2f/

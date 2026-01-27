@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hinged-dual-flap-caps-market-demand-analysis-di5ec/

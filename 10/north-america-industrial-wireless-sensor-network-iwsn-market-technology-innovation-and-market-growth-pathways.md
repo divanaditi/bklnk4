@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-industrial-wireless-sensor-network-iwsn-sgx9f/

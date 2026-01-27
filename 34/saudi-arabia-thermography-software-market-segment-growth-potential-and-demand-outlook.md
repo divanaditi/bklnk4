@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-thermography-software-market-segment-diaof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-resting-electrocardiogram-market-demand-kzpnf/

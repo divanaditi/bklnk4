@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-fracturing-fleet-market-size-32a1f/

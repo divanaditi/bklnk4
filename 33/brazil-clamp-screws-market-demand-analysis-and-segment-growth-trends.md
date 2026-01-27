@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clamp-screws-market-demand-analysis-segment-4hfwe/

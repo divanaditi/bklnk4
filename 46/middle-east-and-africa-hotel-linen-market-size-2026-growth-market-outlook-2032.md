@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hotel-linen-market-size-2026-growth-hvlif/

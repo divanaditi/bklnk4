@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ship-winch-market-demand-drivers-segment-cllkc/

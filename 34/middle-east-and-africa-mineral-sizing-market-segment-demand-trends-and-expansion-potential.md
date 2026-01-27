@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mineral-sizing-market-segment-demand-djtlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-agricultural-wind-speed-sensor-market-ai-adoption-g8euf/

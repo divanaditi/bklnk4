@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-system-on-chip-semiconductor-tester-market-technology-f9gef/

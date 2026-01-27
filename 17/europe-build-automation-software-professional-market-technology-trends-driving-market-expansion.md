@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-build-automation-software-professional-market-iwy8f/

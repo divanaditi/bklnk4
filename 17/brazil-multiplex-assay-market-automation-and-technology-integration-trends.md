@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-multiplex-assay-market-automation-technology-0sljf/

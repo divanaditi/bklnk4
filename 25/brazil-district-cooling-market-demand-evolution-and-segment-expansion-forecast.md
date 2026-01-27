@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-district-cooling-market-demand-evolution-w3kgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-drum-drying-equipment-market-demand-trends-mhcxc/

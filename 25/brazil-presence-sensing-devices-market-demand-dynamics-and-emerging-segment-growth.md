@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-presence-sensing-devices-market-demand-n3kuf/

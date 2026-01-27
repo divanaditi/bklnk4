@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-laser-power-meter-market-demand-drivers-trhzf/

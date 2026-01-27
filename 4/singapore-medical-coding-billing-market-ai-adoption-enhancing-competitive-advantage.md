@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-medical-coding-billing-market-ai-adoption-ntctc/

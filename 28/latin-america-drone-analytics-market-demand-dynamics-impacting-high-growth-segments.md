@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-drone-analytics-market-demand-4txzc/

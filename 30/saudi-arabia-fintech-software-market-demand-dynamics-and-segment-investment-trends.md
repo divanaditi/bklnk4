@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-fintech-software-market-1edyf/

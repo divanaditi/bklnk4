@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-vinyl-decanoate-cas-4704-31-8-market-icrrf/

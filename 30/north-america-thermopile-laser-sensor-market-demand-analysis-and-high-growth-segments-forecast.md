@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-thermopile-laser-sensor-market-demand-analysis-xab2f/

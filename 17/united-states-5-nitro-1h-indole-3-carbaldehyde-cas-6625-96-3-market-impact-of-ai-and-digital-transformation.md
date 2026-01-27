@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-5-nitro-1h-indole-3-carbaldehyde-cas-6625-96-3-xovvc/

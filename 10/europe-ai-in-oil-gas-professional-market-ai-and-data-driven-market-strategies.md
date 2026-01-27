@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ai-oil-gas-professional-market-data-driven-strategies-x1vff/

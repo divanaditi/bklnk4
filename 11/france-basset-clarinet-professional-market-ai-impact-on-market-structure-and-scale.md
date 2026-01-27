@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-basset-clarinet-professional-market-ai-impact-structure-cx2ic/

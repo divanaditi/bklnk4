@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-n-heptanoic-acid-market-demand-5hb3f/

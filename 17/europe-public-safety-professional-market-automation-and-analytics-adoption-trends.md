@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-public-safety-professional-market-automation-zy5df/

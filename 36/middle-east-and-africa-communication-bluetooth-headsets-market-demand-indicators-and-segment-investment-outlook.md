@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-communication-bluetooth-headsets-7ce0e/

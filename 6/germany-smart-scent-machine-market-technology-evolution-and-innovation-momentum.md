@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-smart-scent-machine-market-technology-c6ktf/

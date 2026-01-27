@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-quote-to-cash-q2c-software-market-4bhtf/

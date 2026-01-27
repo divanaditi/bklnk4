@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-autonomous-aircraft-air-data-inertial-reference-zpydf/

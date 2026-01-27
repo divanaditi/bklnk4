@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tripod-jack-market-demand-dynamics-iuvuf/

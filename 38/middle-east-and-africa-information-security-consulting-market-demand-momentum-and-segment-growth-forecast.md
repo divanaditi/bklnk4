@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-information-security-consulting-8pqof/

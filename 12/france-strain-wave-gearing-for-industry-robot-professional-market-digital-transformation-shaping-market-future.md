@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-strain-wave-gearing-industry-robot-professional-mfzrc/

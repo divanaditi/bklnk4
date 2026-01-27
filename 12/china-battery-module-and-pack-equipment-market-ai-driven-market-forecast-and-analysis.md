@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-battery-module-pack-equipment-market-ai-driven-rsxjf/

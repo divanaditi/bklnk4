@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-wheels-heavy-trucks-market-role-ai-hm6jf/

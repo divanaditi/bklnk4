@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-sub-ghz-module-market-size-ygjtf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-galley-insert-equipments-market-digital-y7psf/

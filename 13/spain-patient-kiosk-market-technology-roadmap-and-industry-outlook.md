@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-patient-kiosk-market-technology-roadmap-industry-uxjtf/

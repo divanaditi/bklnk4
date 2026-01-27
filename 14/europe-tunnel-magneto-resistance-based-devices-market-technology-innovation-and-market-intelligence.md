@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-tunnel-magneto-resistance-based-devices-market-qc7ac/

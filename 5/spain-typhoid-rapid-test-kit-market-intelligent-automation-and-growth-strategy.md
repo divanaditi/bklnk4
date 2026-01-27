@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-typhoid-rapid-test-kit-market-intelligent-automation-rp28f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-ethyl-6-methylphenyl-isocyanate-cas-75746-71-3-vtbuc/

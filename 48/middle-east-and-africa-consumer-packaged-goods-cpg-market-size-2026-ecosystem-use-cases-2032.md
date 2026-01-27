@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-consumer-packaged-goods-cpg-market-c2cnf/

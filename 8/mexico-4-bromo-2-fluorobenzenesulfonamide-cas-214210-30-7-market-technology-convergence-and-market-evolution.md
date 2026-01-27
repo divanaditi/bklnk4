@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-4-bromo-2-fluorobenzenesulfonamide-cas-214210-30-7-jt7cf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-turbine-blade-polymer-coating-market-niubc/

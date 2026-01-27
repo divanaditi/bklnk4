@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-usb-30-flash-drive-market-segment-growth-jrpif/

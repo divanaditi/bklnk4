@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-jtag-emulator-market-automation-technologies-pxbjf/

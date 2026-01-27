@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-colonoscopy-market-demand-evolution-segment-pt40c/

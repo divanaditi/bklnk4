@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-pay-per-click-ppc-market-digital-innovation-2azoc/

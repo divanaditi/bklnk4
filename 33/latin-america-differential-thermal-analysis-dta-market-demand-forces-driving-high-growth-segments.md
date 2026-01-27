@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-differential-thermal-analysis-dta-fxwue/

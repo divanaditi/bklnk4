@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-multi-family-intercom-market-automation-technologies-bz47e/

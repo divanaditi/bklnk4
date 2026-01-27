@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-esim-smart-watch-market-size-ght9f/

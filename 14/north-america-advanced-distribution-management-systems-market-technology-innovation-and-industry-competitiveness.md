@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-advanced-distribution-management-vmf2f/

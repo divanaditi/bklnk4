@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-static-shielding-bags-market-demand-72l9f/

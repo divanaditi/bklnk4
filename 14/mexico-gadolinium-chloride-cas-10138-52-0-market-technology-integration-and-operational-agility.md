@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-gadolinium-chloride-cas-10138-52-0-market-technology-a8pec/

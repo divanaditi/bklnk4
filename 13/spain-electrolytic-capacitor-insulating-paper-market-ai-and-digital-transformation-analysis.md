@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-electrolytic-capacitor-insulating-paper-5eonf/

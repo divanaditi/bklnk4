@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-low-speed-electric-vehicle-ktx5f/

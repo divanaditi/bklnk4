@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-counters-shift-registers-market-automation-ne50e/

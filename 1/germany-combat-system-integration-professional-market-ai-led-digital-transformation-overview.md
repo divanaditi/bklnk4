@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-combat-system-integration-professional-market-piijf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-coffee-tea-drinks-professional-market-ai-adoption-z2txf/

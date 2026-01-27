@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-revenue-intelligence-platform-l3ssf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-positioning-services-market-segment-growth-y6bkf/

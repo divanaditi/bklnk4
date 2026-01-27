@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-d-digitoxose-cas-527-52-6-market-digital-capabilities-u9npf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ocean-thermoelectric-power-generation-system-foldf/

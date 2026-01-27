@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-seismic-simulators-market-demand-trends-high-growth-cfibf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-acoustic-partitions-market-high-growth-v8yde/

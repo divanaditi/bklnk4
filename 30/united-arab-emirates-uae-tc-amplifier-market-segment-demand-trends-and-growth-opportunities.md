@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-tc-amplifier-market-segment-demand-rmg6f/

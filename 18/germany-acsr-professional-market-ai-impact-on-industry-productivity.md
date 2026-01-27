@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-acsr-professional-market-ai-impact-industry-i51ff/

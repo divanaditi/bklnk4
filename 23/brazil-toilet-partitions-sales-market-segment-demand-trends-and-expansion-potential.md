@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-toilet-partitions-sales-market-segment-demand-e9xdf/

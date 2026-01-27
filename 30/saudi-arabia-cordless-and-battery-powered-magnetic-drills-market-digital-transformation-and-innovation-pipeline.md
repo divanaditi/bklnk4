@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cordless-battery-powered-magnetic-drills-apb5f/

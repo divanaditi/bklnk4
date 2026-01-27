@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-medical-linear-accelerators-market-ai-adoption-competitive-uwhdf/

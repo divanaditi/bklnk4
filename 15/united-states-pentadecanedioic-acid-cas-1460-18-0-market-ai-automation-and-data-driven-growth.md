@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-pentadecanedioic-acid-cas-1460-18-0-okqzf/

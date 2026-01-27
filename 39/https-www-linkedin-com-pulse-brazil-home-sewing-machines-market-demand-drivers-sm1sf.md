@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-home-sewing-machines-market-demand-drivers-sm1sf/

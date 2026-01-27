@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-hydroponic-growing-tent-market-role-ai-competitiveness-hm8rf/

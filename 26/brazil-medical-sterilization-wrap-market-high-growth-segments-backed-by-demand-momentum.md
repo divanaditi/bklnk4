@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-sterilization-wrap-market-high-growth-5pnac/

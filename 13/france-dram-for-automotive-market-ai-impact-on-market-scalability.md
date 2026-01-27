@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-dram-automotive-market-ai-impact-scalability-o6mwf/

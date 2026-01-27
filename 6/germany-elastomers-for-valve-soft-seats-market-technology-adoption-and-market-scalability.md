@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-elastomers-valve-soft-seats-market-technology-72jwf/

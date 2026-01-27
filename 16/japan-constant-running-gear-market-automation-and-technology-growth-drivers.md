@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-constant-running-gear-market-automation-technology-rhhhf/

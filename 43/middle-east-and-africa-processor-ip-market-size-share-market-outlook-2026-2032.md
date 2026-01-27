@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-processor-ip-market-size-share-outlook-ufnoc/

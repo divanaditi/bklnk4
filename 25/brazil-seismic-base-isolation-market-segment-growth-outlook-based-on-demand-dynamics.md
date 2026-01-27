@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-seismic-base-isolation-market-segment-growth-h3rwf/

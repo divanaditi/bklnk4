@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-5g-4g-lte-cellular-router-market-qowuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-red-base-rc-market-size-2026-growth-lzwlf/

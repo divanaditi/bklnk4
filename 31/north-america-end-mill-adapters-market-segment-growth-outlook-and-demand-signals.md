@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-end-mill-adapters-market-segment-growth-6wlff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-microcarrier-market-size-ecosystem-qeltf/

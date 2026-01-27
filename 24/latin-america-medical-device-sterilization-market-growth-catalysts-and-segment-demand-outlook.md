@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-device-sterilization-market-i3cxc/

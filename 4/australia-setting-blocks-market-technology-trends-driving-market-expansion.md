@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-setting-blocks-market-technology-trends-kq0xf/

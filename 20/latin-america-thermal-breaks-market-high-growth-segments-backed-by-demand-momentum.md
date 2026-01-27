@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-breaks-market-high-growth-segments-backed-cd0ff/

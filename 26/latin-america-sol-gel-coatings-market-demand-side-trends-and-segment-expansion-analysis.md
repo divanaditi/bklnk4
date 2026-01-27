@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sol-gel-coatings-market-demand-side-tg1dc/

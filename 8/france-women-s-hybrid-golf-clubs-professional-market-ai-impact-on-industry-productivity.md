@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-womens-hybrid-golf-clubs-professional-market-ai-xndwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-world-deg-market-ai-technology-landscape-wqjnf/

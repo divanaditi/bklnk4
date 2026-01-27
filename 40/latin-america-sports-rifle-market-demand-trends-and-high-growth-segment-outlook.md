@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sports-rifle-market-demand-trends-fnvaf/

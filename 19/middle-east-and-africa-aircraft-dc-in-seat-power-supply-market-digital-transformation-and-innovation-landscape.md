@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aircraft-dc-in-seat-power-supply-lgp1e/

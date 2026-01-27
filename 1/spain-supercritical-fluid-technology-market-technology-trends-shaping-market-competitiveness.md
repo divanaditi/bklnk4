@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-supercritical-fluid-technology-market-trends-shaping-9ww9f/

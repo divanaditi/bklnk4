@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-core-drill-rigs-market-demand-r4snf/

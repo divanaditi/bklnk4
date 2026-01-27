@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-mattress-professional-market-ai-driven-muk0f/

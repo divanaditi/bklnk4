@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-25-difluorobenzonitrile-cas-64248-64-2-fdgtc/

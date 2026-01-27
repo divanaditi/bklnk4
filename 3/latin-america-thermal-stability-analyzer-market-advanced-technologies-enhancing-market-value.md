@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-stability-analyzer-market-0ohtf/

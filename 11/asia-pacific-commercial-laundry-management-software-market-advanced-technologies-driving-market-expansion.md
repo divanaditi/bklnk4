@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-commercial-laundry-management-software-l6htf/

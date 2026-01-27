@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thin-film-resistor-material-market-17g6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-scooter-lift-carrier-market-size-nuhzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-magnet-assemblies-industry-market-segment-r1dnf/

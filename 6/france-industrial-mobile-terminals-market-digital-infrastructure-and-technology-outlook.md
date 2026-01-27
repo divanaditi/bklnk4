@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-industrial-mobile-terminals-market-digital-ybeof/

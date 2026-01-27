@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-distribution-system-gds-market-technology-adoption-fujdf/

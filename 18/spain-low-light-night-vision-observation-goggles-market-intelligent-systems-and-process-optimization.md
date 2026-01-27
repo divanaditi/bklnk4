@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-low-light-night-vision-observation-goggles-p3btf/

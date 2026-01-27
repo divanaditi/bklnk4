@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-one-way-valve-market-size-2026-share-dql2f/

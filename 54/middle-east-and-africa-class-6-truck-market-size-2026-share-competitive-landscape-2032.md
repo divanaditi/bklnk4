@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-class-6-truck-market-size-2026-knwpf/

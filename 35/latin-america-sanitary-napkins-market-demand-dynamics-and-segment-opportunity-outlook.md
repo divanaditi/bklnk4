@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sanitary-napkins-market-demand-dynamics-8hbvf/

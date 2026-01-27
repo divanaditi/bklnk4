@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-shrink-wrap-machine-market-size-lednc/

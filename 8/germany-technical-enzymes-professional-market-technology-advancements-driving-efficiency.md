@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-technical-enzymes-professional-market-5iapf/

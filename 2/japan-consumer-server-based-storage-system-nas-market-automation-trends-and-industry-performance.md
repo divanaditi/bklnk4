@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-consumer-server-based-storage-system-nas-market-yko3c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-26-bistrifluoromethylpyridine-cas-fjw8c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-insulated-gate-bipolar-transistors-igbts-h6omf/

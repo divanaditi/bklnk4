@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hospitality-front-desk-management-software-pstpf/

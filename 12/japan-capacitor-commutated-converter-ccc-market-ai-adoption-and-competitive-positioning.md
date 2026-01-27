@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-capacitor-commutated-converter-ccc-market-ai-tevzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hazardous-drugs-closed-system-transfer-device-xia8f/

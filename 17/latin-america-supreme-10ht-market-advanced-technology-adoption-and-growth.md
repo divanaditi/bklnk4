@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-supreme-10ht-market-advanced-p7j2f/

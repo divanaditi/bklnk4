@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-horse-blanket-market-ai-automation-industry-1xuwf/

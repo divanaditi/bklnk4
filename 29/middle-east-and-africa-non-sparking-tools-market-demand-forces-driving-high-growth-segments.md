@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-non-sparking-tools-market-demand-b5iaf/

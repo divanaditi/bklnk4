@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-electrostatic-fogger-market-digital-innovation-eblbf/

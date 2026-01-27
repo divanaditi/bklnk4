@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-solar-thermal-panels-market-demand-outlook-7czce/

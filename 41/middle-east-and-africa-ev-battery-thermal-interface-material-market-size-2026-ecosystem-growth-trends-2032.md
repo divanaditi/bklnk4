@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ev-battery-thermal-interface-material-yl9mf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-food-waste-disposer-market-smart-y2gac/

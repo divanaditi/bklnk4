@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telecom-cloud-billing-market-size-2026-r8mbf/

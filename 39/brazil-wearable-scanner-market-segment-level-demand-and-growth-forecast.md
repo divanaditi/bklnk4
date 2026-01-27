@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wearable-scanner-market-segment-level-demand-growth-fx8zf/

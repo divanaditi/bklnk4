@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-intelligent-cloud-service-market-2vple/

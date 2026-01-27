@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-broadband-hotspot-equipment-market-demand-l11zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-voip-equipments-market-technology-adoption-n59zf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-toy-model-market-demand-momentum-db5me/

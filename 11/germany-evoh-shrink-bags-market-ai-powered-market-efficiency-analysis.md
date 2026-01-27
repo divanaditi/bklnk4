@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-evoh-shrink-bags-market-ai-powered-efficiency-rajnc/

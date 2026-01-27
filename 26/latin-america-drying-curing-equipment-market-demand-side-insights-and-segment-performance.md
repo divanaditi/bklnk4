@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-drying-curing-equipment-market-demand-side-7pbfc/

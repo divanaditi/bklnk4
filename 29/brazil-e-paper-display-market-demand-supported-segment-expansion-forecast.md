@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-e-paper-display-market-demand-supported-segment-juxbf/

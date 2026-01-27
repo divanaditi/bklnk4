@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-anti-collision-barrel-market-intelligent-systems-6csnf/

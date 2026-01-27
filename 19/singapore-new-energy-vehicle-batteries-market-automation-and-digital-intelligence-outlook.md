@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-new-energy-vehicle-batteries-market-automation-oqxte/

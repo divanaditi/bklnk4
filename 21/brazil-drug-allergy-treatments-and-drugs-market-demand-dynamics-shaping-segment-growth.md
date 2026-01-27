@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-drug-allergy-treatments-drugs-market-demand-glxrf/

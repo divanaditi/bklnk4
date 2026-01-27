@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-multi-touch-technology-market-demand-trends-b9f4f/

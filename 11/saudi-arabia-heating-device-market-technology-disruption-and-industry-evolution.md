@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-heating-device-market-technology-disruption-vhk5c/

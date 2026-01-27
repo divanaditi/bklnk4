@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cooking-hood-market-demand-trends-kfxfc/

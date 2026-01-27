@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-multi-mode-receiver-market-size-x3j9f/

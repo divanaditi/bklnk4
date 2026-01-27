@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-twill-market-technology-adoption-enhancing-zynhf/

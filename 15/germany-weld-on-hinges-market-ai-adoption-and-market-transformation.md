@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-weld-hinges-market-ai-adoption-transformation-vx3mf/

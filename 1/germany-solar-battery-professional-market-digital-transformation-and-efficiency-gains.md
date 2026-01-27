@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-solar-battery-professional-market-digital-npwjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-plant-based-food-packaging-market-role-ai-competitiveness-02gdf/

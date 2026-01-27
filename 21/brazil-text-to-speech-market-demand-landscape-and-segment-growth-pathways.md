@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-text-to-speech-market-demand-landscape-zllvf/

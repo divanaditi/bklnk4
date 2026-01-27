@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pymetrozine-market-demand-trends-segment-i97gf/

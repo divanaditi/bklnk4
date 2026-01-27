@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-electric-tailgate-controller-market-technology-b2pnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gradevin-market-segment-demand-trends-growth-h2a5f/

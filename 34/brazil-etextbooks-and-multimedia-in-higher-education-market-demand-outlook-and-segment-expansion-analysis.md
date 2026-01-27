@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-etextbooks-multimedia-higher-education-market-demand-z4tjf/

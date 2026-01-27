@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-jewelry-pouches-market-segment-demand-trends-0xlef/

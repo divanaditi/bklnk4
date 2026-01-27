@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-personal-sound-amplification-product-0lntf/

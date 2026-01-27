@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-welded-pipes-market-demand-trends-high-growth-zayuf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ceramic-decal-market-demand-trends-strategic-kba2c/

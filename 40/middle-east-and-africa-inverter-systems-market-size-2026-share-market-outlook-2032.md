@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-inverter-systems-market-size-2026-syxff/

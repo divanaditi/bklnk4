@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-crushed-cotton-voile-printed-market-digital-lb5sf/

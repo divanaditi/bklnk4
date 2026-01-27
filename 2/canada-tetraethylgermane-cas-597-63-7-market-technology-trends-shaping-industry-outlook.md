@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-tetraethylgermane-cas-597-63-7-market-technology-bckrf/

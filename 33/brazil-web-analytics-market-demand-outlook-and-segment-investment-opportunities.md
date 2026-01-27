@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-web-analytics-market-demand-outlook-segment-j56ge/

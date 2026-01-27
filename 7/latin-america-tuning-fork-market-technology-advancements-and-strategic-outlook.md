@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tuning-fork-market-technology-advancements-ezhrf/

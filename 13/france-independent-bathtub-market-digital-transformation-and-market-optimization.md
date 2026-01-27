@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-independent-bathtub-market-digital-transformation-sxetf/

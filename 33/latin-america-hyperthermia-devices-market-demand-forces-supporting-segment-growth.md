@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hyperthermia-devices-market-demand-forces-4rbpe/

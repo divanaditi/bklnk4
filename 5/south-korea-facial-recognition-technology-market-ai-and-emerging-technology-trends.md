@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-facial-recognition-technology-market-yyd0f/

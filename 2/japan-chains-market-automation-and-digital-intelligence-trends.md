@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chains-market-automation-digital-intelligence-gw77c/

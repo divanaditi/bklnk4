@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-recruitment-process-outsourcing-rpo-professional-3xmtf/

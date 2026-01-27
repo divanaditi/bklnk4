@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gcc-mineral-insulated-cable-market-ai-technology-8lvzc/

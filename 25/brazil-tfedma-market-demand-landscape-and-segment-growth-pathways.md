@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-tfedma-market-demand-landscape-segment-growth-4mubf/

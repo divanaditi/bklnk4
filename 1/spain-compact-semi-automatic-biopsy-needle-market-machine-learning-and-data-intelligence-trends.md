@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-compact-semi-automatic-biopsy-needle-hc8if/

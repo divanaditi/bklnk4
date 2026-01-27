@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-sck-release-liner-market-segment-uzr9f/

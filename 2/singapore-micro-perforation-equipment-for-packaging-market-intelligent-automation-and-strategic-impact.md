@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-micro-perforation-equipment-packaging-market-nrsmc/

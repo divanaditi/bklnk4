@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-management-software-association-market-apnrf/

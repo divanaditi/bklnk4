@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-consumer-identity-access-management-iam-solutions-dhucf/

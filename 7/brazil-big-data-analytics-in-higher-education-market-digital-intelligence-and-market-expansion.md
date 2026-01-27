@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-big-data-analytics-higher-education-market-digital-ku33f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blind-spot-object-detection-system-market-demand-guibf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-embedded-database-system-market-t7ojf/

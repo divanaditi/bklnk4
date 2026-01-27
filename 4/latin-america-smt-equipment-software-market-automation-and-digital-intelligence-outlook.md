@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smt-equipment-software-market-automation-7a9jf/

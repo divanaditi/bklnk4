@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-video-endoscopes-market-demand-trends-high-growth-slejc/

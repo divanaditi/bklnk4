@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-cables-market-demand-trends-segment-dmume/

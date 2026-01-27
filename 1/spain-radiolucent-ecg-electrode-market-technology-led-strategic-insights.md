@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-radiolucent-ecg-electrode-market-technology-led-3v70f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-synthetic-aperture-radar-market-0dgpc/

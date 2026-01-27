@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automobile-fuel-tank-welding-machine-market-us7tf/

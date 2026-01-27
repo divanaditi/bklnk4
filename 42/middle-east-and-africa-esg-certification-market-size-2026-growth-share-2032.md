@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-esg-certification-market-size-9mygf/

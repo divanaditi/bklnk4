@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-platform-load-cell-market-growth-drivers-segment-level-eymyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-radioisotope-thermoelectric-generatorrtg-6lmbf/

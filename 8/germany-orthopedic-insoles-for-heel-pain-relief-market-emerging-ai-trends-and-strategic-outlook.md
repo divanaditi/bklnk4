@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-orthopedic-insoles-heel-pain-relief-market-qpegf/

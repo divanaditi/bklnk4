@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-car-rental-platform-market-demand-dynamics-yygwf/

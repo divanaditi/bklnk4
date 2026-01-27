@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-microplate-readers-market-qit4c/

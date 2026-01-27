@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gas-generator-sets-market-segment-demand-0xlif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-immunity-test-kit-market-ai-adoption-across-wm8nf/

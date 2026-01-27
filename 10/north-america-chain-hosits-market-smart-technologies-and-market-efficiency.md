@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-chain-hosits-market-smart-technologies-ffctf/

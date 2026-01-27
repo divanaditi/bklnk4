@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-real-estate-agency-brokerage-market-advanced-f2qzf/

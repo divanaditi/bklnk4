@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pediatric-thermometer-market-high-growth-segments-a0ocf/

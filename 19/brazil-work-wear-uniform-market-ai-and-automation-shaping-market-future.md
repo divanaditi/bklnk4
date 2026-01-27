@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-work-wear-uniform-market-ai-automation-xahme/

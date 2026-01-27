@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-clothing-store-inventory-software-6wcaf/

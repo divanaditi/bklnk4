@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-current-transducer-market-demand-evolution-cxcfe/

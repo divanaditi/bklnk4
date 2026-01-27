@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-acrylic-based-thermal-conductive-adhesives-b7ebf/

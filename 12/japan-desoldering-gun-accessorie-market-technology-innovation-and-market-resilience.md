@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-desoldering-gun-accessorie-market-technology-gsnlf/

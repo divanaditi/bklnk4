@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mining-chemical-market-technology-roadmap-ggkpf/

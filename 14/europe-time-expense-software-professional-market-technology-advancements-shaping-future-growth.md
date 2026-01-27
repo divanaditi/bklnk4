@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-time-expense-software-professional-market-n9bvc/

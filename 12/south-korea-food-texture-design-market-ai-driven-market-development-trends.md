@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-food-texture-design-market-ai-driven-development-yxzef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-predictive-maintenance-vibration-meters-6kbwf/

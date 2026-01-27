@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-countries-beef-jerky-market-role-nuuff/

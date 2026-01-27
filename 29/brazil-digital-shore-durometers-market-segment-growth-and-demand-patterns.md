@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-shore-durometers-market-segment-sbr2f/

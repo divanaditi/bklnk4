@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-malaysia-data-center-storage-market-im3vf/

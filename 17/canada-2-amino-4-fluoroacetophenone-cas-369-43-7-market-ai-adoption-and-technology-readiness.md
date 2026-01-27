@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-amino-4-fluoroacetophenone-cas-369-43-7-qhohc/

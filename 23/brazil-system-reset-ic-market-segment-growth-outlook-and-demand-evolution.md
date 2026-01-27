@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-system-reset-ic-market-segment-growth-outlook-gr5gf/

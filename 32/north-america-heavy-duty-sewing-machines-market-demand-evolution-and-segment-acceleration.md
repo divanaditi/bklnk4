@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-heavy-duty-sewing-machines-market-demand-evolution-dpwaf/

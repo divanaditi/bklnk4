@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-security-ladder-market-demand-indicators-mcs1f/

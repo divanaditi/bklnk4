@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-glue-cotton-market-intelligent-systems-iaqrf/

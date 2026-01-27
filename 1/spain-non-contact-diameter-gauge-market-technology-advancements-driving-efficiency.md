@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-non-contact-diameter-gauge-market-technology-twm5f/

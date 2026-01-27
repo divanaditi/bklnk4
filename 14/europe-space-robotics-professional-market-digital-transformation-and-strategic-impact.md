@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-space-robotics-professional-market-digital-transformation-34r3c/

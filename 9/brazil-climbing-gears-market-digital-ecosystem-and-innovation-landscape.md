@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-climbing-gears-market-digital-ecosystem-hfupf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-tire-mounted-sensor-market-intelligent-ki1ff/

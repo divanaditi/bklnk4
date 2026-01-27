@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-operating-room-integration-system-market-jrjif/

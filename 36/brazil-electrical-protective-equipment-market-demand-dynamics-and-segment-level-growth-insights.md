@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electrical-protective-equipment-market-demand-bvfae/

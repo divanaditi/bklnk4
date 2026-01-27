@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ultra-thin-digital-camera-market-skd9f/

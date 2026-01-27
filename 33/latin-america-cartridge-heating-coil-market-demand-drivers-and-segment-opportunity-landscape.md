@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cartridge-heating-coil-market-demand-436ae/

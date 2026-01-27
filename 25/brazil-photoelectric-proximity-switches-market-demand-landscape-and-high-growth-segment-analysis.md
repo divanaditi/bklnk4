@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-photoelectric-proximity-switches-market-b3waf/

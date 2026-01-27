@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-secure-sockets-layer-certification-market-vyg1f/

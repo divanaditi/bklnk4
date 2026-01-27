@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-human-capital-management-software-vfsmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-transparent-conductive-films-b5nrf/

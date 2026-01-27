@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zigbee-based-fire-detector-market-ai-adoption-across-didfe/

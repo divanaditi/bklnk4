@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-photoelectric-exposure-meters-market-smart-jih5f/

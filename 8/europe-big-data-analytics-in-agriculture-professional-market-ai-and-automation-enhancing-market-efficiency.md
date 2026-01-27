@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-big-data-analytics-agriculture-professional-uv68f/

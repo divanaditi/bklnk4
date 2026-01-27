@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-automatic-film-machine-market-ai-enabled-rv6ff/

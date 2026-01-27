@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-cloud-based-business-analytics-a3z1c/

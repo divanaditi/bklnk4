@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ellagic-acid-market-demand-outlook-segment-tllcc/

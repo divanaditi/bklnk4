@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-turquoise-ring-professional-market-technology-c9d1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-heatmap-session-recording-software-e7oxf/

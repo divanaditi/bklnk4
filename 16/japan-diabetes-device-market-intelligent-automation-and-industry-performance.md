@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-diabetes-device-market-intelligent-automation-gzfxf/

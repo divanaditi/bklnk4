@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-parking-meters-market-demand-drivers-segment-mz1bf/

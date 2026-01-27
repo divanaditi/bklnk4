@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-industrial-paint-booth-market-size-2026-pj4jf/

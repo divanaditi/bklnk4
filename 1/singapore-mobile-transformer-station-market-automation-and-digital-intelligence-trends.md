@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-transformer-station-market-automation-xxb5c/

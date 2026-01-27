@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-peelable-lid-stock-market-size-2026-eesdf/

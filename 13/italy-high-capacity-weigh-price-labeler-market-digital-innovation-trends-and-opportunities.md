@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-high-capacity-weigh-price-labeler-market-digital-nqx2f/

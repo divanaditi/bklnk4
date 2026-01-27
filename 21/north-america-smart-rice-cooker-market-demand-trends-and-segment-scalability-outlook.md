@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-rice-cooker-market-demand-lbwnf/

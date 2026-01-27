@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-semi-trailer-market-size-2026-f7uhf/

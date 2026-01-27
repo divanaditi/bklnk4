@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-athleisure-personal-care-market-demand-32w2f/

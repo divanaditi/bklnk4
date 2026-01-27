@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-production-scanner-market-automation-technologies-cuwlf/

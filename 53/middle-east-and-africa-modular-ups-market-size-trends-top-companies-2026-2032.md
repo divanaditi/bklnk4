@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-modular-ups-market-size-trends-top-6jw2e/

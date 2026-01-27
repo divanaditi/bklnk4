@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-tv-mainboard-professional-market-digital-transformation-sjcqc/

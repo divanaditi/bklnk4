@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-unmanned-aerial-vehicle-batteries-lbemf/

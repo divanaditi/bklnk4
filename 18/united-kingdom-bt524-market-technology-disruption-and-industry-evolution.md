@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-bt524-market-technology-disruption-99qbf/

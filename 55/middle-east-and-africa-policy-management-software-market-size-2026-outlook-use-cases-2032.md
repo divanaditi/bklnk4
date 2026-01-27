@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-policy-management-software-market-4aznf/

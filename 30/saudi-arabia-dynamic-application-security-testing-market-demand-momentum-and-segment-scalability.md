@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-dynamic-application-security-testing-o9bif/

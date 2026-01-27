@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-5g-services-market-size-z8lof/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-case-forming-machinery-market-demand-outlook-vrlff/

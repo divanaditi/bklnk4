@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-energy-generation-materials-market-ai-driven-ho9xe/

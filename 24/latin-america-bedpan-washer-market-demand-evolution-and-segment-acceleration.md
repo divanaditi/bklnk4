@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bedpan-washer-market-demand-evolution-8f4lc/

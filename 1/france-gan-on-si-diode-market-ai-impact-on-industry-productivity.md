@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-gan-on-si-diode-market-ai-impact-industry-pvp4f/

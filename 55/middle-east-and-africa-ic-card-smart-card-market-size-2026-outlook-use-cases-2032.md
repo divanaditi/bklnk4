@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ic-cardsmart-card-market-size-e2unf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-disposable-razor-blades-professional-market-q2hxf/

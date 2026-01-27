@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wheeled-loading-shovel-market-segment-l1nmf/

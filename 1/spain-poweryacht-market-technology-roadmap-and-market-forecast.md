@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-poweryacht-market-technology-roadmap-forecast-prwuf/

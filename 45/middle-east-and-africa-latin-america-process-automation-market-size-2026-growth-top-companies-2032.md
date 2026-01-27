@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-latin-america-process-47s0f/

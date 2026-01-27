@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-planners-market-demand-momentum-f1auf/

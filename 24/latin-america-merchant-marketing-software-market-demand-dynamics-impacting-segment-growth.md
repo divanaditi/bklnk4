@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-merchant-marketing-software-market-j78hc/

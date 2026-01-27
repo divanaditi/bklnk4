@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heat-detectors-market-demand-side-trends-96ikf/

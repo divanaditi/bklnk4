@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-45-diiodo-2-methyl-1h-imidazole-cas-73746-44-8-edzaf/

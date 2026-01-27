@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-camping-cooler-box-market-demand-trends-tidlf/

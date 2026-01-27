@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-air-fryers-deep-market-automation-digital-strategy-2mbuf/

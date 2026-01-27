@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-wearable-upper-limb-external-brace-6h6vf/

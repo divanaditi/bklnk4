@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-electromechanical-solid-state-market-segment-u9g6c/

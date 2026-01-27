@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-online-classified-ad-platform-market-growth-cwobe/

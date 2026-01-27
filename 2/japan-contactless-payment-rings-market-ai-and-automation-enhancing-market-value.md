@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-contactless-payment-rings-market-ai-automation-enhancing-ggcqc/

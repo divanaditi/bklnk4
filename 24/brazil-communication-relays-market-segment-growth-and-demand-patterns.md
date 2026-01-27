@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-communication-relays-market-segment-growth-5wixf/

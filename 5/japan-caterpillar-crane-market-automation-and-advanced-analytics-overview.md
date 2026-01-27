@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-caterpillar-crane-market-automation-advanced-analytics-rxvqf/

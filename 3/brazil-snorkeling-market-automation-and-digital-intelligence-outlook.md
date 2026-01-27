@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-snorkeling-market-automation-digital-intelligence-gfeqf/

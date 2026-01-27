@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-spending-smbs-market-segment-growth-hvnpf/

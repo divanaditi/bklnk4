@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fava-beans-market-demand-dynamics-impacting-xptcf/

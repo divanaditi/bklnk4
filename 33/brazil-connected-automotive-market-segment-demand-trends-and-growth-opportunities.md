@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-connected-automotive-market-segment-demand-tkkwe/

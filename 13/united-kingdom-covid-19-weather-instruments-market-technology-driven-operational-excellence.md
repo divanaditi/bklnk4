@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-covid-19-weather-instruments-market-technology-driven-gydrf/

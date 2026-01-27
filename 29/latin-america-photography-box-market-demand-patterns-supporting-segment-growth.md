@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-photography-box-market-demand-azdgc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-ecoa-esource-clinical-trials-mxsif/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nmr-spectroscopy-market-demand-forces-7u6sc/

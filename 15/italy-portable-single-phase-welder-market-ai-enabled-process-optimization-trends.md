@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-portable-single-phase-welder-market-ai-enabled-pwtjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-extruded-polyvinylidene-chloride-nrb9f/

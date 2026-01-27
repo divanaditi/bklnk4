@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-mini-portable-greenhouse-market-ai-driven-jfjcf/

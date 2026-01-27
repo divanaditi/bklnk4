@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-content-aware-data-loss-prevention-dlp-7r8vf/

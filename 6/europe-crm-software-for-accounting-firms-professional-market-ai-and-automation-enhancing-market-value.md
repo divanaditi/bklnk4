@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-crm-software-accounting-firms-professional-fzq9f/

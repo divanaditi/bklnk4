@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-speed-smt-equipment-market-demand-aenyf/

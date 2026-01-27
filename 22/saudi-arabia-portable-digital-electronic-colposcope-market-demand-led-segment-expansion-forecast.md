@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-portable-digital-electronic-colposcope-market-lvfyf/

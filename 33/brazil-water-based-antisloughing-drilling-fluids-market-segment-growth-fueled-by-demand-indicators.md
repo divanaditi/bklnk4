@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-based-antisloughing-drilling-fluids-5rrfe/

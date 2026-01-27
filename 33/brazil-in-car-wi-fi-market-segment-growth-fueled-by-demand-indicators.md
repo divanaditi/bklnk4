@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-in-car-wi-fi-market-segment-growth-fueled-jccge/

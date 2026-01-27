@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-voice-over-wi-fi-market-technology-trends-shaping-ywbsf/

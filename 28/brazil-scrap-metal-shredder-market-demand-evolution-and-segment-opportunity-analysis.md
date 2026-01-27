@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-scrap-metal-shredder-market-demand-evolution-hbu5c/

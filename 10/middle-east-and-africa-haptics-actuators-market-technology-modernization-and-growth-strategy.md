@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-haptics-actuators-market-technology-0suvf/

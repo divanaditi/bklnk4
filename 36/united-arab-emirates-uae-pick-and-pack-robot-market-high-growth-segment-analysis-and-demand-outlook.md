@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-pick-pack-robot-market-high-growth-p9jsf/

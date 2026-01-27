@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-interface-material-tim-market-zggze/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-shovel-market-i4okf/

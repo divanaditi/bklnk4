@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-real-time-location-systems-sports-8z5jf/

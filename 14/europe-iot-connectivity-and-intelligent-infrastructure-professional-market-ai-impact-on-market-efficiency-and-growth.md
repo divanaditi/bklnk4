@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-iot-connectivity-intelligent-infrastructure-h3znc/

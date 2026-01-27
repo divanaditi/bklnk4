@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-energy-storage-yachts-market-high-growth-segments-pjyhf/

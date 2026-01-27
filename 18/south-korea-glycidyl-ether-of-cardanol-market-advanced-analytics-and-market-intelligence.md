@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-glycidyl-ether-cardanol-market-advanced-irgcf/

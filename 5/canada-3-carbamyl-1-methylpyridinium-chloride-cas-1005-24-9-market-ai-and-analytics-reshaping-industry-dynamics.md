@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-carbamyl-1-methylpyridinium-chloride-26plf/

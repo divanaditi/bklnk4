@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-biometric-kiosk-market-technology-innovation-xtnhc/

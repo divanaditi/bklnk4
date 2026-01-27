@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telegraph-poles-market-size-2026-gntjc/

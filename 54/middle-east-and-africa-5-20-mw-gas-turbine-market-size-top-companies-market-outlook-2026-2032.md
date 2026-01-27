@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-520-mw-gas-turbine-market-size-top-opisf/

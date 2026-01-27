@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-camera-panoramic-head-market-digital-transformation-6h10f/

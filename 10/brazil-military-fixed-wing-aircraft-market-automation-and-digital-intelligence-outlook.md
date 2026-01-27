@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-military-fixed-wing-aircraft-market-automation-io1gf/

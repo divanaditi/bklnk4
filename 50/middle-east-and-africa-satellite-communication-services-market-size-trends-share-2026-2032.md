@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-satellite-communication-services-d7lrf/

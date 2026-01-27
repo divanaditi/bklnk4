@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-insulin-market-demand-drivers-segment-acceleration-2ezbc/

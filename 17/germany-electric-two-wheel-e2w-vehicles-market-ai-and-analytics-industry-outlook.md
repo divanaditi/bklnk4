@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electric-two-wheel-e2w-vehicles-market-ai-analytics-4y5sf/

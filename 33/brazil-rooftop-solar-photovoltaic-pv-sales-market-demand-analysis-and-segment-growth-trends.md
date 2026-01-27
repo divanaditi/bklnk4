@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rooftop-solar-photovoltaic-pv-sales-market-demand-uxene/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-working-capital-management-market-demand-dynamics-tyy5f/

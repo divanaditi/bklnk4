@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-sliding-door-systems-market-demand-x9nvf/

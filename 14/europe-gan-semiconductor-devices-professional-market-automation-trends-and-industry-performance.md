@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gan-semiconductor-devices-professional-market-k4rac/

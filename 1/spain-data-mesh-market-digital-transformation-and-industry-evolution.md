@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-data-mesh-market-digital-transformation-industry-pktuf/

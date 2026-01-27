@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-computer-graphicscg-market-digital-transformation-7msnf/

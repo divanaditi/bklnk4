@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-power-blue-laser-diode-market-ai-enabled-fhhif/

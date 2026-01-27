@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electric-walkie-stacker-market-demand-jnykf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-map-sensor-market-role-ai-obv3f/

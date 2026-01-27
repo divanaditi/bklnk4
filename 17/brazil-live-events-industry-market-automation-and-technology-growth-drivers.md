@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-live-events-industry-market-automation-pp5nf/

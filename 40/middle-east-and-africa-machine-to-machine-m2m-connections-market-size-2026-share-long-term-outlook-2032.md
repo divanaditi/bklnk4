@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-machine-to-machine-m2m-connections-2jepf/

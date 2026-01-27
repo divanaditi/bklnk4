@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-badminton-shoes-market-segment-growth-f26hf/

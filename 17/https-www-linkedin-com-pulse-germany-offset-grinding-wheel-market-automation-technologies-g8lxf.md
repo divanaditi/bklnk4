@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-offset-grinding-wheel-market-automation-technologies-g8lxf/

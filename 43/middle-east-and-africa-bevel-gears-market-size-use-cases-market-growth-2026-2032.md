@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bevel-gears-market-size-use-cases-j0p2f/

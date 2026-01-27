@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-chlorohexadecane-cas-4860-03-1-market-p8idc/

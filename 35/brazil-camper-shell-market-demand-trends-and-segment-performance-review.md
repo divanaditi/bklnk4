@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-camper-shell-market-demand-trends-segment-6u99f/

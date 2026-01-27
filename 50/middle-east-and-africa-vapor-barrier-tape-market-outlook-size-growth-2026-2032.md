@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-vapor-barrier-tape-market-outlook-kxhlf/

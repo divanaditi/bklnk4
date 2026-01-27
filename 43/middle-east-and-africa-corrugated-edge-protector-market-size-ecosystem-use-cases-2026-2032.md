@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-corrugated-edge-protector-0pa8f/

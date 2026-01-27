@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-patent-database-market-size-64hqc/

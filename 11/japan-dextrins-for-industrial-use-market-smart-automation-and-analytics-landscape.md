@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-dextrins-industrial-use-market-smart-automation-wothf/

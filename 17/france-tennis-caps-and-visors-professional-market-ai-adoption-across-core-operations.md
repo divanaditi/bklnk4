@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-tennis-caps-visors-professional-market-ai-adoption-nvipf/

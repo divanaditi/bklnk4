@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hybrid-power-systems-market-growth-drivers-segment-level-5otvf/

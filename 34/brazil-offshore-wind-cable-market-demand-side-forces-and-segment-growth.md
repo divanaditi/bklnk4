@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-offshore-wind-cable-market-demand-side-forces-xqszf/

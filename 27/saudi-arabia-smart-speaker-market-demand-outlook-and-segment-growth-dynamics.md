@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-smart-speaker-market-demand-outlook-aywgf/

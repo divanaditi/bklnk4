@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bonded-carbide-market-demand-supported-segment-sttcf/

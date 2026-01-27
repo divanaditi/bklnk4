@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-blind-side-assist-bsa-market-segment-orpsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-intelligent-interactive-system-market-technology-gzmcf/

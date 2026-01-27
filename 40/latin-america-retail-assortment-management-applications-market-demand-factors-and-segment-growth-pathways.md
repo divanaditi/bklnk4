@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-retail-assortment-management-applications-b0isf/

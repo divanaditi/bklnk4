@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-healthcare-education-market-ai-adoption-n9otf/

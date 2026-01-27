@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-non-trace-tape-market-ai-adoption-technology-pxmpe/

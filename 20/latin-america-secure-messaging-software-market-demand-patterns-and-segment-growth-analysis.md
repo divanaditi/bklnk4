@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-secure-messaging-software-market-demand-patterns-k1llf/

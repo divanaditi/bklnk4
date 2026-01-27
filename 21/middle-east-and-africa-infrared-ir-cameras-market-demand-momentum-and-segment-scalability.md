@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-infrared-ir-cameras-market-demand-ejy0f/

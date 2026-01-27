@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-military-embedded-systems-market-demand-12dxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-single-use-bioprocessing-system-9xwxc/

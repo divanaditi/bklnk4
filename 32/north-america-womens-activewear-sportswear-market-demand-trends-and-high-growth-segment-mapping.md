@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-activewear-sportswear-market-demand-n61af/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-box-cutter-professional-market-ai-driven-optimization-gpd3f/

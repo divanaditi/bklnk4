@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-forged-steel-gate-valves-market-demand-elf6f/

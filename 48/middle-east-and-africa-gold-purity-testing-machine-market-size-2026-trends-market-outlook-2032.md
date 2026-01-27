@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gold-purity-testing-machine-36djf/

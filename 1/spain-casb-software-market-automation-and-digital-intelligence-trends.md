@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-casb-software-market-automation-digital-intelligence-hwurf/

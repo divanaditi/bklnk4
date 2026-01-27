@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-alcoholic-beverage-professional-market-ws3ff/

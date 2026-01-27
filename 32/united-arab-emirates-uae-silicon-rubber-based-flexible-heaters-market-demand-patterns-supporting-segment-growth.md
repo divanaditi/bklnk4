@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-silicon-rubber-based-flexible-2rvaf/

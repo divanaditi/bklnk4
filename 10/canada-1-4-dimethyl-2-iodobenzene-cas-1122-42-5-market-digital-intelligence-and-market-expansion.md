@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-14-dimethyl-2-iodobenzene-cas-1122-42-5-market-ypcnf/

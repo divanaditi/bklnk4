@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-log-peeling-machine-market-demand-6wwhf/

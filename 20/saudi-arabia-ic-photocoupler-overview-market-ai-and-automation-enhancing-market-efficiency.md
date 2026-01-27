@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-ic-photocoupler-overview-market-ai-automation-fxnae/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-enriched-yeast-extract-market-size-5j2lc/

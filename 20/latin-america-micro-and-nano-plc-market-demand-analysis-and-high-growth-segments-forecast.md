@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-micro-nano-plc-market-demand-analysis-high-growth-frakf/

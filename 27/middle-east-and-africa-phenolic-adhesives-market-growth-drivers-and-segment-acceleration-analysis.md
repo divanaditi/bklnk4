@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-phenolic-adhesives-market-growth-drivers-oqnif/

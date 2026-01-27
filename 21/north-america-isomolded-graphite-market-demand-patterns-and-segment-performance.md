@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-isomolded-graphite-market-demand-patterns-nea9f/

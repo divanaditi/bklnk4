@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lithium-metal-polymer-lmp-battery-4esaf/

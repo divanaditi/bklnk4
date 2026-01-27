@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-qr-scan-payment-market-segment-growth-pjxzc/

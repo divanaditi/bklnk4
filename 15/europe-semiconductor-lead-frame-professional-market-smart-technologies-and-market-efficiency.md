@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-semiconductor-lead-frame-professional-market-dkcmf/

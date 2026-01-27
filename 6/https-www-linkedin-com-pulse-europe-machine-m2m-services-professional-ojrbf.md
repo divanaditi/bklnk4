@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-machine-m2m-services-professional-ojrbf/

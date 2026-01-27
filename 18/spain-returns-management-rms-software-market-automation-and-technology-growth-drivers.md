@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-returns-management-rms-software-market-y8rhf/

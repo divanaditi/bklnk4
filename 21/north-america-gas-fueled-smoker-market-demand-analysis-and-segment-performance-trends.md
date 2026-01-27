@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gas-fueled-smoker-market-demand-analysis-fnmef/

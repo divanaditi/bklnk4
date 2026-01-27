@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cellular-iot-gateways-market-high-growth-4xzaf/

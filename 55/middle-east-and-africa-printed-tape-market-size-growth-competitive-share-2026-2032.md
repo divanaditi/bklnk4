@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-printed-tape-market-size-growth-1xsyf/

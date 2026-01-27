@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-thermal-transfer-films-market-demand-716fc/

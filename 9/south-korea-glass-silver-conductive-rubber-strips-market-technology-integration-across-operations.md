@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-glass-silver-conductive-rubber-yb3gf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electronic-barometer-market-growth-sue7f/

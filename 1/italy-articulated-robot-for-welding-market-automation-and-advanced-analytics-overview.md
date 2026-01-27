@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-articulated-robot-welding-market-automation-5qlbf/

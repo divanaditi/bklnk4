@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-functional-protein-market-demand-evolution-y7cwf/

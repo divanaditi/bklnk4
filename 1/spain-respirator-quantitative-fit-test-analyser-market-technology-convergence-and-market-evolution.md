@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-respirator-quantitative-fit-test-analyser-market-2gj2f/

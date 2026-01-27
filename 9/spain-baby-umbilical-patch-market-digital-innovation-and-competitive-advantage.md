@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-baby-umbilical-patch-market-digital-innovation-j9puf/

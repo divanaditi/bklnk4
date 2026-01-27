@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-low-altitude-aerial-vehicles-market-role-automation-bxnxf/

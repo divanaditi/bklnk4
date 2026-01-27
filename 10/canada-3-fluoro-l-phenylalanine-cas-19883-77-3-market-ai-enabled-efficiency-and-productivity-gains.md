@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-fluoro-l-phenylalanine-cas-19883-77-3-market-jbzff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cutting-equipments-market-ai-enabled-intelligence-edtwc/

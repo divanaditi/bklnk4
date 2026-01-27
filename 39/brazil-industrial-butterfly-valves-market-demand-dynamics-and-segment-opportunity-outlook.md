@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-butterfly-valves-market-demand-dynamics-vqb4f/

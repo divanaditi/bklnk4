@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-broadcast-internet-video-software-market-demand-lrwqf/

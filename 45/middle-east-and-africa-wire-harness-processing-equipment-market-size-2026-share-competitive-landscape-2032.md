@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wire-harness-processing-equipment-xcokc/

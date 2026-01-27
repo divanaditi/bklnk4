@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-small-home-appliance-controller-market-ai-technology-ht6df/

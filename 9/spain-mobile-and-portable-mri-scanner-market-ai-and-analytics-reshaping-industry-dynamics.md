@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-mobile-portable-mri-scanner-market-ai-analytics-aawaf/

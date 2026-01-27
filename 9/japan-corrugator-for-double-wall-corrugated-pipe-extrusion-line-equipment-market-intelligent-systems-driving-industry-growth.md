@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-corrugator-double-wall-corrugated-pipe-extrusion-ueasf/

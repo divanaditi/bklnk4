@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-acupuncture-laser-market-demand-analysis-gb9rf/

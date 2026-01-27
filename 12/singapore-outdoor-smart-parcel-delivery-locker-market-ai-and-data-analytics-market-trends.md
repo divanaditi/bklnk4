@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-outdoor-smart-parcel-delivery-locker-market-vxhvf/

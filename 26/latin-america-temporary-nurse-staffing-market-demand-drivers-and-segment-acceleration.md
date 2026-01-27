@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-temporary-nurse-staffing-market-demand-1exlc/

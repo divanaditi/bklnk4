@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-iot-bfsi-market-intelligent-automation-cost-efficiency-bb0bc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-input-method-editor-ime-software-professional-market-l7cyc/

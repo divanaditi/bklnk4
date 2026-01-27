@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-night-vision-spotting-scope-market-automation-zd91f/

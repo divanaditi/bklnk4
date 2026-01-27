@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-shading-abs-material-market-intelligent-automation-7ddof/

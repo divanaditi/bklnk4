@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-foot-beauty-treatment-market-demand-a396f/

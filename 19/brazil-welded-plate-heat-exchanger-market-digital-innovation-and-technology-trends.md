@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-welded-plate-heat-exchanger-market-digital-innovation-4rjpe/

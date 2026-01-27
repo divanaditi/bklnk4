@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-laser-detection-sensor-market-ai-driven-azcyf/

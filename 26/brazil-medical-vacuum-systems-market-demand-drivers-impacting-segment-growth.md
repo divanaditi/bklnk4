@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-vacuum-systems-market-demand-drivers-jg4zc/

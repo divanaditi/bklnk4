@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-compact-capsule-slip-ring-market-ai-enabled-prnxf/

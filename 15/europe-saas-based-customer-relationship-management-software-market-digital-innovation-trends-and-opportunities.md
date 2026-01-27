@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-saas-based-customer-relationship-management-hon7f/

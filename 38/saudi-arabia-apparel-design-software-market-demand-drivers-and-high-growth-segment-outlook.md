@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-apparel-design-software-market-demand-kzfif/

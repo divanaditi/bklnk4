@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-convertible-fashion-market-digital-capabilities-sen8f/

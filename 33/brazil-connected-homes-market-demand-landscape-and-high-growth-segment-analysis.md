@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-connected-homes-market-demand-landscape-high-growth-u4rpe/

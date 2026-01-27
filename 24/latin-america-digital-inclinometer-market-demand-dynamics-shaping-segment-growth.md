@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-digital-inclinometer-market-demand-dynamics-ecz2c/

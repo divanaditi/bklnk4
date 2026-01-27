@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-manufacturing-intelligence-software-professional-pwppc/

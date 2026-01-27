@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solder-joint-inspection-market-demand-mfzze/

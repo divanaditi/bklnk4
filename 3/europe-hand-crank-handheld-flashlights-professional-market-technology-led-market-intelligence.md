@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-hand-crank-handheld-flashlights-professional-g91df/

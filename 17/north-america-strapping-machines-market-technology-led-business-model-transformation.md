@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-strapping-machines-market-technology-led-hzaic/

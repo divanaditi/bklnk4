@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-gcc-thermal-insulation-market-ai-integration-h4v0e/

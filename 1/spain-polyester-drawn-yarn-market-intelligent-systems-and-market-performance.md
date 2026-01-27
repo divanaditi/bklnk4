@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-polyester-drawn-yarn-market-intelligent-vjz7f/

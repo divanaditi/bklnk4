@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-regional-cropland-assessment-monitoring-service-jp8af/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-high-temperature-effusion-cell-htec-market-nvzhf/

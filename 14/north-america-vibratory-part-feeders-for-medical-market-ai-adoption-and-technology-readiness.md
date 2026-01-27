@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-vibratory-part-feeders-medical-market-9n0ef/

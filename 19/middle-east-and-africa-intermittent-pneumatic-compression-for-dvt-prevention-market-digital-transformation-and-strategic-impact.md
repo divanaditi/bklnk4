@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-intermittent-pneumatic-compression-ccw9e/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-outdoor-inspection-robot-market-advanced-technologies-gaqle/

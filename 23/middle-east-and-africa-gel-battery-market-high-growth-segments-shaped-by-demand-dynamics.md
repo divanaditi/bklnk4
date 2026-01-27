@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-gel-battery-market-high-growth-9s9pf/

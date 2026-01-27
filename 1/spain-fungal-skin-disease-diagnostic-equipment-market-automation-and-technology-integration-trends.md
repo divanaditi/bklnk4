@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-fungal-skin-disease-diagnostic-equipment-market-i5y3f/

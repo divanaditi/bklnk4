@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-system-package-sip-market-digital-ntgkf/

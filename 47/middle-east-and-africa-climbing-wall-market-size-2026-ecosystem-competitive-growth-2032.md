@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-climbing-wall-market-size-2026-oqs3f/

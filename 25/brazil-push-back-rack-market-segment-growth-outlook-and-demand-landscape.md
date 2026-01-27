@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-push-back-rack-market-segment-growth-outlook-ksxaf/

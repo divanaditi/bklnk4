@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cab-service-market-ai-adoption-trends-business-f3ukf/

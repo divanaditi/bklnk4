@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-22-dichloroethenyl-22-dimethylcyclopropanecarboxylic-8gsff/

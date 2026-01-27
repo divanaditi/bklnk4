@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-promotional-product-management-software-lm5af/

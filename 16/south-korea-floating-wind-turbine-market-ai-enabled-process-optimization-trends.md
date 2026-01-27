@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-floating-wind-turbine-market-ai-enabled-8menf/

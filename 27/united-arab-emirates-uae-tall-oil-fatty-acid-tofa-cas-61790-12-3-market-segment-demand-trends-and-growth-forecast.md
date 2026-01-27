@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-tall-oil-fatty-acid-tofa-cas-vjodf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-truck-refrigeration-market-demand-landscape-ex4nc/

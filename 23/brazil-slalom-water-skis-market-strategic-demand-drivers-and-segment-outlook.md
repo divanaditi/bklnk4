@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-slalom-water-skis-market-strategic-demand-ierff/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fixed-asset-management-software-market-demand-bmlme/

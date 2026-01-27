@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-data-security-posture-management-5v0ie/

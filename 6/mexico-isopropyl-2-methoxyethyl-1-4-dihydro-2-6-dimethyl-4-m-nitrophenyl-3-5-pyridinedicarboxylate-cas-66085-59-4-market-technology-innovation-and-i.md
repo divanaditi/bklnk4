@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-isopropyl-2-methoxyethyl-14-dihydro-26-dimethyl-4-m-nitrophenyl-35-pyridinedicarboxylate-whzbf/

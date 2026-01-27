@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-warehouse-management-systems-wms-professional-pgehf/

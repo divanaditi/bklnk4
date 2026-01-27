@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-adaptive-robot-gripper-market-demand-drivers-high-growth-ufwkf/

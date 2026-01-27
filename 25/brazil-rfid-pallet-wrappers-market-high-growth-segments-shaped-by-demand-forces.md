@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-rfid-pallet-wrappers-market-high-growth-spuqf/

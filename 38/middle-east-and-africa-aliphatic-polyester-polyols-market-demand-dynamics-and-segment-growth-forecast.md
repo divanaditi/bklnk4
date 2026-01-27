@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-aliphatic-polyester-polyols-mtc2c/

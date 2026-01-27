@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-aircraft-passenger-service-system-professional-kokrf/

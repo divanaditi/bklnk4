@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-evaporation-machine-market-demand-analysis-hx97f/

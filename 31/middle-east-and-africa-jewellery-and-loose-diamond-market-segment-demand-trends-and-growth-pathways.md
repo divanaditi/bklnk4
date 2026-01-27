@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-jewellery-loose-diamond-market-rd3vc/

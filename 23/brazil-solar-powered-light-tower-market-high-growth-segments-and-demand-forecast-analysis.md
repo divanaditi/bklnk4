@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solar-powered-light-tower-market-high-growth-4knff/

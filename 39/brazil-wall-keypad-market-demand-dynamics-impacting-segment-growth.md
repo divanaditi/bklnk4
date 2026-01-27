@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wall-keypad-market-demand-dynamics-impacting-gg1of/

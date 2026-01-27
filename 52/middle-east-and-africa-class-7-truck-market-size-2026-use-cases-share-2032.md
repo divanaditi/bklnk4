@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-class-7-truck-market-bu11c/

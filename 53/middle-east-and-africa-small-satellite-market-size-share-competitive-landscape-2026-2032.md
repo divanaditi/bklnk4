@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-small-satellite-market-size-share-uoc3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-radiology-ai-market-demand-momentum-7ronc/

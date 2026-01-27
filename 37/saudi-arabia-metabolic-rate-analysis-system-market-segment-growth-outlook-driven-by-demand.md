@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-metabolic-rate-analysis-system-market-etakc/

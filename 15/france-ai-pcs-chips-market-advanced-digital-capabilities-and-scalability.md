@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ai-pcs-chips-market-advanced-digital-capabilities-wdxof/

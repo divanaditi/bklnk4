@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-aircraft-external-fuel-tank-market-ai-adoption-rwvnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-instrument-offsite-reprocessing-service-zqfzf/

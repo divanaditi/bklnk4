@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-phenolic-resin-adhesive-market-intelligent-dnf2f/

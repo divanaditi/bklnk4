@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-industrial-iot-development-board-market-ai-driven-h2yce/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-dining-table-chairs-market-ai-adoption-enhancing-4rrkf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-charge-pal-market-ai-driven-insights-strategic-krsof/

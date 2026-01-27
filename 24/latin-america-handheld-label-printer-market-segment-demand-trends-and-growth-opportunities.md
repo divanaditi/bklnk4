@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-handheld-label-printer-market-segment-hrjic/

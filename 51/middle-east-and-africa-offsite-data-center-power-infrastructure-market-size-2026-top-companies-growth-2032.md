@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-offsite-data-center-f2roc/

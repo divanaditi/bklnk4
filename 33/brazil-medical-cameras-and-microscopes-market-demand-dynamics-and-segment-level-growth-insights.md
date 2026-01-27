@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-medical-cameras-microscopes-market-demand-fc5de/

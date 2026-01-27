@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-adult-inline-skates-market-ai-data-driven-strategies-xh5ic/

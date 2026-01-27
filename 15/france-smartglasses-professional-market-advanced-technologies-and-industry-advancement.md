@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smartglasses-professional-market-advanced-technologies-ckluf/

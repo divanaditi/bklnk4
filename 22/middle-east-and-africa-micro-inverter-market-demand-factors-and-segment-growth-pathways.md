@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-inverter-market-demand-factors-2mhlf/

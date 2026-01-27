@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-vacuum-metallizer-market-technology-adoption-t5lrf/

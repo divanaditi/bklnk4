@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-satellite-launch-space-insurance-market-jfdyf/

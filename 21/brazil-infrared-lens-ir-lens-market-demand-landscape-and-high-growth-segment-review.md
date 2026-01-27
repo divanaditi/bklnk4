@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-infrared-lens-ir-market-demand-landscape-iyqtf/

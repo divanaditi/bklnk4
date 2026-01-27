@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cross-laminated-timber-market-growth-drivers-mqdif/

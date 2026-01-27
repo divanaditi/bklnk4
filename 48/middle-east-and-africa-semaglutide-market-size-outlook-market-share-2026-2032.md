@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-semaglutide-market-size-0khcf/

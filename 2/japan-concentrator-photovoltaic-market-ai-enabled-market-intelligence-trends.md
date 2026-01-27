@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concentrator-photovoltaic-market-ai-enabled-yqmec/

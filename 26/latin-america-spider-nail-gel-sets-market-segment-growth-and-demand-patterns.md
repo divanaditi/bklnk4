@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-spider-nail-gel-sets-market-segment-m54bc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cosmetic-surgery-equipment-market-demand-lozic/

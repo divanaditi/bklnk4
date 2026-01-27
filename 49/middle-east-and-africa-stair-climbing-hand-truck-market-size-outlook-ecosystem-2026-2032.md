@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-stair-climbing-hand-truck-market-oigff/

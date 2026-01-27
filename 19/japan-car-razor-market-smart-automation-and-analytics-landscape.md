@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-car-razor-market-smart-automation-analytics-z8l0f/

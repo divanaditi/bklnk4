@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ptfe-thread-seal-tapes-market-demand-0rlgf/

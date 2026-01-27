@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-economic-sanctions-market-intelligent-systems-enhancing-yor4f/

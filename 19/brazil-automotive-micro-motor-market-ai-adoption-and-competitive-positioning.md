@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automotive-micro-motor-market-ai-adoption-competitive-novke/

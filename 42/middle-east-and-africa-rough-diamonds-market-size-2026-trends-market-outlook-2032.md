@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rough-diamonds-market-size-2026-drg2c/

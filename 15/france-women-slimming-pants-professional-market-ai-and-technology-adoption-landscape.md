@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-women-slimming-pants-professional-market-ai-texpf/

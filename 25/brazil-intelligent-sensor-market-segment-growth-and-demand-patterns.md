@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-intelligent-sensor-market-segment-growth-9zolf/

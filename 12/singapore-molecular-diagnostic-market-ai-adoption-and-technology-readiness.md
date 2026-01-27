@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-molecular-diagnostic-market-ai-adoption-tym7f/

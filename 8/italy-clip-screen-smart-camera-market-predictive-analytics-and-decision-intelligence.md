@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-clip-screen-smart-camera-market-predictive-i1zjf/

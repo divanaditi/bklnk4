@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radiation-imaging-system-market-demand-forces-p2o0f/

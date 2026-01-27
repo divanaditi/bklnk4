@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-seaside-casual-furniture-market-demand-forces-vemuf/

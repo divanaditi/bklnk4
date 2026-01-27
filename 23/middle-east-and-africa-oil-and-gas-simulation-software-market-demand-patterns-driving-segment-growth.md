@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-oil-gas-simulation-o0zyf/

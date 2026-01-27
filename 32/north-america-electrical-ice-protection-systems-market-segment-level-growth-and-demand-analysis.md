@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electrical-ice-protection-systems-market-4q5vf/

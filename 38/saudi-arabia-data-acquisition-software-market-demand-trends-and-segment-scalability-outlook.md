@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-data-acquisition-software-market-demand-trends-9mgfc/

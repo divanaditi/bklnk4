@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-zigbee-stb-market-demand-drivers-segment-scalability-vuj8f/

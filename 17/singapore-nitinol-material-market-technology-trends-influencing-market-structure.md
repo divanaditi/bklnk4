@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nitinol-material-market-technology-trends-lm2af/

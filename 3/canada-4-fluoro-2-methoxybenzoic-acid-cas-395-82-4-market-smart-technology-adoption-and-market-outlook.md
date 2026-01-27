@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-fluoro-2-methoxybenzoic-acid-ylzkf/

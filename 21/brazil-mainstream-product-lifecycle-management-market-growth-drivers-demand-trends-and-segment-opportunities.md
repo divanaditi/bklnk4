@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-mainstream-product-lifecycle-management-lqrcf/

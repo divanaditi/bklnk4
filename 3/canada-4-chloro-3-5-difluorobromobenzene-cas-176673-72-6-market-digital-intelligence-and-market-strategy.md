@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-chloro-35-difluorobromobenzene-cas-176673-72-6-ptk8f/

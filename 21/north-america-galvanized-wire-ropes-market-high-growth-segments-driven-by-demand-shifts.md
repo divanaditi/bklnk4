@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-galvanized-wire-ropes-market-high-growth-40jrf/

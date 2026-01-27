@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-diisopropylamine-hydrochloride-cas-819-79-4-jsxef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-clinical-trial-management-system-1r5df/

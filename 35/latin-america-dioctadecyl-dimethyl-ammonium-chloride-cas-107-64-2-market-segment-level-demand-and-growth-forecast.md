@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dioctadecyl-dimethyl-ammonium-chloride-xtg3f/

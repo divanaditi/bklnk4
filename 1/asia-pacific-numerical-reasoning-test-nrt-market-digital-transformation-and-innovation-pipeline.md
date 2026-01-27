@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-numerical-reasoning-test-nrt-market-digital-jjckc/

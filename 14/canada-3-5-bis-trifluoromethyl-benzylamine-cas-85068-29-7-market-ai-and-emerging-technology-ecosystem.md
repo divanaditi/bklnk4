@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-35-bistrifluoromethylbenzylamine-cas-85068-29-7-anzoc/

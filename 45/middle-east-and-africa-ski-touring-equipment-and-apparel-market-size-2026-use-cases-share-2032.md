@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ski-touring-equipment-apparel-2zw6c/

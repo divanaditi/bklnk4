@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-3-chloro-5-fluorobenzaldehyde-cas-90390-49-1-hc3xf/

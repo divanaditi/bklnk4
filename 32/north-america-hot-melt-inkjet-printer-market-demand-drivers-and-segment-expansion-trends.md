@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hot-melt-inkjet-printer-market-demand-drivers-dr5lf/

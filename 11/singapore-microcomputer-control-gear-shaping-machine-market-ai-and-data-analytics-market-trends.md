@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-microcomputer-control-gear-shaping-machine-hclvc/

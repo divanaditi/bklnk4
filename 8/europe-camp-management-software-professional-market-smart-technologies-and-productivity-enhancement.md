@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-camp-management-software-professional-market-smart-svhff/

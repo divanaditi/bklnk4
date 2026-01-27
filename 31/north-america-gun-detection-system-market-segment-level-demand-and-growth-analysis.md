@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-gun-detection-system-market-segment-level-vp3cf/

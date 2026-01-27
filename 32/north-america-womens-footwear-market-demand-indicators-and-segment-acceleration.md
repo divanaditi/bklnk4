@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-footwear-market-demand-indicators-segment-mo2lf/

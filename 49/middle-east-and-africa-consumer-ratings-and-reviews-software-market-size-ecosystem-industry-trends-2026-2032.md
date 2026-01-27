@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-consumer-ratings-reviews-software-ix4jf/

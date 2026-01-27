@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-refrigerated-display-cabinet-market-technology-wow5f/

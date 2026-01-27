@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-bulk-container-market-smart-analytics-competitive-positioning-727qf/

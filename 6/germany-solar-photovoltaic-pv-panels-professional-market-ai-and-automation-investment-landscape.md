@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-solar-photovoltaic-pv-panels-professional-orx2f/

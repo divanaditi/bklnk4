@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-seat-track-professional-market-ai-powered-nwp2f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-12-dichloroethane-cas-107-06-2-market-automation-mkinc/

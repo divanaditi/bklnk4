@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-rapid-plasmid-kit-market-intelligent-systems-enhancing-t2qwf/

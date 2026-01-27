@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-glucomannan-extracts-market-demand-strength-high-growth-2hmlf/

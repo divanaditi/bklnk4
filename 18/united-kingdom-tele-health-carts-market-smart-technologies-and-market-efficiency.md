@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-tele-health-carts-market-smart-technologies-squvf/

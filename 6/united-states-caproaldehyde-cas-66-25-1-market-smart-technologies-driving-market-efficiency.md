@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-caproaldehyde-cas-66-25-1-market-vimef/

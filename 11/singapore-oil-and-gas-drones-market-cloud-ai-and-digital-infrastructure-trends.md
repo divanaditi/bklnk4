@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-oil-gas-drones-market-cloud-ai-digital-rfgsc/

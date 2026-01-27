@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chelsea-bootie-market-demand-evolution-wdcec/

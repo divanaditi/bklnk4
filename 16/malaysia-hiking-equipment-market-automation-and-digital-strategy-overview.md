@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hiking-equipment-market-automation-ek7gf/

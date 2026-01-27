@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-seated-rowing-machine-market-demand-meobf/

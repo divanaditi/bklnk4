@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vehicle-emission-standards-impact-market-demand-odl9f/

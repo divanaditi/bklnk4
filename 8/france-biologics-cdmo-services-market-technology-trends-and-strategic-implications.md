@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-biologics-cdmo-services-market-technology-trends-strategic-nisff/

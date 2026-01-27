@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-load-monitoring-equipment-market-demand-landscape-yupqf/

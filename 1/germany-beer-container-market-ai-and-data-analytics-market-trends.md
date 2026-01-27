@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-beer-container-market-ai-data-analytics-li6bf/

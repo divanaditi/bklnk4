@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-open-radio-access-network-ran-dyunf/

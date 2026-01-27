@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ac-car-charging-stations-market-ai-impact-tj16f/

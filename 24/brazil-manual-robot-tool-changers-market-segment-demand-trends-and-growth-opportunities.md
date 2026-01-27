@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-manual-robot-tool-changers-market-segment-demand-trends-nebef/

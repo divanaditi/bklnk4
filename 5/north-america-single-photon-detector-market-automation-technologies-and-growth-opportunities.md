@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-single-photon-detector-market-t0klf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-turbine-blade-market-technology-8ur1f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vanilla-b2b-market-ai-impact-structure-pfnfe/

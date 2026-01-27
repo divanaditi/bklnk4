@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-biorepositories-market-ai-analytics-driving-operational-60kgc/

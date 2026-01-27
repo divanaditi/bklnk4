@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-3-pin-xlr-connector-market-ai-adoption-ipkzf/

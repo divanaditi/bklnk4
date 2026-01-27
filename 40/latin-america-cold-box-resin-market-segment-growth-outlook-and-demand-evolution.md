@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-cold-box-resin-market-segment-growth-vy3vf/

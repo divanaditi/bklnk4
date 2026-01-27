@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ehv-extra-high-voltage-qipcc/

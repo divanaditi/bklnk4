@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-gma-service-market-digital-capabilities-qahvf/

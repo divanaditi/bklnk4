@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-special-emulsion-eallpaper-base-film-cl7uf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lithium-polymer-batteries-market-demand-nxcpf/

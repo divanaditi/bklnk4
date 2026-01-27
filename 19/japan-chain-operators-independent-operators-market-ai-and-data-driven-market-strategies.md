@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-chain-operators-independent-market-ai-data-driven-ldtqf/

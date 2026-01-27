@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-gamepad-professional-market-digital-transformation-yaklf/

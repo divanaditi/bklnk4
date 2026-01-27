@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-stainless-insulated-bottle-market-digital-rgzff/

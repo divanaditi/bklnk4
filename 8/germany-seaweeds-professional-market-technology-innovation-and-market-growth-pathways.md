@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-seaweeds-professional-market-technology-innovation-7kjvf/

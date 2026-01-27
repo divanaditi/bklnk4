@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-outdoor-plants-market-demand-momentum-segment-zw0uc/

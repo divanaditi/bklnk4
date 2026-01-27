@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-semi-automatic-torch-market-ai-automation-yxpvf/

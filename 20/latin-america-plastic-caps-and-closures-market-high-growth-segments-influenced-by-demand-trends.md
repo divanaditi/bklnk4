@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-plastic-caps-closures-market-x1f6f/

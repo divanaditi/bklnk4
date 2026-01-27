@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-combine-harvester-threshers-market-automation-zs5ff/

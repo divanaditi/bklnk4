@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cpv-solar-market-segment-growth-8ol6f/

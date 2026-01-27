@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-coffee-alternate-market-ai-automation-dynamics-ni00f/

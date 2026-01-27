@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-atrial-valve-retractor-market-technology-vrgef/

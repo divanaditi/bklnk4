@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cnc-tool-cutter-grinding-machine-ulryf/

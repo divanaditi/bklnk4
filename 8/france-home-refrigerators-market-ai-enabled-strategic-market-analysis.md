@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-home-refrigerators-market-ai-enabled-strategic-b5ajf/

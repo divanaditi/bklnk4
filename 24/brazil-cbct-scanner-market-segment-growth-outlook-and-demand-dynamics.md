@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cbct-scanner-market-segment-growth-outlook-uqmmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-insuretech-professional-market-ai-driven-imfyf/

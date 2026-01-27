@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-hot-rolled-structural-o0tac/

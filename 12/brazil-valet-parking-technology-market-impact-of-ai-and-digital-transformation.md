@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-valet-parking-technology-market-impact-ai-jk7ac/

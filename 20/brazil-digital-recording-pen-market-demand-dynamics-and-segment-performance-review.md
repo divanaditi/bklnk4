@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-digital-recording-pen-market-demand-pgvff/

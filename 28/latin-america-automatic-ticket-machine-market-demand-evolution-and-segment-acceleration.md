@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-ticket-machine-market-4ce5c/

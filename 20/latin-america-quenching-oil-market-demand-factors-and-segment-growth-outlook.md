@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-quenching-oil-market-demand-factors-98zuf/

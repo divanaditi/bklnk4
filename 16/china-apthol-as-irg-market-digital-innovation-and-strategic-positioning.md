@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-apthol-as-irg-market-digital-innovation-janxf/

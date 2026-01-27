@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-nylon-66-market-demand-drivers-emerging-segment-evgef/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-event-management-service-professional-evrdf/

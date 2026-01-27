@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heavy-duty-lifting-rings-market-technology-oka8c/

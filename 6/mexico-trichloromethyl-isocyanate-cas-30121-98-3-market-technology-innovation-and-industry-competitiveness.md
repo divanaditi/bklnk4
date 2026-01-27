@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-trichloromethyl-isocyanate-cas-30121-98-3-hsh9f/

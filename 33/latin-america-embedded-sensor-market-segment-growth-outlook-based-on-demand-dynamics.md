@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-embedded-sensor-market-segment-growth-8bgse/

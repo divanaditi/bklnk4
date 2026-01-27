@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-emulsion-pvc-paste-market-size-trw5f/

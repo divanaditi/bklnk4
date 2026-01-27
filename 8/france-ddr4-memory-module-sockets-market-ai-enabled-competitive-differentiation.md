@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ddr4-memory-module-sockets-market-ai-enabled-g3etf/

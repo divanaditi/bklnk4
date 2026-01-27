@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-laboratory-dog-market-digital-transformation-value-2bdsf/

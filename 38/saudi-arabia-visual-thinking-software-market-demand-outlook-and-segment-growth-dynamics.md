@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-visual-thinking-software-market-demand-jzw6f/

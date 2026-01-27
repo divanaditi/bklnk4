@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gcc-nano-uav-market-digital-innovation-strategic-rzeqc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-inventory-tank-gauging-market-size-1swuf/

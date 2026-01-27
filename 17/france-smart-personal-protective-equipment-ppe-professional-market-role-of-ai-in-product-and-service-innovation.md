@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-personal-protective-equipment-ppe-utzzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-laminated-tube-closure-market-demand-trends-s5pcf/

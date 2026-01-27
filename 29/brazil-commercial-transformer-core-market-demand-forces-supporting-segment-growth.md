@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-commercial-transformer-core-market-demand-forces-d2ztf/

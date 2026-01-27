@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-56-difluoro-2-oxoindole-cas-71294-07-0-market-93wwf/

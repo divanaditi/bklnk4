@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-food-waste-management-market-segment-yn4lf/

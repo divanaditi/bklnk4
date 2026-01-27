@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-microforce-testers-market-segment-demand-trends-s71re/

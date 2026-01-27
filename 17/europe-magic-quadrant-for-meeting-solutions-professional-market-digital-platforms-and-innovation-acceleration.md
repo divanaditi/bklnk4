@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-magic-quadrant-meeting-solutions-professional-wyz6f/

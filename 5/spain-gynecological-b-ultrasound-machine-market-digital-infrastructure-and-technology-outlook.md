@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-gynecological-b-ultrasound-machine-market-qs07f/

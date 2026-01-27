@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-x-ray-online-thickness-gauge-market-technology-led-uaxff/

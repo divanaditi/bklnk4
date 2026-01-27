@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-ethylene-vinyl-acetate-eva-lvf8f/

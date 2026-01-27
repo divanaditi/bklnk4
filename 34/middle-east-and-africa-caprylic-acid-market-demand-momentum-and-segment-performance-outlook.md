@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-caprylic-acid-market-demand-md66f/

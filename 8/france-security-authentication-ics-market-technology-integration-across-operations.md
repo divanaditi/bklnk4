@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-security-authentication-ics-market-technology-wci4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-grid-d-equipment-market-digital-innovation-ms3ke/

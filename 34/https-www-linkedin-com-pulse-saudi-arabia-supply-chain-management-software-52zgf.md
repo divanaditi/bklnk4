@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-supply-chain-management-software-52zgf/

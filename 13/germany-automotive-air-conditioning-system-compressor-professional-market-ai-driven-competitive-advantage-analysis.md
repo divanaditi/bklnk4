@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-air-conditioning-system-compressor-1tsbf/

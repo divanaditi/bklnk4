@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-analytical-standards-market-demand-trends-y2chf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-wi-fi-programmable-thermostat-hrjtc/

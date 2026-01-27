@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-direct-drive-wind-power-converter-qqgmf/

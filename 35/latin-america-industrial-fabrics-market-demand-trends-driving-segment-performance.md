@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-fabrics-market-demand-trends-h2auf/

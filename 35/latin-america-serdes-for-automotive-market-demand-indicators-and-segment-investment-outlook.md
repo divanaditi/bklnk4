@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-serdes-automotive-market-demand-indicators-80tvf/

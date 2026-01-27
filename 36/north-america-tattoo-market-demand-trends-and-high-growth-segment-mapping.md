@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-tattoo-market-demand-trends-high-growth-v278f/

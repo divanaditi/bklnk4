@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-thermocouple-calibrators-market-growth-drivers-csnff/

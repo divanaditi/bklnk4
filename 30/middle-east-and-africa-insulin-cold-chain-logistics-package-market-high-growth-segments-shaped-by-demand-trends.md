@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-insulin-cold-chain-logistics-8jklf/

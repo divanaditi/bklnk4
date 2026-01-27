@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-media-monitoring-tools-market-segment-growth-00jlf/

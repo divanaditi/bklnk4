@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automatic-data-capture-adc-market-segment-demand-acdvf/

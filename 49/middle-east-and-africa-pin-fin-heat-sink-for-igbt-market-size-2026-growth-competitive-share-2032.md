@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-pin-fin-heat-sink-igbt-market-vifcf/

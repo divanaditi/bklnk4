@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-passive-infrared-sensors-microwave-switching-ubh5f/

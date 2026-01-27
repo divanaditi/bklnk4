@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-massagers-roller-market-ai-technology-landscape-umyvf/

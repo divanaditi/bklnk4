@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-political-campaign-software-market-segment-buyof/

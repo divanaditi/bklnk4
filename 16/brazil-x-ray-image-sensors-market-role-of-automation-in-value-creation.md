@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-x-ray-image-sensors-market-role-automation-dagdf/

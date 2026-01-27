@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hpl-boards-market-demand-indicators-segment-se27e/

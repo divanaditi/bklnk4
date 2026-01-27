@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-household-portable-espresso-maker-market-technology-8yr6f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-mechanical-eccentric-press-market-smart-technologies-9mfcf/

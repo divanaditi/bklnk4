@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-lan-card-market-demand-factors-segment-vqyrf/

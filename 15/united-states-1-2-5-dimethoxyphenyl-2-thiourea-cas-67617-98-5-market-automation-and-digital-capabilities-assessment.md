@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-1-25-dimethoxyphenyl-2-thiourea-cas-964qf/

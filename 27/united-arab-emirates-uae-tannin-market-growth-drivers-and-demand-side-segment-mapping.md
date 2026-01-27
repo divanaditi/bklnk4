@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-tannin-market-growth-drivers-demand-side-bxutf/

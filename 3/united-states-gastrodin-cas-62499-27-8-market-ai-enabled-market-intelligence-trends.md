@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-gastrodin-cas-62499-27-8-market-ai-enabled-dskpf/

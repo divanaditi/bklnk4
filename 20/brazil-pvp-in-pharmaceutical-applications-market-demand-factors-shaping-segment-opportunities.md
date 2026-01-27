@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pvp-pharmaceutical-applications-market-demand-fcllf/

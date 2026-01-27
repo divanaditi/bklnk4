@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-blanket-solution-warming-cabinet-market-segment-v7b1c/

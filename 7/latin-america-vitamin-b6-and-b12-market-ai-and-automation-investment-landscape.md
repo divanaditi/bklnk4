@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vitamin-b6-b12-market-ai-automation-investment-qgwlf/

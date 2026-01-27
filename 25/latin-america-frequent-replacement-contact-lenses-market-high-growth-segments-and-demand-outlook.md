@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-frequent-replacement-contact-lenses-xrrtc/

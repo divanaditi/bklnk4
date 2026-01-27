@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/china-beverage-vending-machine-market-ai-automation-etx4f/

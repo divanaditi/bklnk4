@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-measure-tool-market-technology-adoption-3f1wf/

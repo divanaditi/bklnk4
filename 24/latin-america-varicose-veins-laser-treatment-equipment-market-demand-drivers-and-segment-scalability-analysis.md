@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-varicose-veins-laser-treatment-equipment-6ls8c/

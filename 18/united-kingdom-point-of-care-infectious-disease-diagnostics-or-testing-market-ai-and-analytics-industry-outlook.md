@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-point-of-care-infectious-disease-diagnostics-wiqof/

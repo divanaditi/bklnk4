@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cpu-fan-speed-controller-market-technology-nqdxf/

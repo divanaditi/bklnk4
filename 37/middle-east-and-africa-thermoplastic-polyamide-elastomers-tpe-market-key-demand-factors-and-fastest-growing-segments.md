@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-thermoplastic-polyamide-elastomers-y1sme/

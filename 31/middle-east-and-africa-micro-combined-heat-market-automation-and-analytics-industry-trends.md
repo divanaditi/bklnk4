@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-combined-heat-market-automation-b3cmf/

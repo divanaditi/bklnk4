@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-speed-pci-express-data-acquisition-daq-cards-xffvf/

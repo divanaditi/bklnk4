@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-hadoop-as-a-servicehdaas-market-demand-aedcf/

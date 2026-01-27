@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-trifluormethoxyphenylboronic-acid-cas-a1ejc/

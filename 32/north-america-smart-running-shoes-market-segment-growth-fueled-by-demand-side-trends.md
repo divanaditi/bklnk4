@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-smart-running-shoes-market-segment-m4ggf/

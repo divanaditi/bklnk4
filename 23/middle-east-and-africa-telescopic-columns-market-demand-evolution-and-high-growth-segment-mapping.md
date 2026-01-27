@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-telescopic-columns-market-demand-evolution-1w49f/

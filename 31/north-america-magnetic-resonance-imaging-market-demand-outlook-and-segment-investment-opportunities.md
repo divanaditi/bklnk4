@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-magnetic-resonance-imaging-market-demand-outlook-8y8xf/

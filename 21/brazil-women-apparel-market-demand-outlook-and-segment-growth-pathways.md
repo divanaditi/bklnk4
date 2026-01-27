@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-women-apparel-market-demand-outlook-segment-vookf/

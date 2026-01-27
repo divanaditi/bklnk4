@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-gsm-gprs-module-market-high-growth-segments-gbcof/

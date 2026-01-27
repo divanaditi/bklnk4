@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-bale-net-wrap-market-high-growth-sxtvf/

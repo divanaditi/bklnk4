@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bbq-charcoal-market-demand-landscape-segment-rzbvf/

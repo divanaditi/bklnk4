@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-friction-laminated-materials-market-demand-5c98f/

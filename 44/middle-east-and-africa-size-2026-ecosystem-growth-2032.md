@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-size-2026-ecosystem-growth-2032-stratynn-group-gxtac/

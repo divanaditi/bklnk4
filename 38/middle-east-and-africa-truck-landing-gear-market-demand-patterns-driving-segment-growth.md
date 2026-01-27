@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-truck-landing-gear-market-demand-pj8af/

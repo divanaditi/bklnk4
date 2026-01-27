@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-cloud-computing-system-market-technology-d0dwf/

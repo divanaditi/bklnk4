@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-1-chlorododecane-cas-112-52-7-market-technology-xrbaf/

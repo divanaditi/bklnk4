@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-commercial-prefabricated-building-market-kcl4f/

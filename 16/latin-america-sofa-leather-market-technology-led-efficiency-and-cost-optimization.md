@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sofa-leather-market-technology-led-qlumf/

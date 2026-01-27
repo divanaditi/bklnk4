@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-medical-bag-sealing-closing-machine-y3rmf/

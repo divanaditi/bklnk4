@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-commercial-iam-software-market-ai-technology-landscape-ke9jf/

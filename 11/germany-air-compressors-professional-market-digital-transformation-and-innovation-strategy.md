@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-air-compressors-professional-market-5qkbc/

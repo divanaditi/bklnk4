@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-micro-denier-fiber-market-zfxvf/

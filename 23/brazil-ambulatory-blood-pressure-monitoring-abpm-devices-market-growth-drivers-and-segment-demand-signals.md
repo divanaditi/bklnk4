@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ambulatory-blood-pressure-monitoring-abpm-devices-es2lf/

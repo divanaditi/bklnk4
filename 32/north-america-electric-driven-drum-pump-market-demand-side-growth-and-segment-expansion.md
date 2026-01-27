@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-electric-driven-drum-pump-market-demand-side-2fh5f/

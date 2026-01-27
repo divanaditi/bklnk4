@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-accurate-infection-diagnosis-solution-market-g7dbf/

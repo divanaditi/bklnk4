@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-trifluoromethoxybromobenzene-cas-64115-88-4-qax7f/

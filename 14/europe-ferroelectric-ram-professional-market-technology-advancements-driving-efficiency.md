@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-ferroelectric-ram-professional-market-technology-71yec/

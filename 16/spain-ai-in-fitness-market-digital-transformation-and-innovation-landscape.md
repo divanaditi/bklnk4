@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-ai-fitness-market-digital-transformation-innovation-5rwef/

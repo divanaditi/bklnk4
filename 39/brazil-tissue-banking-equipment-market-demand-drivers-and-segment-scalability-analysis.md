@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-tissue-banking-equipment-market-demand-drivers-vl8ff/

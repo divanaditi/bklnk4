@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-explosion-proof-stacker-market-technology-bu9zf/

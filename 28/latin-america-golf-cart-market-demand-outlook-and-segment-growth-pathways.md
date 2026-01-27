@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-golf-cart-market-demand-outlook-xcumc/

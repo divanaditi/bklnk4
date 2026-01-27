@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-educational-pro-av-market-h1muf/

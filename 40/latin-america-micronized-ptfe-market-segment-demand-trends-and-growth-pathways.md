@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-micronized-ptfe-market-segment-demand-trends-lq2if/

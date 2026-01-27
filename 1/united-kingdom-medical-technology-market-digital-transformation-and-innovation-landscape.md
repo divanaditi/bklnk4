@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-medical-technology-market-digital-cyc7f/

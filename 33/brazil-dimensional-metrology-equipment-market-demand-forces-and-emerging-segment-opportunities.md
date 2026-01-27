@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dimensional-metrology-equipment-market-gkuwe/

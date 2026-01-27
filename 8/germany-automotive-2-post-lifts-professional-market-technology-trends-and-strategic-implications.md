@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-2-post-lifts-professional-market-technology-qdqwf/

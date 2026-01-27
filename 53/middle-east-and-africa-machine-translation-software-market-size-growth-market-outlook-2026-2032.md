@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-machine-translation-software-market-4f8zf/

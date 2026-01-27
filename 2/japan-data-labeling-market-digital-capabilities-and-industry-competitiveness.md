@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-data-labeling-market-digital-capabilities-jutrc/

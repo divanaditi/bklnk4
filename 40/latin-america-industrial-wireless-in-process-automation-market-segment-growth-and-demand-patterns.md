@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-wireless-process-automation-95iff/

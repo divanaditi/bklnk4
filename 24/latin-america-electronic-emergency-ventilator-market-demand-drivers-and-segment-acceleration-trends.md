@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electronic-emergency-ventilator-market-b7pxc/

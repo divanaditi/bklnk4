@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-braking-component-market-technology-dxr7f/

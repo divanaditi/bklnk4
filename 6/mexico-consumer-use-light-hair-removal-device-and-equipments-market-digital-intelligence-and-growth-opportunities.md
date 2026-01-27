@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-consumer-use-light-hair-removal-device-skqmf/

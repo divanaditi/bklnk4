@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-womens-rock-climbing-clothing-professional-3lstf/

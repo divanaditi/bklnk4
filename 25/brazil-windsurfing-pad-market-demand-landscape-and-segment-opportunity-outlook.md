@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-windsurfing-pad-market-demand-landscape-segment-exorf/

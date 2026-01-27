@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-insulating-varnish-market-segment-9zotf/

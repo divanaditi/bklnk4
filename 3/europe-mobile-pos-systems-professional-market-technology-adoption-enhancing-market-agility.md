@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mobile-pos-systems-professional-market-technology-hodkf/

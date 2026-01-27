@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-trade-promotion-management-optimization-ndmdc/

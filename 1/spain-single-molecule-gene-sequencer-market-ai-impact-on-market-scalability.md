@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-single-molecule-gene-sequencer-market-ai-impact-lkajf/

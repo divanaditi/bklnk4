@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-micro-power-relay-market-demand-side-insights-jpqpf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-ai-enabled-vision-solution-textile-market-pyanf/

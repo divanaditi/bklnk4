@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-heavy-duty-industrial-pallet-market-zlh8f/

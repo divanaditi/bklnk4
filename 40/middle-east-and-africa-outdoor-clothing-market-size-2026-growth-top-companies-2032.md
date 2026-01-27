@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-outdoor-clothing-market-d1flf/

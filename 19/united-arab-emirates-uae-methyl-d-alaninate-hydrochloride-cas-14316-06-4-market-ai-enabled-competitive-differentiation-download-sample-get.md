@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-methyl-d-alaninate-hydrochloride-cr24e/

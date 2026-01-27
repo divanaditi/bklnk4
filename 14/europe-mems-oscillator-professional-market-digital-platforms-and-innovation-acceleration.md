@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-mems-oscillator-professional-market-digital-platforms-ycdsc/

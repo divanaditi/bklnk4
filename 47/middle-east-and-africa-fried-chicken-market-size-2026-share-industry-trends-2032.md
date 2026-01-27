@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-fried-chicken-market-size-2026-share-4lwlf/

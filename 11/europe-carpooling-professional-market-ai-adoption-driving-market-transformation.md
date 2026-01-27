@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-carpooling-professional-market-ai-adoption-mmllc/

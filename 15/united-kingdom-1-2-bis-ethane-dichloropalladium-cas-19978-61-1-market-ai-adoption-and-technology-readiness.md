@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-1-2-bis-ethanedichloropalladium-cas-19978-61-1-an25f/

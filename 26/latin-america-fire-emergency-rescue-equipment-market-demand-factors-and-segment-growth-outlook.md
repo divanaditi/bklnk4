@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-fire-emergency-rescue-equipment-market-lt0nc/

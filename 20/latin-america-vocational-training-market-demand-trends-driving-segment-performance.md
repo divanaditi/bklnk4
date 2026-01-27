@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vocational-training-market-zgs3f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-closed-punch-press-market-intelligent-automation-05dlf/

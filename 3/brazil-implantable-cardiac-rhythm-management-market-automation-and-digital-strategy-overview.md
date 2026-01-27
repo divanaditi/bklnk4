@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-implantable-cardiac-rhythm-management-g2obf/

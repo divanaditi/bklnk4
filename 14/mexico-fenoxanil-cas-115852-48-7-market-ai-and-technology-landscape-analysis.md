@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-fenoxanil-cas-115852-48-7-market-ai-technology-yxbvc/

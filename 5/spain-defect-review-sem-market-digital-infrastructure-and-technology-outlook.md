@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-defect-review-sem-market-digital-infrastructure-jdraf/

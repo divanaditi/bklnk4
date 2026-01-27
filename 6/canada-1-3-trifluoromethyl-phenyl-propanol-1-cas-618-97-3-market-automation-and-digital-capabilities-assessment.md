@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-1-3-trifluoromethylphenylpropanol-1-cas-cu7lf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-electronic-paper-bus-stop-sign-market-digital-capabilities-meo7f/

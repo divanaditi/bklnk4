@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-lockstitch-sewing-machines-market-cd3ef/

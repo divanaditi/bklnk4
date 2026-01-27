@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-carbon-capture-utilization-storage-ccus-market-a5qtf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-light-powered-catalyst-market-size-8plhf/

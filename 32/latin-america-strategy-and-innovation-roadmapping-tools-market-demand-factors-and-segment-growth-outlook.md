@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-strategy-innovation-roadmapping-tools-p0pae/

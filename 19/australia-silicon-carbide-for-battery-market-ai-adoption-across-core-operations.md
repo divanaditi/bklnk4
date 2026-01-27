@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-silicon-carbide-battery-market-ai-adoption-evewe/

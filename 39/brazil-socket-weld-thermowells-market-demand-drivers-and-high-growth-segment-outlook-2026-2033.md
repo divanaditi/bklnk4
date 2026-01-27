@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-socket-weld-thermowells-market-demand-quevf/

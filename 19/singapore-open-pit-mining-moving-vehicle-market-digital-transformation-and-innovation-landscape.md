@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-open-pit-mining-moving-vehicle-market-digital-zv0qe/

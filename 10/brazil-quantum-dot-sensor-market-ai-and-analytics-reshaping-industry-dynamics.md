@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-quantum-dot-sensor-market-ai-analytics-reshaping-xoudf/

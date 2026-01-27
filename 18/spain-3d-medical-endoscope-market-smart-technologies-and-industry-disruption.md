@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-3d-medical-endoscope-market-smart-technologies-rq5sf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-bar-code-printer-market-technology-lwthe/

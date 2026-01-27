@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-factoring-professional-market-ai-enabled-vilyf/

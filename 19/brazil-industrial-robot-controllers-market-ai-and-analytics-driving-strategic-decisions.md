@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-robot-controllers-market-ai-tj65e/

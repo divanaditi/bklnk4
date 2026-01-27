@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-vat-green-1-cas-128-58-5-market-fw96f/

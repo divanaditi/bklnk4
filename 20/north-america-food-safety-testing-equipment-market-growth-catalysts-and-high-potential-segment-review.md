@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-food-safety-testing-equipment-market-g45yf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-piv-compliant-fingerprint-scanner-professional-x3hdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-artificial-intelligence-director-market-technology-led-6nhxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-power-electronic-devices-market-demand-ruzrc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-traditional-signage-market-technology-2exnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-tall-oil-fatty-acid-market-demand-dynamics-elvgf/

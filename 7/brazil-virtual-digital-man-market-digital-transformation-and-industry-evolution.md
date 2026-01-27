@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-virtual-digital-man-market-transformation-industry-hnhff/

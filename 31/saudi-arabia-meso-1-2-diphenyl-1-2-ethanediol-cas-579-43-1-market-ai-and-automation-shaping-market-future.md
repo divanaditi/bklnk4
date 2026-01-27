@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-meso-12-diphenyl-12-ethanediol-cas-579-43-1-vsxjf/

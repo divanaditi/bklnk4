@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-traction-motor-core-hybrid-electric-vehicles-czjxf/

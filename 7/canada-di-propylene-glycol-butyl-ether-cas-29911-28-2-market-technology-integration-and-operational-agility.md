@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-dipropylene-glycol-butyl-ether-cas-29911-28-2-ewxhf/

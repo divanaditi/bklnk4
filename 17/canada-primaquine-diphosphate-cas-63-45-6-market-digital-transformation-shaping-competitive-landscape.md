@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-primaquine-diphosphate-cas-63-45-6-zcrcc/

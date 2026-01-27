@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-wall-fans-market-segment-growth-potential-3j1zf/

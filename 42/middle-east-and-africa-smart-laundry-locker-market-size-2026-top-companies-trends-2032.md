@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-laundry-locker-market-size-2026-rqisf/

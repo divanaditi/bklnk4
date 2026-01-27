@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-variable-message-signs-cmt1c/

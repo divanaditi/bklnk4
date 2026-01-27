@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-cheque-voucher-scanners-market-ai-trends-yvxlf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-field-network-test-equipment-market-demand-hpswf/

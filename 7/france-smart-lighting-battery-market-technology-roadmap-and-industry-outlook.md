@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-smart-lighting-battery-market-technology-nlguf/

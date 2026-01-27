@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-energy-power-quality-meter-7lh6f/

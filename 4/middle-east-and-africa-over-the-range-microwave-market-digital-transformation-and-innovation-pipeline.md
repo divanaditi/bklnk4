@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-over-range-microwave-market-digital-transformation-i07zf/

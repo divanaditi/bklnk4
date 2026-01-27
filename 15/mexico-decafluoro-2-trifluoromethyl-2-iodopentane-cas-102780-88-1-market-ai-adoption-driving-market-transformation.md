@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-decafluoro-2-trifluoromethyl-2-iodopentane-tepxf/

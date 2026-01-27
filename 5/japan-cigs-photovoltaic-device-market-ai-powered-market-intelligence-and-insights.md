@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cigs-photovoltaic-device-market-ai-powered-3e2lf/

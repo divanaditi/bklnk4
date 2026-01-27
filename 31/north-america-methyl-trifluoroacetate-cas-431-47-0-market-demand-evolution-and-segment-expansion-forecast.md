@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-methyl-trifluoroacetate-cas-431-47-0-market-pjdlf/

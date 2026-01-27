@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-camellia-oleifera-fruit-harvesting-machine-srnwf/

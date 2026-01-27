@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-cloud-backup-recovery-software-market-cgq3f/

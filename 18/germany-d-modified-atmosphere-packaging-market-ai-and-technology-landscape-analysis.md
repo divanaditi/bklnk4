@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-d-modified-atmosphere-packaging-7macf/

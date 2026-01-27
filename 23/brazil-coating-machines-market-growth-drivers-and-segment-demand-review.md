@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-coating-machines-market-growth-drivers-segment-dpfmf/

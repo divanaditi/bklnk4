@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-amino-acids-market-size-growth-outlook-jzw9f/

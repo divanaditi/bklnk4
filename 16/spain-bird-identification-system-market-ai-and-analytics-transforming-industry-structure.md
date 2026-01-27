@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bird-identification-system-market-ai-analytics-ypshf/

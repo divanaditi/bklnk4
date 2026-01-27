@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-passport-scanners-market-high-growth-segments-nzuef/

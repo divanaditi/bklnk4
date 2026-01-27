@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-at-home-use-light-hair-removal-device-equipment-4jrkf/

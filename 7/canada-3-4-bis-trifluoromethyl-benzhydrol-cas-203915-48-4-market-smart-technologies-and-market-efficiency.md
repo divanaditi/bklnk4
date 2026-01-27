@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-34-bistrifluoromethylbenzhydrol-cas-203915-48-4-u56vf/

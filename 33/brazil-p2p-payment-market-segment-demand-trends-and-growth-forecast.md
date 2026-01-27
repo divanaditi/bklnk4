@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-p2p-payment-market-segment-demand-trends-2wd4e/

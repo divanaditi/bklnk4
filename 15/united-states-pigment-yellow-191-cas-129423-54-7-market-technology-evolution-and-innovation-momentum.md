@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-pigment-yellow-191-cas-129423-54-7-market-mtmvf/

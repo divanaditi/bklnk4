@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electric-suvs-market-demand-indicators-uqhcf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-rugged-portable-computer-market-smart-automation-istdf/

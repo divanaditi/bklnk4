@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-solid-state-pressure-switches-market-demand-yaftf/

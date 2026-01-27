@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-window-market-technology-trends-shaping-competitiveness-xy95e/

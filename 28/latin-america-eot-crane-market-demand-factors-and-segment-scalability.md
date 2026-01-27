@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-eot-crane-market-demand-factors-fh5lc/

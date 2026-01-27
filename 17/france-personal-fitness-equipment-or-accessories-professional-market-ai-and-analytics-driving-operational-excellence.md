@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-personal-fitness-equipment-accessories-professional-hwa3f/

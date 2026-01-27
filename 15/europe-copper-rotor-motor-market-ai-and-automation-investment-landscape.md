@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-copper-rotor-motor-market-ai-automation-ro3cf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-4-bromo-2-methylthiophene-cas-29421-92-9-market-gbuff/

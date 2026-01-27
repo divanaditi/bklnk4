@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-pineapple-sorting-machine-market-automation-digital-kecwf/

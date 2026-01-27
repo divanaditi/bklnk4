@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-desktop-cnc-machines-market-size-fac5f/

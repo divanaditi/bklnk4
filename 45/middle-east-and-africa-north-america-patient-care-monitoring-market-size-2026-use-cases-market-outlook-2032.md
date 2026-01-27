@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-north-america-patient-care-monitoring-xe3xf/

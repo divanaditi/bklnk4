@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-linear-non-contact-displacement-sensor-hebxf/

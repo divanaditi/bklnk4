@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-18-bisphenylthio-910-anthracenedione-cas-13676-91-0-elhxf/

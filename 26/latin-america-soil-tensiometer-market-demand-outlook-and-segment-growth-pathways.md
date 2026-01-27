@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-soil-tensiometer-market-demand-outlook-tinyc/

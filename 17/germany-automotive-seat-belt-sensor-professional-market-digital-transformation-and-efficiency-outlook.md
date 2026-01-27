@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-seat-belt-sensor-professional-market-0nbnf/

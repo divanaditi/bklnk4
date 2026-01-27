@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vector-control-frequency-inverters-market-fsmyf/

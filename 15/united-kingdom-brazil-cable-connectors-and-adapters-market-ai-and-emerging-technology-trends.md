@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-kingdom-brazil-cable-connectors-adapters-market-d1h2f/

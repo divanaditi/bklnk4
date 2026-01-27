@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hipot-tester-market-demand-outlook-ecr1f/

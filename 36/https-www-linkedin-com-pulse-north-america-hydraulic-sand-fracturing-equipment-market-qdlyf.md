@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hydraulic-sand-fracturing-equipment-market-qdlyf/

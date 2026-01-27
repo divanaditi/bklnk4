@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-esg-ratings-market-size-y7awf/

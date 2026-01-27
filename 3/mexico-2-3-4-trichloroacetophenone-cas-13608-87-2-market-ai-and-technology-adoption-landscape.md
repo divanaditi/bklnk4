@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-234-trichloroacetophenone-cas-13608-87-2-market-vu24f/

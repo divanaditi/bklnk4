@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-preforming-welding-piece-market-automation-fdnnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-idea-management-software-professional-jglvf/

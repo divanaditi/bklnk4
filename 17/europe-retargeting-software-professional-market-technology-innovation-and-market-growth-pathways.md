@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-retargeting-software-professional-market-jqgxf/

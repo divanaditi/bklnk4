@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-saas-application-testing-market-technology-driven-quvuf/

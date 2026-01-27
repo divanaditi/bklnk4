@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-sodium-glucoheptonate-cas-5vjzf/

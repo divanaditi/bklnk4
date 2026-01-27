@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-restaurant-point-sale-pos-systems-market-technology-o2tue/

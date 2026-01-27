@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-vegan-beauty-cosmetics-market-segment-b21jf/

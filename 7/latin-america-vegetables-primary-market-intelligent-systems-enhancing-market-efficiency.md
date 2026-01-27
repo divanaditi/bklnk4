@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vegetables-primary-market-intelligent-fmp3f/

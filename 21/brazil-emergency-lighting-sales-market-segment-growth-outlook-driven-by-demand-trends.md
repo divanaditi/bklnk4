@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-emergency-lighting-sales-market-segment-growth-qbllf/

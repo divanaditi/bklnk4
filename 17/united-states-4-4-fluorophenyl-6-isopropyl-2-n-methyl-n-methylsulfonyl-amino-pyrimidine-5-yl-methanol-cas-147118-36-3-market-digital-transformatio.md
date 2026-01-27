@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-4-4-fluorophenyl-6-isopropyl-2-n-methyl-n-methylsulfonylaminopyrimidine-5-yl-methanol-8fpjc/

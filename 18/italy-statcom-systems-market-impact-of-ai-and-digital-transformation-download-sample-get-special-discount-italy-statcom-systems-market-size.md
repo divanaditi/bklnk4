@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-statcom-systems-market-impact-ai-digital-transformation-vll8f/

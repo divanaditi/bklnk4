@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-synthetic-lethality-based-drugs-knitc/

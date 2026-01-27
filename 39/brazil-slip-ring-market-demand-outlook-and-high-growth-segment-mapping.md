@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-slip-ring-market-demand-outlook-high-growth-segment-rgmaf/

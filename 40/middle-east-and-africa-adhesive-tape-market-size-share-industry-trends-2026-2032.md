@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-adhesive-tape-market-size-share-industry-yqyzf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-fruit-vegetable-picking-robot-market-technology-led-fmlvf/

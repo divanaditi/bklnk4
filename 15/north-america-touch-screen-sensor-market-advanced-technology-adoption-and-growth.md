@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-touch-screen-sensor-market-advanced-technology-kyugf/

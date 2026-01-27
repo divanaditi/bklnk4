@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-electrical-toaster-ovens-market-x2gcf/

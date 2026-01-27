@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-open-ended-spanners-market-automation-technology-9bl0f/

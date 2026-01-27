@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-id-card-credit-printers-market-demand-outlook-shiwe/

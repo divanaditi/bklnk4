@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-blotting-systems-market-segment-growth-fueled-deyff/

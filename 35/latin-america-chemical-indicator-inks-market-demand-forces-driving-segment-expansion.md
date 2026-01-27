@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chemical-indicator-inks-market-demand-lx9mf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-millets-professional-market-smart-automation-czpwf/

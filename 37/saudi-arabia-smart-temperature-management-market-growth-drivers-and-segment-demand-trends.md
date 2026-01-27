@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-smart-temperature-management-market-growth-x7ycc/

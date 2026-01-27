@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-general-liability-insurance-market-ui1bf/

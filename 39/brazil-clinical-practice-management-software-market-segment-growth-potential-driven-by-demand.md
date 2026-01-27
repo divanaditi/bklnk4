@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-clinical-practice-management-software-market-kmecf/

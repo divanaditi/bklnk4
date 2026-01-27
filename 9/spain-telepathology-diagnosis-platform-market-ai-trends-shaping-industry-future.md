@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-telepathology-diagnosis-platform-market-ai-trends-5i98f/

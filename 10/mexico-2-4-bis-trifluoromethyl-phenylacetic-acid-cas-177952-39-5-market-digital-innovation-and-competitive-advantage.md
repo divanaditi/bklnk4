@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-24-bistrifluoromethylphenylacetic-acid-cas-cwwrf/

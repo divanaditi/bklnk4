@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-covered-wire-cable-welding-machine-market-ai-32zff/

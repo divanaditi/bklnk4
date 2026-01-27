@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-toast-machine-market-high-growth-segments-xhiuf/

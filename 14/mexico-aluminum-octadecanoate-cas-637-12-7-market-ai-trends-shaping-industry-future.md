@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-aluminum-octadecanoate-cas-637-12-7-market-w2auc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pharmaceutical-outsourcing-market-demand-tc4ef/

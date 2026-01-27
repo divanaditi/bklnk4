@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-safety-shoes-market-size-2026-mzrkf/

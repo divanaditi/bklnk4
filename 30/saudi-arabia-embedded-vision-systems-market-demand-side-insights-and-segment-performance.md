@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-embedded-vision-systems-market-demand-side-cfqdf/

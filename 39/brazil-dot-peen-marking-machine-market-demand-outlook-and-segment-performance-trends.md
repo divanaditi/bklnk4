@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-dot-peen-marking-machine-market-demand-4n68f/

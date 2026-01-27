@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mineral-pesticide-market-ai-adoption-transformation-6q1sc/

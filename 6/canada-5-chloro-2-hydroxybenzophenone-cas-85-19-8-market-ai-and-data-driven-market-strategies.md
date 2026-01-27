@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-5-chloro-2-hydroxybenzophenone-cas-85-19-8-j44if/

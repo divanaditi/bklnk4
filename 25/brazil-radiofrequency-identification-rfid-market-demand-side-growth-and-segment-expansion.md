@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-radiofrequency-identification-rfid-market-demand-side-a1uwf/

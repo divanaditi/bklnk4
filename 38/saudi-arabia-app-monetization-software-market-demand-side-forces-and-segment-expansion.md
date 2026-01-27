@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-app-monetization-software-market-olbnc/

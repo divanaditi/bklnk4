@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-physical-access-control-system-market-technology-ccqnf/

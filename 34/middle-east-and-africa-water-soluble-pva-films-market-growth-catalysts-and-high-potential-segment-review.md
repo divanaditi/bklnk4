@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-water-soluble-pva-films-market-growth-c7dtf/

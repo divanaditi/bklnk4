@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-automated-clinical-chemistry-analyzers-aidqf/

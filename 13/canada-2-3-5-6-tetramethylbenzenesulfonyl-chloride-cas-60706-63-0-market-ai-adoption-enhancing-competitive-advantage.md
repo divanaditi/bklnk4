@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2356-tetramethylbenzenesulfonyl-chloride-cas-efoqc/

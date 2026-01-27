@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nc-tool-market-technology-adoption-enhancing-af0dc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-concrete-plasticizer-super-market-technology-adoption-xujjf/

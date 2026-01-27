@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-kidney-shaped-tables-market-segment-level-jc2pf/

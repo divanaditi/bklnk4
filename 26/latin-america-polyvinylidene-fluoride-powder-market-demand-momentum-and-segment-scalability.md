@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-polyvinylidene-fluoride-powder-market-fvotc/

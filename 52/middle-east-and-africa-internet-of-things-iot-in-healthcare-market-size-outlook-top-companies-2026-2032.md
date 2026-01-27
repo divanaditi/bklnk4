@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-internet-things-iot-healthcare-my01f/

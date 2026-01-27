@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-26-difluorophenyl-isocyanate-cas-65295-69-4-market-hllxf/

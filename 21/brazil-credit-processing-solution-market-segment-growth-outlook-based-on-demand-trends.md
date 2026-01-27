@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-credit-processing-solution-market-segment-growth-5ks5f/

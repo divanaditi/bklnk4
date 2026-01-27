@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cell-culture-market-high-growth-2rrsf/

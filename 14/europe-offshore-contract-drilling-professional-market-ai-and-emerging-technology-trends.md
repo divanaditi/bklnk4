@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-offshore-contract-drilling-professional-market-3qbkc/

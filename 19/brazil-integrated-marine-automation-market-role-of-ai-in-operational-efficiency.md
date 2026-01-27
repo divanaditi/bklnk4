@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-integrated-marine-automation-market-role-ai-operational-ix9qe/

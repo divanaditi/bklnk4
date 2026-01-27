@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-perfusion-market-growth-drivers-demand-side-ujrhc/

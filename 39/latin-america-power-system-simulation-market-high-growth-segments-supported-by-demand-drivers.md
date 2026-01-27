@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-power-system-simulation-market-high-growth-dra8f/

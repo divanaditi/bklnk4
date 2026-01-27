@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-oilfield-services-market-smart-analytics-nfeie/

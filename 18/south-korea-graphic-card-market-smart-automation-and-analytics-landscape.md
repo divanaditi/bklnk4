@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-graphic-card-market-smart-automation-analytics-zofdf/

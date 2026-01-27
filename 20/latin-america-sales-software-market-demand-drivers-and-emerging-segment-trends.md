@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-sales-software-market-demand-drivers-emerging-u5vnf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-single-crystal-ultrasonic-probe-market-digital-npcxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-scissor-platforms-market-growth-drivers-segment-v1arf/

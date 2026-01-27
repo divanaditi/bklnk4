@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-retail-fashion-apparel-plm-software-professional-zxakc/

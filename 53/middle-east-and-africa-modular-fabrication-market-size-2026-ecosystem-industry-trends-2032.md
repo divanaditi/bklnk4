@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-modular-fabrication-market-size-2026-14c7f/

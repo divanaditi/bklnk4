@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-voltage-direct-current-hvdc-capacitor-y45qf/

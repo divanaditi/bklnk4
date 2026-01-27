@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-laser-tattoo-removal-system-market-machine-learning-jxscf/

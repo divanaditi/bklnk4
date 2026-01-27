@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-bag-closure-clips-market-demand-wnkff/

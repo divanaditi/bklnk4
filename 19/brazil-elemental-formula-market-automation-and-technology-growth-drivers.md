@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-elemental-formula-market-automation-technology-rg8pe/

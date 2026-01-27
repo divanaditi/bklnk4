@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-large-trucks-market-ai-technology-adoption-r1oqc/

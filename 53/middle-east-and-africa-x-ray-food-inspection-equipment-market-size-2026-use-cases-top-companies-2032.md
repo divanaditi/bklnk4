@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-x-ray-food-inspection-equipment-8adxf/

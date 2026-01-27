@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-gloves-leather-market-smart-analytics-nhzff/

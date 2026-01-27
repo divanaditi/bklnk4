@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wi-fi-chipset-market-demand-led-segment-0oygf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-tazobactam-sodium-cas-89785-84-2-1vdxf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-standing-desk-market-segment-demand-trends-5oxmf/

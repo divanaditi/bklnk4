@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-low-code-development-platforms-market-intelligent-ner9f/

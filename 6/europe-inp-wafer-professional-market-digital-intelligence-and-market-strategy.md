@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-inp-wafer-professional-market-vp14f/

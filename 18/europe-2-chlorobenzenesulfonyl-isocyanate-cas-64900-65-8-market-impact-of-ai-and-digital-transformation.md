@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-2-chlorobenzenesulfonyl-isocyanate-cas-64900-65-8-wvyqf/

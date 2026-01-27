@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-high-purity-quartz-sand-photovoltaic-7fi2f/

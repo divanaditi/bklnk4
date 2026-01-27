@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-dimethyl-l-tartrate-cas-608-68-4-market-rd8lf/

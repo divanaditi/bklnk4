@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-pneumatic-glue-gun-market-ai-integration-3tfbe/

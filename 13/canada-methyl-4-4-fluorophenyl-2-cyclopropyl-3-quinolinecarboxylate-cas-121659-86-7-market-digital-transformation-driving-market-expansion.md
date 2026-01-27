@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-methyl-4-4-fluorophenyl-2-cyclopropyl-3-quinolinecarboxylate-7wpsc/

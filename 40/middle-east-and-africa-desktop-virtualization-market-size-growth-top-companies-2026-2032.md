@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-desktop-virtualization-market-size-growth-vhslf/

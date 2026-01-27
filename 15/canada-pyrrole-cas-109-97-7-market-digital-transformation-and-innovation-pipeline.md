@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-pyrrole-cas-109-97-7-market-digital-transformation-o9f1f/

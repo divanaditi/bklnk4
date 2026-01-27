@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-barcode-label-printers-scanners-rfid-market-ob6sf/

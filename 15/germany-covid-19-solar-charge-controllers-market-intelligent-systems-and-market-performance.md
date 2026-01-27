@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-covid-19-solar-charge-controllers-market-intelligent-v261f/

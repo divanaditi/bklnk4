@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-colloidal-metal-market-ai-analytics-industry-mbk7f/

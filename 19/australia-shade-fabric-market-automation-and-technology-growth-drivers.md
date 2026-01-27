@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-shade-fabric-market-automation-technology-1dbye/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-resume-parser-api-market-ai-driven-efficiency-gremf/

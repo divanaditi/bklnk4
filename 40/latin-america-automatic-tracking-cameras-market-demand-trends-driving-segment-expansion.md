@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-automatic-tracking-cameras-market-demand-4uulf/

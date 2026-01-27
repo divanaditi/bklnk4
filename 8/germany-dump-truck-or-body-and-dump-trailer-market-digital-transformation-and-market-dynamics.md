@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-dump-truck-body-trailer-market-digital-transformation-ta6rf/

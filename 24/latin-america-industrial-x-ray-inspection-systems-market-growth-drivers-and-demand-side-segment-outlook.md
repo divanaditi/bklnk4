@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-industrial-x-ray-inspection-systems-dynkc/

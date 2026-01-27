@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-emr-software-market-ai-enabled-vsa1f/

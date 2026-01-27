@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-biomedical-wear-simulations-market-growth-drivers-meumf/

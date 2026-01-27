@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-modular-off-grid-container-power-system-zm9vf/

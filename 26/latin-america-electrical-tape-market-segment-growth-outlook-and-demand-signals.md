@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-electrical-tape-market-segment-growth-outlook-y21nc/

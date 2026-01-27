@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-wired-occupancy-sensors-professional-market-advanced-no44f/

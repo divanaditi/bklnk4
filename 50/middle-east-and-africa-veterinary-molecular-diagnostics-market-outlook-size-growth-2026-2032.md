@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-veterinary-molecular-diagnostics-q2ozf/

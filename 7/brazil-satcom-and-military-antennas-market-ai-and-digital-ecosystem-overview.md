@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-satcom-military-antennas-market-ai-digital-am2gf/

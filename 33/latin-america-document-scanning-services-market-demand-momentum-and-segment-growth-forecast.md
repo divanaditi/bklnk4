@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-document-scanning-services-market-e3mpe/

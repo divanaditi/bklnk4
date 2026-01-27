@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-korea-ship-plate-market-ai-impact-gerxf/

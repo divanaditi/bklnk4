@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-collaboration-market-digital-transformation-9nxpc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-text-data-mining-tdm-market-ai-smart-atpyf/

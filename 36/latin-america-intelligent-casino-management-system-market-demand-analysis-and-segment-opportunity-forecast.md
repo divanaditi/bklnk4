@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-intelligent-casino-management-system-qk6tf/

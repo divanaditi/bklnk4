@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-over-air-updates-market-demand-drivers-yeqyc/

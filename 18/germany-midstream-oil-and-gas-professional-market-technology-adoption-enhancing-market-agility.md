@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-midstream-oil-gas-professional-market-technology-rbqof/

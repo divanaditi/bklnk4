@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-hemostasis-diagnostics-market-demand-trends-020wf/

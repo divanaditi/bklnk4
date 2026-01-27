@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-pa-hot-melt-adhesive-powder-market-demand-r34uf/

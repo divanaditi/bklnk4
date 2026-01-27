@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-virtual-ai-digital-human-market-technology-vmv6f/

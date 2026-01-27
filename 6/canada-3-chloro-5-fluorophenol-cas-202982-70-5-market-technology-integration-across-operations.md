@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-3-chloro-5-fluorophenol-cas-202982-70-5-s1sdf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-24-ghz-automotive-millimeter-wave-4v83f/

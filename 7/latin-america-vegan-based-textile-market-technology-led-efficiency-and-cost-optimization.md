@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-vegan-based-textile-market-technology-led-nl1xf/

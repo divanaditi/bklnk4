@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-enclosed-gearing-market-demand-zfzjf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-new-energy-rotary-drilling-rigs-market-4zh4f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-artificial-intelligence-guided-transport-6mmjf/

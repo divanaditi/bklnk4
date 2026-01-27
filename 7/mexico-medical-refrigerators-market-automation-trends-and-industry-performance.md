@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-medical-refrigerators-market-automation-trends-d5jhf/

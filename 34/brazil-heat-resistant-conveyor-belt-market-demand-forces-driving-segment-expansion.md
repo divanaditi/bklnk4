@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-heat-resistant-conveyor-belt-market-demand-xjaxf/

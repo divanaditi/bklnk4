@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cap-torque-force-tester-market-role-ai-operational-reiff/

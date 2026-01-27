@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-digital-pet-detector-market-transformation-g5ekf/

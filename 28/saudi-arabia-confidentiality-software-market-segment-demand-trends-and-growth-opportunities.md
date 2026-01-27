@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-confidentiality-software-market-segment-4kytf/

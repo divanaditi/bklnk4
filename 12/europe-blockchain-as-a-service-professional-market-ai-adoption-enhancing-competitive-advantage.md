@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-blockchain-as-a-service-professional-market-ai-ruz7c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-serial-usb-converters-professional-market-2s1ff/

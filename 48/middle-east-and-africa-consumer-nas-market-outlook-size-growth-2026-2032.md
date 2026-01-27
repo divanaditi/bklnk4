@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-consumer-nas-market-outlook-r9rpf/

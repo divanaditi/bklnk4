@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-veterinary-lasers-market-demand-drivers-influencing-207qc/

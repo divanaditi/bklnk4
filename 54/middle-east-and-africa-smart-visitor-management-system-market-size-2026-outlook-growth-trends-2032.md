@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-visitor-management-3g1if/

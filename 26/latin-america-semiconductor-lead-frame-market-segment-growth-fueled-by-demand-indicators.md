@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-semiconductor-lead-frame-market-segment-y4h7c/

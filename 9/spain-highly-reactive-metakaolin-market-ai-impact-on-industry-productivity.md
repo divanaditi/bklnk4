@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-highly-reactive-metakaolin-market-ai-impact-rih3f/

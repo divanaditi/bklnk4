@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-welding-gasshielding-gas-market-demand-outlook-8lhcf/

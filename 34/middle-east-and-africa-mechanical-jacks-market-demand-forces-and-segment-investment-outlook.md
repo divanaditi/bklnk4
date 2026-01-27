@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-mechanical-jacks-market-demand-forces-y8aef/

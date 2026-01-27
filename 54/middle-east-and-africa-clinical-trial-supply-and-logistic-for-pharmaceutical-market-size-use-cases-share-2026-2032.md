@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-clinical-trial-supply-logistic-pharmaceutical-vkq8f/

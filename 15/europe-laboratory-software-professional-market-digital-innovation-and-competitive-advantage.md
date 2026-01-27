@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-laboratory-software-professional-market-kb1mf/

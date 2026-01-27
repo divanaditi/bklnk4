@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ksa-last-mile-delivery-market-role-ai-operational-lmflf/

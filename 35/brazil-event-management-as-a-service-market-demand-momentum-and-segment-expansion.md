@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-event-management-service-market-demand-momentum-kiwgf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-arab-emirates-uae-dripline-irrigation-market-technology-jsvpc/

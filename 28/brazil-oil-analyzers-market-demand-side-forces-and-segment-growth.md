@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-oil-analyzers-market-demand-side-forces-segment-ndcuc/

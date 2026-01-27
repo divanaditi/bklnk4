@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-computer-aided-drug-discovery-services-market-digital-nxc6f/

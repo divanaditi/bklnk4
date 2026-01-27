@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-cloud-automation-market-demand-analysis-segment-n3vhf/

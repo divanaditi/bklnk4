@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/australia-resistor-trimmers-market-automation-technology-zszrf/

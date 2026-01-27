@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-28-bistrifluoromethyl-4-quinolinol-cas-35853-41-9-wutdf/

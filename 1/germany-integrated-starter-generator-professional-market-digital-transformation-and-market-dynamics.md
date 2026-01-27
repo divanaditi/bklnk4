@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-integrated-starter-generator-professional-market-efhvf/

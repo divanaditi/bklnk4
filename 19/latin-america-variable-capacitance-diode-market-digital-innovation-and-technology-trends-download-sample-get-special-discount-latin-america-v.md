@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-variable-capacitance-diode-market-digital-cigge/

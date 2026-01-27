@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-nteiligent-buildings-market-high-growth-lwotf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-alignment-lifts-market-demand-zl9cf/

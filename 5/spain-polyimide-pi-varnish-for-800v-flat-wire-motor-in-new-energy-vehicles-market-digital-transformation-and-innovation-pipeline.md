@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-polyimide-pi-varnish-800v-flat-wire-motor-new-energy-re2zf/

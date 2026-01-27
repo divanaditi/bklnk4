@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-3-bromomethylthiophene-cas-40032-76-6-5qmqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-planogram-software-market-2ilhf/

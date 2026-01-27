@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-444-trifluorocrotonamide-cas-590-76-1-market-ef4tf/

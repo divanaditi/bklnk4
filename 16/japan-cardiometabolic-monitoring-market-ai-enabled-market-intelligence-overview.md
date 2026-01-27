@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cardiometabolic-monitoring-market-ai-enabled-intelligence-fsanf/

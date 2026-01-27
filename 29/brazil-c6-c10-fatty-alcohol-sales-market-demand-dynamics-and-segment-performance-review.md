@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-c6-c10-fatty-alcohol-sales-market-demand-5my6f/

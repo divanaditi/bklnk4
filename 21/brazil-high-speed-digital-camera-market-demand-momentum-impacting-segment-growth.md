@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-high-speed-digital-camera-market-demand-momentum-ji7qf/

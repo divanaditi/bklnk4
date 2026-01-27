@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-hopper-car-market-automation-digital-9nnwc/

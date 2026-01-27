@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mini-rotary-compressor-market-2racc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-ultrasound-bone-imaging-scanner-market-8oywe/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-synchronous-step-down-regulator-market-intelligent-qzvsf/

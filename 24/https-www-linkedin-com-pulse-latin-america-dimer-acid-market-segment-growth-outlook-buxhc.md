@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-dimer-acid-market-segment-growth-outlook-buxhc/

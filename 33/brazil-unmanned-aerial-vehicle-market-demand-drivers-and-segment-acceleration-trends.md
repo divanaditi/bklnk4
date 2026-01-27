@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-unmanned-aerial-vehicle-market-demand-gmxpe/

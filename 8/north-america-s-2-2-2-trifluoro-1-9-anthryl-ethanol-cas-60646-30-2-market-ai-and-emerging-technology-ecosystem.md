@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-s-222-trifluoro-1-9-anthrylethanol-cas-wmzgf/

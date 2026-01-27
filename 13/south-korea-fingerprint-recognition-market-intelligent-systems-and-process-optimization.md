@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-fingerprint-recognition-market-ofkqf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-agricultural-pheromones-market-technology-fskzc/

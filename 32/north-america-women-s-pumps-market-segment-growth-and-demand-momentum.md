@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-womens-pumps-market-segment-growth-demand-9otvf/

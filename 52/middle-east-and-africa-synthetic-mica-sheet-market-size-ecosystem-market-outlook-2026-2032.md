@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-synthetic-mica-sheet-market-size-ecosystem-kw0ie/

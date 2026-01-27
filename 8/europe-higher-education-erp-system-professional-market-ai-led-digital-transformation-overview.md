@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-higher-education-erp-system-professional-yvdrf/

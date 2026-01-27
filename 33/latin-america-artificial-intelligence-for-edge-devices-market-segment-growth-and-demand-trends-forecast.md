@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-artificial-intelligence-edge-devices-market-fze1e/

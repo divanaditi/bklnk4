@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-high-voltage-coolant-heater-market-intelligent-systems-j1zrf/

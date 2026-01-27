@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-4k-camera-drone-market-ai-data-intelligence-fu0uf/

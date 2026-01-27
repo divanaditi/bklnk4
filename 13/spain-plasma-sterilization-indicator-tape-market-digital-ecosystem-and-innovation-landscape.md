@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-plasma-sterilization-indicator-tape-market-digital-7bngf/

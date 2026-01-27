@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drone-data-services-market-size-ecosystem-t7i4f/

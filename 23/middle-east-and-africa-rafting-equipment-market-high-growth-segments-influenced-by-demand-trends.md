@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-rafting-equipment-market-high-growth-g7euf/

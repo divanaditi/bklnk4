@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-personal-entry-level-storage-pels-market-i0d3e/

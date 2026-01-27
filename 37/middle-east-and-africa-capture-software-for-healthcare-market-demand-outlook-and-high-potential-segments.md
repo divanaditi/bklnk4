@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-capture-software-healthcare-yfqqe/

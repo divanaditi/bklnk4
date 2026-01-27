@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-naftifine-cas-65472-88-0-market-ai-adoption-1drzc/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-stationary-concrete-pumps-market-zc37f/

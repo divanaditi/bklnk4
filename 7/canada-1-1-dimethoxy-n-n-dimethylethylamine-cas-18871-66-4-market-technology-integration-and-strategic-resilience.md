@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-11-dimethoxy-nn-dimethylethylamine-cas-18871-66-4-yobdf/

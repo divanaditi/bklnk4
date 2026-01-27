@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-industrial-sensors-market-impact-ai-digital-transformation-6holf/

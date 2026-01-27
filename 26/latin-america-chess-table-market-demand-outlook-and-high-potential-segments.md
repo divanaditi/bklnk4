@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-chess-table-market-demand-outlook-ymosc/

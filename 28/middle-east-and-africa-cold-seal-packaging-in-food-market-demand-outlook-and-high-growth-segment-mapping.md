@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-cold-seal-packaging-food-market-vxd3f/

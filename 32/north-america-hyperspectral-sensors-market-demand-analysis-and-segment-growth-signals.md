@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hyperspectral-sensors-market-demand-ni3nf/

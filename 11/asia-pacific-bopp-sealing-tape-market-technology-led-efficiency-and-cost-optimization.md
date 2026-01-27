@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-bopp-sealing-tape-market-technology-led-nxjwf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-green-power-market-size-2026-top-companies-nij6f/

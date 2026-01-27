@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-tubeless-wearable-insulin-pump-market-technology-fokyf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-critical-care-key-market-automation-trends-qqjzf/

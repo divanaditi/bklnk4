@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/saudi-arabia-barebone-system-market-technology-ml8gf/

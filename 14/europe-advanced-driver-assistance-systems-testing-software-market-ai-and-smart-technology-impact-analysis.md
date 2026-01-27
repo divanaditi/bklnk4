@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-advanced-driver-assistance-systems-ivg1c/

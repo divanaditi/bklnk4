@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-commercial-vehicle-prognostic-system-cmb8c/

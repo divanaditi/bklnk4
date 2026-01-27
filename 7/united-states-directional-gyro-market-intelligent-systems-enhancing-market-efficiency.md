@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-directional-gyro-market-intelligent-systems-teh8f/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-s-1-chloro-2-propanol-cas-37493-16-6-market-vgpuc/

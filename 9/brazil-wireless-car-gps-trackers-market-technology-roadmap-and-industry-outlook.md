@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wireless-car-gps-trackers-market-technology-pg8zf/

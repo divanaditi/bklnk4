@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-voltage-probe-market-ai-technology-adoption-j8zdc/

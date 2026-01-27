@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-m-commerce-market-advanced-digital-41vnf/

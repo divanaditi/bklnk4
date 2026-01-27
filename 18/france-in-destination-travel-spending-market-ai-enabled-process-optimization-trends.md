@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-in-destination-travel-spending-market-ai-enabled-440ef/

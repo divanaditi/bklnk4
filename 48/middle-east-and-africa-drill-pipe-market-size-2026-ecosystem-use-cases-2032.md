@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-drill-pipe-market-size-2026-cpnef/

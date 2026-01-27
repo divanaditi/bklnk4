@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vacuum-controller-market-demand-trends-segment-5cmjf/

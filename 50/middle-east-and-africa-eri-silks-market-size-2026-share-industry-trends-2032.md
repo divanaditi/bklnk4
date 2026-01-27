@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-eri-silks-market-size-2026-share-9vjmf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-asset-tracking-inventory-management-udh5c/

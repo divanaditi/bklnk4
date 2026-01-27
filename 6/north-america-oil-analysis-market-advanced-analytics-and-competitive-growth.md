@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-oil-analysis-market-advanced-88wef/

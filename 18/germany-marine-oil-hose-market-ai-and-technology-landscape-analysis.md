@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-marine-oil-hose-market-ai-technology-s4sxf/

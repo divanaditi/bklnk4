@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-high-side-load-switches-automobile-market-technology-flltf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-microduct-cable-market-high-growth-segments-9bz8f/

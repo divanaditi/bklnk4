@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-truck-stabilizer-bar-market-demand-evolution-fpetf/

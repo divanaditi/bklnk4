@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/malaysia-high-barrier-material-market-ai-impact-w9khf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-high-rigidity-cutting-tool-market-ai-vqauf/

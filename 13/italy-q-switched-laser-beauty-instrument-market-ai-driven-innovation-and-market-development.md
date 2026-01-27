@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/italy-q-switched-laser-beauty-instrument-market-ai-driven-cu0tf/

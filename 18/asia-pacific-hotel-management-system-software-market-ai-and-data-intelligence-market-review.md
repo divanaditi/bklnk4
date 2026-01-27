@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/asia-pacific-hotel-management-system-software-gltuf/

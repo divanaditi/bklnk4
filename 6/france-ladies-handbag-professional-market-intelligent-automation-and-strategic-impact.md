@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-ladies-handbag-professional-market-intelligent-gixif/

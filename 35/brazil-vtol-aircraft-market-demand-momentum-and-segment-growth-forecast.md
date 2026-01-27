@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-vtol-aircraft-market-demand-momentum-segment-agwkf/

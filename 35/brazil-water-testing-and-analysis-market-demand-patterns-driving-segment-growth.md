@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-water-testing-analysis-market-demand-patterns-42owf/

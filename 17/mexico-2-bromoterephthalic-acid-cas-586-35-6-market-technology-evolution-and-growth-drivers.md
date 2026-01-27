@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/mexico-2-bromoterephthalic-acid-cas-586-35-6-market-bk3df/

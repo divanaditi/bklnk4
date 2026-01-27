@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-covid-19-product-compliance-software-los6f/

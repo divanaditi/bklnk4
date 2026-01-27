@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-computer-module-com-market-ai-trends-shaping-1ytlf/

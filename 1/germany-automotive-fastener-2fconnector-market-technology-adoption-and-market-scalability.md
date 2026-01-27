@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-automotive-fastener2fconnector-market-technology-einrf/

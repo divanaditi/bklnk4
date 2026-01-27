@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-nonwoven-pylen-fabric-market-ai-analytics-qmqoc/

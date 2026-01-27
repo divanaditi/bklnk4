@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-hdmi-optical-transceivers-market-demand-4qgbf/

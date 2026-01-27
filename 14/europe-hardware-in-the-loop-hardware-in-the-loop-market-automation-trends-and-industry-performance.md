@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-hardware-loop-hardware-in-the-loop-market-rfcyc/

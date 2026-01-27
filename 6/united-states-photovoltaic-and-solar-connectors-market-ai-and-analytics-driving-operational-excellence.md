@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-photovoltaic-solar-connectors-3kjmf/

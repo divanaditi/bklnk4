@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-adhesive-tape-market-ai-impact-1gwtf/

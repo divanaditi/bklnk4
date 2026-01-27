@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-parallel-shaft-geared-ffl3f/

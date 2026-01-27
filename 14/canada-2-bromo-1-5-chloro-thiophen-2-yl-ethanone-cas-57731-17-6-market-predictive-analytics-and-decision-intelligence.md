@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-2-bromo-1-5-chloro-thiophen-2-yl-ethanone-cas-592vc/

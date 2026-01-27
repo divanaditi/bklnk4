@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-smart-irrigation-controllers-sales-market-hxdwf/

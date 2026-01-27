@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-concentration-table-market-digital-transformation-hk10f/

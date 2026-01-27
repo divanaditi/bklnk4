@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-din-rail-poe-ethernet-switches-market-digital-fnm6c/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-photovoltaic-cutting-tungsten-wire-market-nspec/

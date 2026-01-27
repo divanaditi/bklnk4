@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-elevator-load-weighing-device-market-digital-hhafc/

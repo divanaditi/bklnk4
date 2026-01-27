@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-power-system-remote-monitoring-psrm-professional-7uidf/

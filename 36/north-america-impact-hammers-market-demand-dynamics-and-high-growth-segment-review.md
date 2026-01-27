@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/north-america-impact-hammers-market-demand-dynamics-itcxf/

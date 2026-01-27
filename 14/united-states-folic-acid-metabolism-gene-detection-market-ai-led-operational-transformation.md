@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-folic-acid-metabolism-gene-detection-market-fw2dc/

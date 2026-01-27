@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-heat-seal-lacquers-hsl-market-zaatf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-ship-clutches-market-demand-side-forces-iudyf/

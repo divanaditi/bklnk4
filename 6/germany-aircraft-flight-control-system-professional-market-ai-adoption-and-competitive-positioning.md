@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-aircraft-flight-control-system-professional-ek4jf/

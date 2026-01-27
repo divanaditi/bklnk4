@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-doubler-winder-market-technology-trends-influencing-7lhif/

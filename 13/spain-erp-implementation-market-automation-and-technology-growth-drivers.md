@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-erp-implementation-market-automation-technology-81ckf/

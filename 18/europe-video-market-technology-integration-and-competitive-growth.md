@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/europe-video-market-technology-integration-competitive-cyhxf/

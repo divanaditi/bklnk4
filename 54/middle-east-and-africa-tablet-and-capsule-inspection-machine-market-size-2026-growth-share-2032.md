@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-tablet-capsule-inspection-vzb2f/

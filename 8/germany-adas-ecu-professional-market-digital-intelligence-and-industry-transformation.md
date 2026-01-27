@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-adas-ecu-professional-market-digital-intelligence-5qyqf/

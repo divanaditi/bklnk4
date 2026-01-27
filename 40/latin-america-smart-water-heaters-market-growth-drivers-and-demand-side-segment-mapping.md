@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-smart-water-heaters-market-growth-lvhuf/

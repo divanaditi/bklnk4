@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wooden-pallet-market-technology-innovation-driving-competitive-nxolf/

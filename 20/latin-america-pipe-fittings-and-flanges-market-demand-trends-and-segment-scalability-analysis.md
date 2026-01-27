@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-pipe-fittings-flanges-market-demand-9df6f/

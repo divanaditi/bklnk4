@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-football-sports-professional-market-technology-led-spvkf/

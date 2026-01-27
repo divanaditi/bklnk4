@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-medical-patch-type-skin-repair-dressing-market-qt6mf/

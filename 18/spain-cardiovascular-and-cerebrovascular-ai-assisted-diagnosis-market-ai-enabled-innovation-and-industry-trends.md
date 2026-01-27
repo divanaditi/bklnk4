@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-cardiovascular-cerebrovascular-ai-assisted-diagnosis-plvvf/

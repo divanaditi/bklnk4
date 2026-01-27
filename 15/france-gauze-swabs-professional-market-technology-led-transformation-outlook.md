@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-gauze-swabs-professional-market-technology-led-71lqf/

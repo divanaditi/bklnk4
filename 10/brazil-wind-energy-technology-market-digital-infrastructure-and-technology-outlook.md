@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-wind-energy-technology-market-digital-infrastructure-itu2f/

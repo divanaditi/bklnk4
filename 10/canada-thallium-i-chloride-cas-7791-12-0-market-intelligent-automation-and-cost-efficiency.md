@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/canada-thalliumi-chloride-cas-7791-12-0-market-intelligent-8dhff/

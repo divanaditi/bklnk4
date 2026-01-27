@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-roof-safety-access-system-market-gzxgc/

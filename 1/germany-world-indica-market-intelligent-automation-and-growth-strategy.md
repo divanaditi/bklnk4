@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/germany-world-indica-market-intelligent-automation-2x5uf/

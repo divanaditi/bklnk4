@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-compensator-market-technology-evolution-nwopf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-smart-payment-systems-market-size-2026-j7orf/

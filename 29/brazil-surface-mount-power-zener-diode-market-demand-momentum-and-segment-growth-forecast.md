@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-surface-mount-power-zener-diode-market-demand-drfwf/

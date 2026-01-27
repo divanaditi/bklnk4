@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/singapore-mobile-device-haptics-technology-market-automation-sh5mc/

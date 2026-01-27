@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/south-korea-electronic-vagina-image-system-lp8bf/

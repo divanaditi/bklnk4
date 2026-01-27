@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/united-states-4-isopropylcyclohexanone-cas-5432-85-9-lz9ic/

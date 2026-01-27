@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-bluetooth-smart-ready-market-segment-growth-demand-9f6qf/

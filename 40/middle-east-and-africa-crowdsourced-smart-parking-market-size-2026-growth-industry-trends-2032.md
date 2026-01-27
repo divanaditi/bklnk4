@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-crowdsourced-smart-parking-market-size-b8ggf/

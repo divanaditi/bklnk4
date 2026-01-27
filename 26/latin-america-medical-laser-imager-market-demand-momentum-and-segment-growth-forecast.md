@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/latin-america-medical-laser-imager-market-demand-momentum-z92bc/

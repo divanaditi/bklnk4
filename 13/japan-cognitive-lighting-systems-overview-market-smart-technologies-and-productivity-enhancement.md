@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/japan-cognitive-lighting-systems-overview-market-smart-xgknf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/middle-east-africa-hd-maps-market-size-ecosystem-growth-u5xuf/

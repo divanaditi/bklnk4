@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-beach-chair-umbrella-market-technology-innovation-letwf/

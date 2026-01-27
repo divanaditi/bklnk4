@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/france-wired-electric-hair-clipper-market-ai-analytics-ygzsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-small-benchtop-climate-chamber-market-demand-momentum-qcmsf/

@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/brazil-disaster-recovery-as-a-service-market-ai-impact-structure-orkqf/

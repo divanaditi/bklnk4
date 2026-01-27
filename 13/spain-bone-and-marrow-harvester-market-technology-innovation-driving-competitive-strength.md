@@ -1,0 +1,1 @@
+https://www.linkedin.com/pulse/spain-bone-marrow-harvester-market-technology-1xbnf/
